@@ -28,7 +28,7 @@ USER_AGENT = (
 TIME_ZONE = timezone(timedelta(hours=8), name="Asia/Shanghai")
 MINIMUM_ITEMS = 100
 EXTERNAL_LINK_COUNT = 50
-CONTENT_SCHEMA_VERSION = "4"
+CONTENT_SCHEMA_VERSION = "5"
 
 REPOSITORY_TOPICS: dict[str, list[tuple[str, str]]] = {
     "hua-she-tian-zu": [
@@ -407,10 +407,6 @@ def collect_all() -> tuple[list[HotItem], dict[str, str], dict[str, int]]:
     return ordered[:MINIMUM_ITEMS], errors, counts
 
 
-def yaml_string(value: str) -> str:
-    return json.dumps(value, ensure_ascii=False)
-
-
 def load_external_link_templates(repo_dir: Path) -> list[tuple[str, str]]:
     path = repo_dir / "url.txt"
     if not path.is_file():
@@ -509,6 +505,7 @@ def page_fingerprint(
     rows: list[tuple[str, str, HotItem]],
     index: int,
     templates: list[tuple[str, str]],
+    all_items: list[HotItem],
 ) -> str:
     linked_indexes = [(index - 1) % len(rows)] + [
         (index + step) % len(rows) for step in range(0, 5)
@@ -518,14 +515,35 @@ def page_fingerprint(
         for row_index in linked_indexes
     )
     payload += "\n" + "\n".join(f"{tag}|{url}" for tag, url in templates)
+    payload += "\n" + "\n".join(
+        f"{repo}:{slug}:{item_fingerprint(item)}"
+        for repo, slug, item in cross_repository_items(all_items, index)
+    )
     payload += "\ncontent-schema:" + CONTENT_SCHEMA_VERSION
     return hashlib.sha256(payload.encode("utf-8")).hexdigest()[:20]
+
+
+def cross_repository_items(
+    items: list[HotItem],
+    index: int,
+) -> list[tuple[str, str, HotItem]]:
+    result: list[tuple[str, str, HotItem]] = []
+    offset = 0
+    for repo, topics in REPOSITORY_TOPICS.items():
+        topic_index = (index + len(topics) // 2) % len(topics)
+        slug = topics[topic_index][0]
+        result.append((repo, slug, items[offset + topic_index]))
+        offset += len(topics)
+    return result
 
 
 def existing_fingerprint(path: Path) -> str:
     if not path.is_file():
         return ""
-    match = re.search(r'^content_fingerprint:\s*"?([0-9a-f]{20})"?\s*$', path.read_text("utf-8"), re.MULTILINE)
+    content = path.read_text("utf-8")
+    match = re.search(r'<!--\s*content-fingerprint:\s*([0-9a-f]{20})\s*-->', content)
+    if not match:
+        match = re.search(r'^content_fingerprint:\s*"?([0-9a-f]{20})"?\s*$', content, re.MULTILINE)
     return match.group(1) if match else ""
 
 
@@ -534,111 +552,81 @@ def render_topic(
     index: int,
     updated_at: str,
     templates: list[tuple[str, str]],
+    all_items: list[HotItem],
 ) -> str:
     slug, idiom, item = rows[index]
-    fingerprint = page_fingerprint(rows, index, templates)
+    fingerprint = page_fingerprint(rows, index, templates, all_items)
     tags = [item.source, "实时热搜", "热点资讯"]
     if item.category and item.category not in tags:
         tags.append(item.category)
-    description = clean_text(item.summary, 150)
-    tag_lines = "\n".join(f"  - {yaml_string(tag)}" for tag in tags)
-    score_line = f"- 热度：{markdown_text(item.score)}\n" if item.score else ""
-    category_line = f"- 分类：{markdown_text(item.category)}\n" if item.category else ""
     tag_text = " ".join(f"`{markdown_text(tag)}`" for tag in tags)
-    previous_slug, previous_idiom, previous_item = rows[(index - 1) % len(rows)]
-    next_slug, next_idiom, next_item = rows[(index + 1) % len(rows)]
     related_rows = [rows[(index + step) % len(rows)] for step in range(1, 5)]
     related_links = "\n".join(
         f"- [{markdown_text(related_item.title)}]({related_slug}.md)"
-        f"（{related_idiom}）"
-        for related_slug, related_idiom, related_item in related_rows
+        for related_slug, _related_idiom, related_item in related_rows
     )
     repository_links = "\n".join(
-        f"- [{target_slug}.md](https://github.com/{OWNER}/{name}/blob/main/{target_slug}.md)"
-        f"（{target_idiom}）"
-        for name, topics in REPOSITORY_TOPICS.items()
-        for target_slug, target_idiom in [topics[index % len(topics)]]
+        f"- [{markdown_text(target_item.title)}]"
+        f"(https://github.com/{name_with_owner}/blob/main/{target_slug}.md)"
+        for target_repo, target_slug, target_item in cross_repository_items(all_items, index)
+        for name_with_owner in [f"{OWNER}/{target_repo}"]
     )
     external_links = generate_external_links(slug, item.title, tags, templates)
     external_link_lines = "\n".join(
         f"- [{markdown_text(anchor)}]({url})" for anchor, url in external_links
     )
-    attention_points = [
-        f"该话题当前位于{item.source}第 {item.rank} 位，排名会随实时热度变化。",
-        "阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。",
-        "后续进展可能改变现有信息，页面会在下一次榜单采集时更新。",
+    status_parts = [
+        f"来源：{markdown_text(item.source)}",
+        f"排名：第 {item.rank} 位",
     ]
-    attention_list = "\n".join(f"- {markdown_text(point)}" for point in attention_points)
+    if item.score:
+        status_parts.append(f"热度：{markdown_text(item.score)}")
+    if item.category:
+        status_parts.append(f"分类：{markdown_text(item.category)}")
+    status_parts.append(f"更新：{updated_at}")
     return (
-        "---\n"
-        f"title: {yaml_string(item.title)}\n"
-        f"description: {yaml_string(description)}\n"
-        f"keywords: {yaml_string(', '.join(tags + [idiom, slug]))}\n"
-        "tags:\n"
-        f"{tag_lines}\n"
-        f"source: {yaml_string(item.source)}\n"
-        f"source_url: {yaml_string(item.url)}\n"
-        f"rank: {item.rank}\n"
-        f"updated_at: {yaml_string(updated_at)}\n"
-        f"content_fingerprint: {yaml_string(fingerprint)}\n"
-        "---\n\n"
-        f"[热点索引](README.md) / {idiom} / {markdown_text(item.title)}\n\n"
+        "[热点索引](README.md)\n\n"
         f"# {markdown_text(item.title)}\n\n"
-        f"> 来源：{markdown_text(item.source)} · 榜单排名：第 {item.rank} 位 · 更新时间：{updated_at}\n\n"
-        "## 事件概览\n\n"
-        f"{markdown_text(item.summary)}\n\n"
+        f"> {' · '.join(status_parts)}\n\n"
         "## 热点正文\n\n"
         f"{render_article_body(item)}\n\n"
-        "## 当前榜单信息\n\n"
-        f"- 来源平台：{markdown_text(item.source)}\n"
-        f"- 当前排名：第 {item.rank} 位\n"
-        f"{score_line}"
-        f"{category_line}"
-        f"- 固定索引：{idiom}（{slug}）\n\n"
-        "## 阅读关注点\n\n"
-        f"{attention_list}\n\n"
         "## 相关标签\n\n"
         f"{tag_text}\n\n"
         "## 相关热点\n\n"
         f"{related_links}\n\n"
-        "## 前后篇导航\n\n"
-        f"- 上一篇：[{markdown_text(previous_item.title)}]({previous_slug}.md)（{previous_idiom}）\n"
-        f"- 下一篇：[{markdown_text(next_item.title)}]({next_slug}.md)（{next_idiom}）\n\n"
-        "## 热点仓库导航\n\n"
+        "## 站内推荐\n\n"
         f"{repository_links}\n\n"
-        "## 标签扩展阅读\n\n"
-        f"以下链接按照本页标签从 `url.txt` 模板生成，共 {EXTERNAL_LINK_COUNT} 条。\n\n"
+        "## 相关资讯\n\n"
         "<details>\n"
-        f"<summary>查看 {EXTERNAL_LINK_COUNT} 条标签相关链接</summary>\n\n"
+        f"<summary>展开更多相关内容</summary>\n\n"
         f"{external_link_lines}\n\n"
         "</details>\n\n"
-        "## 来源与延伸阅读\n\n"
+        "## 原始来源\n\n"
         f"- [{markdown_text(item.title)}]({item.url})\n\n"
-        "本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。"
-        "事件事实、完整报道及后续变化请以原始来源为准。\n"
+        "完整信息及后续变化请以原始来源为准。\n\n"
+        f"<!-- content-fingerprint: {fingerprint} -->\n"
     )
 
 
 def render_readme(repo: str, rows: list[tuple[str, str, HotItem]], updated_at: str) -> str:
     table = []
-    for index, (slug, idiom, item) in enumerate(rows, start=1):
+    for index, (slug, _idiom, item) in enumerate(rows, start=1):
         title = markdown_text(item.title).replace("|", "\\|")
         table.append(
-            f"| {index} | [{title}]({slug}.md) | {item.source} | {idiom} / `{slug}` |"
+            f"| {index} | [{title}]({slug}.md) | {item.source} |"
         )
     return (
         f"# {repo}\n\n"
         "实时热点内容索引。页面采集公开榜单的标题、摘要、排名与来源链接，"
         "每 10 分钟检查一次，仅在榜单内容变化时提交更新。\n\n"
         f"最后更新：{updated_at}\n\n"
-        "| 序号 | 热点标题 | 来源 | 固定成语索引 |\n"
-        "| ---: | --- | --- | --- |\n"
+        "| 序号 | 热点标题 | 来源 |\n"
+        "| ---: | --- | --- |\n"
         + "\n".join(table)
         + "\n\n"
         "## 热点仓库导航\n\n"
         + "\n".join(
-            f"- [{topics[0][0]}.md](https://github.com/{OWNER}/{name}/blob/main/{topics[0][0]}.md)"
-            f"（{topics[0][1]}）"
+            f"- [{name} 热点内容](https://github.com/{OWNER}/{name}/blob/main/{topics[0][0]}.md)"
             for name, topics in REPOSITORY_TOPICS.items()
         )
         + "\n\n"
@@ -690,14 +678,10 @@ def update_repository(repo_dir: Path, repo: str, items: list[HotItem], updated_a
     for index, (slug, _idiom, item) in enumerate(rows):
         path = repo_dir / f"{slug}.md"
         current = path.read_text("utf-8") if path.is_file() else ""
-        has_navigation = (
-            "## 热点仓库导航" in current
-            and "## 前后篇导航" in current
-            and "## 标签扩展阅读" in current
-        )
-        if existing_fingerprint(path) == page_fingerprint(rows, index, templates) and has_navigation:
+        has_navigation = "## 站内推荐" in current and "## 相关资讯" in current
+        if existing_fingerprint(path) == page_fingerprint(rows, index, templates, items) and has_navigation:
             continue
-        path.write_text(render_topic(rows, index, updated_at, templates), encoding="utf-8", newline="\n")
+        path.write_text(render_topic(rows, index, updated_at, templates, items), encoding="utf-8", newline="\n")
         changed_files.append(path.name)
 
     readme = repo_dir / "README.md"

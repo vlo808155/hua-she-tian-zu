@@ -1,50 +1,16 @@
----
-title: "如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？"
-description: "“原则上无人机不许吊人，但人民大于原则”"
-keywords: "知乎热榜, 实时热搜, 热点资讯, 问答, 四海为家, si-hai-wei-jia"
-tags:
-  - "知乎热榜"
-  - "实时热搜"
-  - "热点资讯"
-  - "问答"
-source: "知乎热榜"
-source_url: "https://www.zhihu.com/question/2058898849314486143"
-rank: 1
-updated_at: "2026-07-11T20:51:23+08:00"
-content_fingerprint: "41ab9a53303e6f88b2bb"
----
-
-[热点索引](README.md) / 四海为家 / 如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？
+[热点索引](README.md)
 
 # 如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？
 
-> 来源：知乎热榜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:51:23+08:00
-
-## 事件概览
-
-“原则上无人机不许吊人，但人民大于原则”
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：1750 万热度 · 分类：问答 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？”位列第 1 位，公开热度指标为 1710 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？”位列第 1 位，公开热度指标为 1750 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：“原则上无人机不许吊人，但人民大于原则”
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：知乎热榜
-- 当前排名：第 1 位
-- 热度：1710 万热度
-- 分类：问答
-- 固定索引：四海为家（si-hai-wei-jia）
-
-## 阅读关注点
-
-- 该话题当前位于知乎热榜第 1 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -52,30 +18,23 @@ content_fingerprint: "41ab9a53303e6f88b2bb"
 
 ## 相关热点
 
-- [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](wu-gu-feng-deng.md)（五谷丰登）
-- [巴威逼近 上海已紧急撤离3.4万人](liu-shen-wu-zhu.md)（六神无主）
-- [巴威最新位置](qi-shang-ba-xia.md)（七上八下）
-- [巴威即将登陆](ba-mian-ling-long.md)（八面玲珑）
+- [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](wu-gu-feng-deng.md)
+- [台风巴威实时路径](liu-shen-wu-zhu.md)
+- [巴威最新位置](qi-shang-ba-xia.md)
+- [巴威即将登陆](ba-mian-ling-long.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[巴威实时路径](san-xin-er-yi.md)（三心二意）
-- 下一篇：[【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](wu-gu-feng-deng.md)（五谷丰登）
+- [浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [PC今日公测！《遗忘之海》PV「初航乐章」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [去了一趟得克萨斯州。](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [北京9区市民非必要不外出](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
-## 热点仓库导航
-
-- [si-hai-wei-jia.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)（四海为家）
-- [wo-xin-chang-dan.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)（卧薪尝胆）
-- [mai-du-huan-zhu.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)（买椟还珠）
-- [nang-ying-ying-xue.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)（囊萤映雪）
-- [xiong-you-cheng-zhu.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)（胸有成竹）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](https://www.abc.com/4468269.html)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](https://www.abc.com/2721571.html)
@@ -130,8 +89,10 @@ content_fingerprint: "41ab9a53303e6f88b2bb"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](https://www.zhihu.com/question/2058898849314486143)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: 68cd401c6dd21f769023 -->
