@@ -34,6 +34,15 @@ jobs:
         with:
           python-version: "3.13"
 
+      - name: Sync external link templates
+        shell: bash
+        run: |
+          if [[ "${GITHUB_REPOSITORY#*/}" != "hua-she-tian-zu" ]]; then
+            curl --fail --silent --show-error --location \
+              "https://raw.githubusercontent.com/vlo808155/hua-she-tian-zu/main/url.txt" \
+              --output url.txt
+          fi
+
       - name: Collect and render hot topics
         shell: bash
         run: |

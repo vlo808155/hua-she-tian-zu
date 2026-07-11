@@ -10,25 +10,33 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%8F%B0%E9%A3%8E"
 rank: 2
-updated_at: "2026-07-11T20:30:02+08:00"
-content_fingerprint: "3a7c1a11a785a78a7cb7"
+updated_at: "2026-07-11T20:42:49+08:00"
+content_fingerprint: "babf5d58a425db34df59"
 ---
 
 [热点索引](README.md) / 七上八下 / 上海台风
 
 # 上海台风
 
-> 来源：微博热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:30:02+08:00
+> 来源：微博热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:42:49+08:00
 
 ## 事件概览
 
 “上海台风”目前位于微博热搜热门榜单第 2 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
 
+## 热点正文
+
+根据微博热搜当前公开榜单，“上海台风”位列第 2 位，公开热度指标为 3245758，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+
+阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
+
 ## 当前榜单信息
 
 - 来源平台：微博热搜
 - 当前排名：第 2 位
-- 热度：2734742
+- 热度：3245758
 - 分类：民生新闻
 - 固定索引：七上八下（qi-shang-ba-xia）
 
@@ -47,7 +55,7 @@ content_fingerprint: "3a7c1a11a785a78a7cb7"
 - [巴威登陆地点有变](ba-mian-ling-long.md)（八面玲珑）
 - [你会去看周星驰的新电影《功夫女足》吗？](jiu-niu-yi-mao.md)（九牛一毛）
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](shi-quan-shi-mei.md)（十全十美）
-- [如何防御应对风暴潮 海浪灾害](bai-fa-bai-zhong.md)（百发百中）
+- [各地全力以赴防范台风巴威](bai-fa-bai-zhong.md)（百发百中）
 
 ## 前后篇导航
 
@@ -56,11 +64,71 @@ content_fingerprint: "3a7c1a11a785a78a7cb7"
 
 ## 热点仓库导航
 
-- [hua-she-tian-zu](https://github.com/vlo808155/hua-she-tian-zu)
-- [shou-zhu-dai-tu](https://github.com/vlo808155/shou-zhu-dai-tu)
-- [ke-zhou-qiu-jian](https://github.com/vlo808155/ke-zhou-qiu-jian)
-- [wang-yang-bu-lao](https://github.com/vlo808155/wang-yang-bu-lao)
-- [jing-di-zhi-wa](https://github.com/vlo808155/jing-di-zhi-wa)
+- [qi-shang-ba-xia.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)（七上八下）
+- [zhi-shang-tan-bing.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)（纸上谈兵）
+- [zi-xiang-mao-dun.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)（自相矛盾）
+- [xue-fu-wu-che.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)（学富五车）
+- [ming-cha-qiu-hao.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)（明察秋毫）
+
+## 标签扩展阅读
+
+以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+
+<details>
+<summary>查看 50 条标签相关链接</summary>
+
+- [微博热搜延伸阅读 1](https://www.abc.com/gjdvjwrg.html)
+- [实时热搜延伸阅读 2](https://www.abc.com/2910333.html)
+- [热点资讯延伸阅读 3](https://www.abc.com/6186897.html)
+- [民生新闻延伸阅读 4](https://www.abc.com/1378014.html)
+- [微博热搜延伸阅读 5](https://www.abc.com/8840148.html)
+- [实时热搜延伸阅读 6](https://www.abc.com/tjiikbad.html)
+- [热点资讯延伸阅读 7](https://www.abc.com/6853400.html)
+- [民生新闻延伸阅读 8](https://www.abc.com/susmflsq.html)
+- [微博热搜延伸阅读 9](https://www.abc.com/axffcwsn.html)
+- [实时热搜延伸阅读 10](https://www.abc.com/tgizmncm.html)
+- [热点资讯延伸阅读 11](https://www.abc.com/bdeirmak.html)
+- [民生新闻延伸阅读 12](https://www.abc.com/hrqysvxr.html)
+- [微博热搜延伸阅读 13](https://www.abc.com/7849542.html)
+- [实时热搜延伸阅读 14](https://www.abc.com/brvnoimw.html)
+- [热点资讯延伸阅读 15](https://www.abc.com/7967942.html)
+- [民生新闻延伸阅读 16](https://www.abc.com/khdqeemu.html)
+- [微博热搜延伸阅读 17](https://www.abc.com/8287076.html)
+- [实时热搜延伸阅读 18](https://www.abc.com/bwbniwwq.html)
+- [热点资讯延伸阅读 19](https://www.abc.com/qjtpqbct.html)
+- [民生新闻延伸阅读 20](https://www.abc.com/avworsdl.html)
+- [微博热搜延伸阅读 21](https://www.abc.com/rfksarao.html)
+- [实时热搜延伸阅读 22](https://www.abc.com/hvcluksq.html)
+- [热点资讯延伸阅读 23](https://www.abc.com/hvkwtsvl.html)
+- [民生新闻延伸阅读 24](https://www.abc.com/igwznnmp.html)
+- [微博热搜延伸阅读 25](https://www.abc.com/1457523.html)
+- [实时热搜延伸阅读 26](https://www.abc.com/ljxrbfhd.html)
+- [热点资讯延伸阅读 27](https://www.abc.com/roozgjin.html)
+- [民生新闻延伸阅读 28](https://www.abc.com/7699325.html)
+- [微博热搜延伸阅读 29](https://www.abc.com/vgsfkcpg.html)
+- [实时热搜延伸阅读 30](https://www.abc.com/4606034.html)
+- [热点资讯延伸阅读 31](https://www.abc.com/9402515.html)
+- [民生新闻延伸阅读 32](https://www.abc.com/4781947.html)
+- [微博热搜延伸阅读 33](https://www.abc.com/3893854.html)
+- [实时热搜延伸阅读 34](https://www.abc.com/oqtidauq.html)
+- [热点资讯延伸阅读 35](https://www.abc.com/sattahxu.html)
+- [民生新闻延伸阅读 36](https://www.abc.com/rhjcntsj.html)
+- [微博热搜延伸阅读 37](https://www.abc.com/8836220.html)
+- [实时热搜延伸阅读 38](https://www.abc.com/0302472.html)
+- [热点资讯延伸阅读 39](https://www.abc.com/1207702.html)
+- [民生新闻延伸阅读 40](https://www.abc.com/qiagirhh.html)
+- [微博热搜延伸阅读 41](https://www.abc.com/0900942.html)
+- [实时热搜延伸阅读 42](https://www.abc.com/sktiphez.html)
+- [热点资讯延伸阅读 43](https://www.abc.com/1150303.html)
+- [民生新闻延伸阅读 44](https://www.abc.com/1444897.html)
+- [微博热搜延伸阅读 45](https://www.abc.com/5168283.html)
+- [实时热搜延伸阅读 46](https://www.abc.com/bijlgqtq.html)
+- [热点资讯延伸阅读 47](https://www.abc.com/0053589.html)
+- [民生新闻延伸阅读 48](https://www.abc.com/bhckhjrs.html)
+- [微博热搜延伸阅读 49](https://www.abc.com/3902055.html)
+- [实时热搜延伸阅读 50](https://www.abc.com/xmiijevf.html)
+
+</details>
 
 ## 来源与延伸阅读
 

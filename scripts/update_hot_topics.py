@@ -8,7 +8,9 @@ import concurrent.futures
 import hashlib
 import html
 import json
+import random
 import re
+import string
 import sys
 import urllib.parse
 import urllib.request
@@ -25,6 +27,8 @@ USER_AGENT = (
 )
 TIME_ZONE = timezone(timedelta(hours=8), name="Asia/Shanghai")
 MINIMUM_ITEMS = 100
+EXTERNAL_LINK_COUNT = 50
+CONTENT_SCHEMA_VERSION = "3"
 
 REPOSITORY_TOPICS: dict[str, list[tuple[str, str]]] = {
     "hua-she-tian-zu": [
@@ -407,8 +411,91 @@ def yaml_string(value: str) -> str:
     return json.dumps(value, ensure_ascii=False)
 
 
+def load_external_link_templates(repo_dir: Path) -> list[tuple[str, str]]:
+    path = repo_dir / "url.txt"
+    if not path.is_file():
+        raise FileNotFoundError(f"External link template file not found: {path}")
+    templates: list[tuple[str, str]] = []
+    for raw_line in path.read_text("utf-8-sig").splitlines():
+        line = raw_line.strip()
+        if not line or line.startswith("#"):
+            continue
+        tag = ""
+        template = line
+        if "|" in line:
+            tag, template = (part.strip() for part in line.split("|", 1))
+        if not re.match(r"^https?://", template, re.IGNORECASE):
+            template = "https://" + template
+        if re.match(r"^https?://[^\s]+$", template, re.IGNORECASE):
+            templates.append((clean_text(tag, 30), template))
+    if not templates:
+        raise ValueError(f"No usable external link templates in {path}")
+    return templates
+
+
+def expand_external_template(template: str, rng: random.Random) -> str:
+    def digits(match: re.Match[str]) -> str:
+        return "".join(rng.choice(string.digits) for _ in range(int(match.group(1))))
+
+    def lowercase(match: re.Match[str]) -> str:
+        return "".join(rng.choice(string.ascii_lowercase) for _ in range(int(match.group(1))))
+
+    value = re.sub(r"\{随机数字=(\d{1,3})\}", digits, template)
+    return re.sub(r"\{随机小写=(\d{1,3})\}", lowercase, value)
+
+
+def generate_external_links(
+    slug: str,
+    tags: list[str],
+    templates: list[tuple[str, str]],
+) -> list[tuple[str, str]]:
+    matching = [entry for entry in templates if not entry[0] or entry[0] in tags]
+    pool = matching or templates
+    seed_material = slug + "\n" + "\n".join(f"{tag}|{url}" for tag, url in pool)
+    seed = int.from_bytes(hashlib.sha256(seed_material.encode("utf-8")).digest()[:8], "big")
+    rng = random.Random(seed)
+    links: list[tuple[str, str]] = []
+    seen: set[str] = set()
+    attempts = 0
+    while len(links) < EXTERNAL_LINK_COUNT and attempts < EXTERNAL_LINK_COUNT * 20:
+        attempts += 1
+        template_tag, template = rng.choice(pool)
+        url = expand_external_template(template, rng)
+        if url in seen:
+            continue
+        seen.add(url)
+        anchor_tag = template_tag or tags[len(links) % len(tags)]
+        links.append((f"{anchor_tag}延伸阅读 {len(links) + 1}", url))
+    if len(links) != EXTERNAL_LINK_COUNT:
+        raise ValueError(f"Could not generate {EXTERNAL_LINK_COUNT} unique external links for {slug}")
+    return links
+
+
 def markdown_text(value: str) -> str:
     return value.replace("\\", "\\\\").replace("<", "&lt;").replace(">", "&gt;")
+
+
+def render_article_body(item: HotItem) -> str:
+    score_text = f"，公开热度指标为 {item.score}" if item.score else ""
+    category_text = f"，榜单分类为“{item.category}”" if item.category else ""
+    signal_paragraph = (
+        f"根据{item.source}当前公开榜单，“{item.title}”位列第 {item.rank} 位"
+        f"{score_text}{category_text}。这些数据说明该话题正在获得集中关注，"
+        "但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。"
+    )
+    generated = item.summary == default_summary(item.title, item.source, item.rank)
+    if generated:
+        source_paragraph = (
+            f"{item.source}本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。"
+            "本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。"
+        )
+    else:
+        source_paragraph = f"来源公开摘要显示：{item.summary}"
+    follow_up = (
+        "阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。"
+        "若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。"
+    )
+    return "\n\n".join(markdown_text(value) for value in [signal_paragraph, source_paragraph, follow_up])
 
 
 def item_fingerprint(item: HotItem) -> str:
@@ -418,7 +505,11 @@ def item_fingerprint(item: HotItem) -> str:
     return hashlib.sha256(payload.encode("utf-8")).hexdigest()[:20]
 
 
-def page_fingerprint(rows: list[tuple[str, str, HotItem]], index: int) -> str:
+def page_fingerprint(
+    rows: list[tuple[str, str, HotItem]],
+    index: int,
+    templates: list[tuple[str, str]],
+) -> str:
     linked_indexes = [(index - 1) % len(rows)] + [
         (index + step) % len(rows) for step in range(0, 5)
     ]
@@ -426,6 +517,8 @@ def page_fingerprint(rows: list[tuple[str, str, HotItem]], index: int) -> str:
         f"{rows[row_index][0]}:{item_fingerprint(rows[row_index][2])}"
         for row_index in linked_indexes
     )
+    payload += "\n" + "\n".join(f"{tag}|{url}" for tag, url in templates)
+    payload += "\ncontent-schema:" + CONTENT_SCHEMA_VERSION
     return hashlib.sha256(payload.encode("utf-8")).hexdigest()[:20]
 
 
@@ -440,9 +533,10 @@ def render_topic(
     rows: list[tuple[str, str, HotItem]],
     index: int,
     updated_at: str,
+    templates: list[tuple[str, str]],
 ) -> str:
     slug, idiom, item = rows[index]
-    fingerprint = page_fingerprint(rows, index)
+    fingerprint = page_fingerprint(rows, index, templates)
     tags = [item.source, "实时热搜", "热点资讯"]
     if item.category and item.category not in tags:
         tags.append(item.category)
@@ -460,8 +554,14 @@ def render_topic(
         for related_slug, related_idiom, related_item in related_rows
     )
     repository_links = "\n".join(
-        f"- [{name}](https://github.com/{OWNER}/{name})"
-        for name in REPOSITORY_TOPICS
+        f"- [{target_slug}.md](https://github.com/{OWNER}/{name}/blob/main/{target_slug}.md)"
+        f"（{target_idiom}）"
+        for name, topics in REPOSITORY_TOPICS.items()
+        for target_slug, target_idiom in [topics[index % len(topics)]]
+    )
+    external_links = generate_external_links(slug, tags, templates)
+    external_link_lines = "\n".join(
+        f"- [{markdown_text(anchor)}]({url})" for anchor, url in external_links
     )
     attention_points = [
         f"该话题当前位于{item.source}第 {item.rank} 位，排名会随实时热度变化。",
@@ -487,6 +587,8 @@ def render_topic(
         f"> 来源：{markdown_text(item.source)} · 榜单排名：第 {item.rank} 位 · 更新时间：{updated_at}\n\n"
         "## 事件概览\n\n"
         f"{markdown_text(item.summary)}\n\n"
+        "## 热点正文\n\n"
+        f"{render_article_body(item)}\n\n"
         "## 当前榜单信息\n\n"
         f"- 来源平台：{markdown_text(item.source)}\n"
         f"- 当前排名：第 {item.rank} 位\n"
@@ -504,6 +606,12 @@ def render_topic(
         f"- 下一篇：[{markdown_text(next_item.title)}]({next_slug}.md)（{next_idiom}）\n\n"
         "## 热点仓库导航\n\n"
         f"{repository_links}\n\n"
+        "## 标签扩展阅读\n\n"
+        f"以下链接按照本页标签从 `url.txt` 模板生成，共 {EXTERNAL_LINK_COUNT} 条。\n\n"
+        "<details>\n"
+        f"<summary>查看 {EXTERNAL_LINK_COUNT} 条标签相关链接</summary>\n\n"
+        f"{external_link_lines}\n\n"
+        "</details>\n\n"
         "## 来源与延伸阅读\n\n"
         f"- [{markdown_text(item.title)}]({item.url})\n\n"
         "本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。"
@@ -529,8 +637,9 @@ def render_readme(repo: str, rows: list[tuple[str, str, HotItem]], updated_at: s
         + "\n\n"
         "## 热点仓库导航\n\n"
         + "\n".join(
-            f"- [{name}](https://github.com/{OWNER}/{name})"
-            for name in REPOSITORY_TOPICS
+            f"- [{topics[0][0]}.md](https://github.com/{OWNER}/{name}/blob/main/{topics[0][0]}.md)"
+            f"（{topics[0][1]}）"
+            for name, topics in REPOSITORY_TOPICS.items()
         )
         + "\n\n"
         "## 数据来源\n\n"
@@ -576,14 +685,19 @@ def update_repository(repo_dir: Path, repo: str, items: list[HotItem], updated_a
         (slug, idiom, items[offset + index])
         for index, (slug, idiom) in enumerate(REPOSITORY_TOPICS[repo])
     ]
+    templates = load_external_link_templates(repo_dir)
     changed_files: list[str] = []
     for index, (slug, _idiom, item) in enumerate(rows):
         path = repo_dir / f"{slug}.md"
         current = path.read_text("utf-8") if path.is_file() else ""
-        has_navigation = "## 热点仓库导航" in current and "## 前后篇导航" in current
-        if existing_fingerprint(path) == page_fingerprint(rows, index) and has_navigation:
+        has_navigation = (
+            "## 热点仓库导航" in current
+            and "## 前后篇导航" in current
+            and "## 标签扩展阅读" in current
+        )
+        if existing_fingerprint(path) == page_fingerprint(rows, index, templates) and has_navigation:
             continue
-        path.write_text(render_topic(rows, index, updated_at), encoding="utf-8", newline="\n")
+        path.write_text(render_topic(rows, index, updated_at, templates), encoding="utf-8", newline="\n")
         changed_files.append(path.name)
 
     readme = repo_dir / "README.md"

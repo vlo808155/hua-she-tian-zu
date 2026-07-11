@@ -1,0 +1,2 @@
+www.abc.com/{随机数字=7}.html
+www.abc.com/{随机小写=8}.html
