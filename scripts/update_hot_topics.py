@@ -632,7 +632,12 @@ def render_topic(
     )
 
 
-def render_readme(repo: str, rows: list[tuple[str, str, HotItem]], updated_at: str) -> str:
+def render_readme(
+    repo: str,
+    rows: list[tuple[str, str, HotItem]],
+    updated_at: str,
+    archive_links: list[tuple[str, str]],
+) -> str:
     table = []
     for index, (slug, _idiom, item) in enumerate(rows, start=1):
         title = markdown_text(item.title).replace("|", "\\|")
@@ -648,6 +653,13 @@ def render_readme(repo: str, rows: list[tuple[str, str, HotItem]], updated_at: s
         "| ---: | --- | --- |\n"
         + "\n".join(table)
         + "\n\n"
+        "## 成语内容索引\n\n"
+        f"<details>\n<summary>展开 {len(archive_links)} 个成语页面</summary>\n\n"
+        + "\n".join(
+            f"- [{markdown_text(title)}]({filename})"
+            for filename, title in archive_links
+        )
+        + "\n\n</details>\n\n"
         "## 热点仓库导航\n\n"
         + "\n".join(
             f"- [{name} 热点内容](https://github.com/{OWNER}/{name}/blob/main/{topics[0][0]}.md)"
@@ -661,6 +673,7 @@ def render_readme(repo: str, rows: list[tuple[str, str, HotItem]], updated_at: s
         "- [知乎热榜](https://www.zhihu.com/hot)\n"
         "- [哔哩哔哩热门](https://www.bilibili.com/v/popular/all)\n\n"
         "本站不复制完整第三方文章。热点页面中的内容用于榜单索引，详情请访问原始来源。\n"
+        f"\n<!-- archive-count: {len(archive_links)} -->\n"
     )
 
 
@@ -698,6 +711,15 @@ def update_repository(repo_dir: Path, repo: str, items: list[HotItem], updated_a
         for index, (slug, idiom) in enumerate(REPOSITORY_TOPICS[repo])
     ]
     templates = load_external_link_templates(repo_dir)
+    managed_names = {f"{slug}.md" for slug, _idiom in REPOSITORY_TOPICS[repo]}
+    archive_links: list[tuple[str, str]] = []
+    for archive_path in sorted(repo_dir.glob("*.md"), key=lambda path: path.name):
+        if archive_path.name == "README.md" or archive_path.name in managed_names:
+            continue
+        content = archive_path.read_text("utf-8")
+        title_match = re.search(r"^#\s+(.+)$", content, re.MULTILINE)
+        title = clean_text(title_match.group(1) if title_match else archive_path.stem, 100)
+        archive_links.append((archive_path.name, title))
     changed_files: list[str] = []
     for index, (slug, _idiom, item) in enumerate(rows):
         path = repo_dir / f"{slug}.md"
@@ -709,8 +731,14 @@ def update_repository(repo_dir: Path, repo: str, items: list[HotItem], updated_a
         changed_files.append(path.name)
 
     readme = repo_dir / "README.md"
-    if changed_files or not readme.is_file():
-        readme.write_text(render_readme(repo, rows, updated_at), encoding="utf-8", newline="\n")
+    readme_content = readme.read_text("utf-8") if readme.is_file() else ""
+    archive_marker = f"<!-- archive-count: {len(archive_links)} -->"
+    if changed_files or archive_marker not in readme_content:
+        readme.write_text(
+            render_readme(repo, rows, updated_at, archive_links),
+            encoding="utf-8",
+            newline="\n",
+        )
         changed_files.append(readme.name)
     return {"changed": len(changed_files), "files": changed_files}
 
