@@ -1,2 +1,6 @@
-www.abc.com/{随机数字=7}.html
-www.abc.com/{随机小写=8}.html
+www.daogukj.com/{随机数字=7}
+www.daogukj.com/{随机小写=8}/
+www.movie.hkepx.cn/xiju/{随机数字=7}.htm
+www.play.hengshemaoyi.cn/kongbu/{随机数字=7}.htm
+www.movie.hkepx.cn/movie/{随机数字=7}.htm
+www.play.hengshemaoyi.cn/xiju/{随机数字=7}.htm
