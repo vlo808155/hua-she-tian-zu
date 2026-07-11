@@ -28,7 +28,7 @@ USER_AGENT = (
 TIME_ZONE = timezone(timedelta(hours=8), name="Asia/Shanghai")
 MINIMUM_ITEMS = 100
 EXTERNAL_LINK_COUNT = 50
-CONTENT_SCHEMA_VERSION = "5"
+CONTENT_SCHEMA_VERSION = "6"
 
 REPOSITORY_TOPICS: dict[str, list[tuple[str, str]]] = {
     "hua-she-tian-zu": [
@@ -442,7 +442,8 @@ def expand_external_template(template: str, rng: random.Random) -> str:
 
 def generate_external_links(
     slug: str,
-    title: str,
+    current_title: str,
+    all_items: list[HotItem],
     tags: list[str],
     templates: list[tuple[str, str]],
 ) -> list[tuple[str, str]]:
@@ -451,6 +452,15 @@ def generate_external_links(
     seed_material = slug + "\n" + "\n".join(f"{tag}|{url}" for tag, url in pool)
     seed = int.from_bytes(hashlib.sha256(seed_material.encode("utf-8")).digest()[:8], "big")
     rng = random.Random(seed)
+    available_titles = list(
+        dict.fromkeys(item.title for item in all_items if item.title != current_title)
+    )
+    if len(available_titles) < EXTERNAL_LINK_COUNT:
+        raise ValueError(
+            f"Only {len(available_titles)} unique external-link titles are available for {slug}"
+        )
+    rng.shuffle(available_titles)
+    selected_titles = available_titles[:EXTERNAL_LINK_COUNT]
     links: list[tuple[str, str]] = []
     seen: set[str] = set()
     attempts = 0
@@ -461,7 +471,7 @@ def generate_external_links(
         if url in seen:
             continue
         seen.add(url)
-        links.append((title, url))
+        links.append((selected_titles[len(links)], url))
     if len(links) != EXTERNAL_LINK_COUNT:
         raise ValueError(f"Could not generate {EXTERNAL_LINK_COUNT} unique external links for {slug}")
     return links
@@ -519,6 +529,20 @@ def page_fingerprint(
         f"{repo}:{slug}:{item_fingerprint(item)}"
         for repo, slug, item in cross_repository_items(all_items, index)
     )
+    current_title = rows[index][2].title
+    external_titles = list(
+        dict.fromkeys(item.title for item in all_items if item.title != current_title)
+    )
+    title_rng = random.Random(
+        int.from_bytes(
+            hashlib.sha256(
+                (rows[index][0] + "\n" + "\n".join(f"{tag}|{url}" for tag, url in templates)).encode("utf-8")
+            ).digest()[:8],
+            "big",
+        )
+    )
+    title_rng.shuffle(external_titles)
+    payload += "\n" + "\n".join(external_titles[:EXTERNAL_LINK_COUNT])
     payload += "\ncontent-schema:" + CONTENT_SCHEMA_VERSION
     return hashlib.sha256(payload.encode("utf-8")).hexdigest()[:20]
 
@@ -571,7 +595,7 @@ def render_topic(
         for target_repo, target_slug, target_item in cross_repository_items(all_items, index)
         for name_with_owner in [f"{OWNER}/{target_repo}"]
     )
-    external_links = generate_external_links(slug, item.title, tags, templates)
+    external_links = generate_external_links(slug, item.title, all_items, tags, templates)
     external_link_lines = "\n".join(
         f"- [{markdown_text(anchor)}]({url})" for anchor, url in external_links
     )
