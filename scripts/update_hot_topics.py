@@ -28,7 +28,7 @@ USER_AGENT = (
 TIME_ZONE = timezone(timedelta(hours=8), name="Asia/Shanghai")
 MINIMUM_ITEMS = 100
 EXTERNAL_LINK_COUNT = 50
-CONTENT_SCHEMA_VERSION = "6"
+CONTENT_SCHEMA_VERSION = "7"
 
 REPOSITORY_TOPICS: dict[str, list[tuple[str, str]]] = {
     "hua-she-tian-zu": [
@@ -421,7 +421,7 @@ def load_external_link_templates(repo_dir: Path) -> list[tuple[str, str]]:
         if "|" in line:
             tag, template = (part.strip() for part in line.split("|", 1))
         if not re.match(r"^https?://", template, re.IGNORECASE):
-            template = "https://" + template
+            template = "http://" + template
         if re.match(r"^https?://[^\s]+$", template, re.IGNORECASE):
             templates.append((clean_text(tag, 30), template))
     if not templates:

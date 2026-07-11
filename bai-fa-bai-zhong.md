@@ -2,11 +2,11 @@
 
 # 各地全力以赴防范台风巴威
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7617338 · 更新：2026-07-11T21:08:14+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7617839 · 更新：2026-07-11T21:13:48+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“各地全力以赴防范台风巴威”位列第 2 位，公开热度指标为 7617338。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“各地全力以赴防范台风巴威”位列第 2 位，公开热度指标为 7617839。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：今年第9号台风“巴威”逼近，各地各部门闻“风”而动、严阵以待，启动应急响应、强化隐患排查、做好转移避险，扎实做好防范应对工作，确保人民群众生命财产安全。
 
@@ -28,64 +28,64 @@
 - [巴威登陆地点范围再缩小](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
 - [曝25岁南非国脚自杀离世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
 - [功夫女足票房已破2亿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [长沙市体育局干部彭某某被停职](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [杭州地铁停运](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [上海天空](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [浙江海边掀起10多米巨浪](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](https://www.abc.com/nqtrukmw.html)
-- [日媒拆台日本火箭只飞了11米](https://www.abc.com/8032192.html)
-- [周星驰官宣星女郎雪野](https://www.abc.com/0636068.html)
-- [《大扫除是你的谎言》](https://www.abc.com/oynyfpao.html)
-- [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://www.abc.com/2687351.html)
-- [“26版西游记”团队回应爆火出圈](https://www.abc.com/yssglmnw.html)
-- [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://www.abc.com/7761626.html)
-- [知名主持人喷周星驰新电影：好难看](https://www.abc.com/1668943.html)
-- [HLE晋级MSI决赛](https://www.abc.com/goeilajl.html)
-- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/5462537.html)
-- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/9032909.html)
-- [曝余承东内部群发飙](https://www.abc.com/pswijfes.html)
-- [没有人！比我！更懂！重庆！](https://www.abc.com/4533914.html)
-- [杭州 台风](https://www.abc.com/zivndvey.html)
-- [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](https://www.abc.com/0162149.html)
-- [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](https://www.abc.com/mmqbzbcy.html)
-- [TF四代考核人气分](https://www.abc.com/gmqlectg.html)
-- [《下一个是谁》第七季（1）](https://www.abc.com/8588511.html)
-- [应对台风上海转移3.4万人](https://www.abc.com/skwymadn.html)
-- [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](https://www.abc.com/0792873.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/esxrqzkf.html)
-- [浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](https://www.abc.com/hwpzdsbm.html)
-- [浙江海边掀起10多米巨浪](https://www.abc.com/strvudgo.html)
-- [上海天空](https://www.abc.com/2716885.html)
-- [巴威即将登陆](https://www.abc.com/ijpbyniw.html)
-- [25岁南非国脚亚当斯自杀离世](https://www.abc.com/pkopfbtf.html)
-- [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](https://www.abc.com/yqovdlml.html)
-- [长沙市体育局干部彭某某被停职](https://www.abc.com/amqresxn.html)
-- [北京9区市民非必要不外出](https://www.abc.com/8287068.html)
-- [巴威最新位置](https://www.abc.com/7272061.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](https://www.abc.com/0199184.html)
-- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/4367190.html)
-- [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](https://www.abc.com/7471633.html)
-- [上海台风](https://www.abc.com/enjdrsxd.html)
-- [长沙霸占车位公职人员被停职](https://www.abc.com/3218402.html)
-- [吾从人族来，自当为人族竭尽全力！](https://www.abc.com/3244950.html)
-- [16岁高中生踢门玩闹后被捅杀](https://www.abc.com/3127547.html)
-- [杭州地铁停运](https://www.abc.com/4513201.html)
-- [台风来袭科学避险完整指南](https://www.abc.com/2105781.html)
-- [巴威过境日本 大树连根拔起雨横飞](https://www.abc.com/8108266.html)
-- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://www.abc.com/fhdoiehd.html)
-- [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](https://www.abc.com/7161775.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/kkokwzlk.html)
-- [教育部：“教师全面硕士化”系谣言](https://www.abc.com/kelobzca.html)
-- [小米澎程起售价预测](https://www.abc.com/hsagmjqg.html)
-- [功夫女足票房已破2亿](https://www.abc.com/5146085.html)
-- [发现中指的握笔茧消失了](https://www.abc.com/twckclgz.html)
-- [四川再发山洪灾害蓝色预警](https://www.abc.com/evitsdel.html)
-- [女儿女婿自杀后妈妈投身防性侵宣传](https://www.abc.com/6989055.html)
-- [朝鲜通报特大腐败犯罪](https://www.abc.com/6026484.html)
+- [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/5092775.html)
+- [北京暴雨红色预警](http://www.abc.com/oifdlxxo.html)
+- [15岁男生因女同桌送画遭围殴](http://www.abc.com/qqidebga.html)
+- [长征十号乙回收时为什么会冒出大量黑烟？](http://www.abc.com/9632159.html)
+- [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.abc.com/apzbyssw.html)
+- [杭州：台风影响期间非必要不外出](http://www.abc.com/ywoekvty.html)
+- [段奥娟这么瘦了](http://www.abc.com/heslbvgy.html)
+- [2026年温网男单半决赛，德约科维奇三盘不敌辛纳，全场只获一个破发点，未能复刻澳网逆转奇迹。如何评价？](http://www.abc.com/2027314.html)
+- [路怒症被反杀，真的很解气](http://www.abc.com/5060500.html)
+- [教育部：“教师全面硕士化”系谣言](http://www.abc.com/rjqblckg.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/7688887.html)
+- [台风巴威1小时走30到50公里](http://www.abc.com/8903428.html)
+- [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/3795547.html)
+- [巴威即将登陆](http://www.abc.com/npnaixkr.html)
+- [直击东北超：沈阳vs哈尔滨](http://www.abc.com/3144834.html)
+- [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/6656807.html)
+- [日本可回收火箭着陆成功 仅飞11米](http://www.abc.com/8132300.html)
+- [浙江海边掀起10多米巨浪](http://www.abc.com/zgbklhkl.html)
+- [去了一趟得克萨斯州。](http://www.abc.com/tripeyzl.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/5747684.html)
+- [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.abc.com/dlhordgb.html)
+- [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/sowwzwbq.html)
+- [无人机吊起2人神图系AI合成](http://www.abc.com/5863979.html)
+- [上海台风](http://www.abc.com/egpoqpjv.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/7103379.html)
+- [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/qpgmhwrd.html)
+- [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.abc.com/9831502.html)
+- [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/6123645.html)
+- [霸占车位女干部已停职](http://www.abc.com/1523297.html)
+- [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/7209295.html)
+- [金鳞岂是池中物，哄好岳母便化龙](http://www.abc.com/3242881.html)
+- [北京9区市民非必要不外出](http://www.abc.com/3451132.html)
+- [上海天空](http://www.abc.com/cncfsxui.html)
+- [杭州 台风](http://www.abc.com/sytixigm.html)
+- [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/9109527.html)
+- [150斤男记者在浙江沿海被吹到变形](http://www.abc.com/fpmvclqm.html)
+- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/7699488.html)
+- [巴威最新位置](http://www.abc.com/ijgpygxh.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/9095471.html)
+- [TF四代考核人气分](http://www.abc.com/tqrqkgjn.html)
+- [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/0348163.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/6471578.html)
+- [曝25岁南非国脚自杀离世](http://www.abc.com/0272668.html)
+- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/2197731.html)
+- [25岁南非国脚亚当斯自杀离世](http://www.abc.com/jemuwdgb.html)
+- [浙江湖州市长：全面进入战时状态](http://www.abc.com/8459634.html)
+- [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](http://www.abc.com/1007217.html)
+- [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/1150784.html)
+- [巴威登陆地点范围再缩小](http://www.abc.com/iqvbmekq.html)
+- [曝余承东内部群发飙](http://www.abc.com/nhotwnvr.html)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4dce901c0fbe826b9738 -->
+<!-- content-fingerprint: 1e0dbdce637b033dfcba -->
