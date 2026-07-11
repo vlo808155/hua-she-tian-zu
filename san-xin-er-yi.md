@@ -2,11 +2,11 @@
 
 # 巴威实时路径
 
-> 来源：今日头条热榜 · 排名：第 1 位 · 热度：96635870 · 分类：热门事件 · 更新：2026-07-11T21:13:48+08:00
+> 来源：今日头条热榜 · 排名：第 1 位 · 热度：96771612 · 分类：热门事件 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“巴威实时路径”位列第 1 位，公开热度指标为 96635870，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“巴威实时路径”位列第 1 位，公开热度指标为 96771612，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -37,12 +37,12 @@
 <summary>展开更多相关内容</summary>
 
 - [杭州 台风](http://www.abc.com/0304819.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/qaslspiv.html)
+- [巴威路线东移](http://www.abc.com/qaslspiv.html)
 - [周星驰官宣星女郎雪野](http://www.abc.com/6444339.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/qopsqskz.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/qopsqskz.html)
 - [迪丽热巴工作室发的live图](http://www.abc.com/7942908.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/6158481.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/oeznmrlz.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/oeznmrlz.html)
 - [巴威即将登陆](http://www.abc.com/6479286.html)
 - [霸占车位女干部已停职](http://www.abc.com/mtifmfdv.html)
 - [HLE晋级MSI决赛](http://www.abc.com/cxdmdqlf.html)
@@ -85,7 +85,7 @@
 - [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/fqekipux.html)
 - [北京暴雨红色预警](http://www.abc.com/7035632.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/2308662.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/hdbixtsx.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/hdbixtsx.html)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 03df0f65483857c539b8 -->
+<!-- content-fingerprint: bc73d95a0d242aed3923 -->

@@ -2,7 +2,7 @@
 
 # 迪丽热巴工作室发的live图
 
-> 来源：微博热搜 · 排名：第 4 位 · 热度：1683532 · 分类：电影 · 更新：2026-07-11T21:13:48+08:00
+> 来源：微博热搜 · 排名：第 4 位 · 热度：1683532 · 分类：电影 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
@@ -27,7 +27,7 @@
 
 - [巴威最新位置](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
 - [杭州 台风](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [巴威路线东移](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [哈兰德被评“世界第一玩得起的人”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
@@ -41,16 +41,16 @@
 - [霸占车位女干部已停职](http://www.abc.com/pjslktjq.html)
 - [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.abc.com/ecyxusod.html)
 - [上海台风](http://www.abc.com/6587637.html)
-- [巴威路线东移](http://www.abc.com/6458165.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/6458165.html)
 - [2026年温网男单半决赛，德约科维奇三盘不敌辛纳，全场只获一个破发点，未能复刻澳网逆转奇迹。如何评价？](http://www.abc.com/2099507.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/0889720.html)
 - [巴威即将登陆](http://www.abc.com/5638363.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/0680452.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/0680452.html)
 - [日媒拆台日本火箭只飞了11米](http://www.abc.com/osiwzxhc.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/qunqfnnj.html)
 - [北京暴雨红色预警](http://www.abc.com/9344277.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/exqkaigl.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/2380983.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/exqkaigl.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/2380983.html)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.abc.com/3135729.html)
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/7897730.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/1033384.html)
@@ -59,7 +59,7 @@
 - [功夫女足票房已破2亿](http://www.abc.com/4983931.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/pxtiibkc.html)
 - [巴威登陆地点范围再缩小](http://www.abc.com/9856973.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/wqywhmli.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/wqywhmli.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/2410475.html)
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/8160907.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/4387421.html)
@@ -72,14 +72,14 @@
 - [当我问我妈不结婚可以吗](http://www.abc.com/2390086.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/1266695.html)
 - [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/btfqlgml.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/xvwerlby.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/xvwerlby.html)
 - [25岁南非国脚亚当斯自杀离世](http://www.abc.com/sczaugho.html)
 - [没有人！比我！更懂！重庆！](http://www.abc.com/0049935.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/7921913.html)
 - [浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](http://www.abc.com/kdqzvynj.html)
 - [浙江湖州市长：全面进入战时状态](http://www.abc.com/5859900.html)
 - [段奥娟这么瘦了](http://www.abc.com/ahwohaif.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/0593767.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/0593767.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/lrmymtdt.html)
 - [知名主持人喷周星驰新电影：好难看](http://www.abc.com/hhtsxcrd.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/5053406.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 232822ad8f4a3646b0d7 -->
+<!-- content-fingerprint: 41890338553180bdfcc3 -->

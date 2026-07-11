@@ -2,7 +2,7 @@
 
 # 巴威登陆地点范围再缩小
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7809400 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7809400 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
@@ -26,10 +26,10 @@
 ## 站内推荐
 
 - [各地全力以赴防范台风巴威](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [南非25岁世界杯参赛球员去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [长沙霸占车位公职人员被停职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
 - [周星驰官宣星女郎雪野](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
 - [广西贵港原副市长潘汉胜被双开](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [“26版西游记”团队回应爆火出圈](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [博主：泽连斯基避谈乌国内战损情况](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -41,7 +41,7 @@
 - [25岁南非国脚亚当斯自杀离世](http://www.abc.com/9769225.html)
 - [教育部：“教师全面硕士化”系谣言](http://www.abc.com/6754651.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/6967040.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/knhzycvn.html)
+- [巴威路线东移](http://www.abc.com/knhzycvn.html)
 - [上海天空](http://www.abc.com/6614272.html)
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/5611089.html)
 - [Jennie神图诞生了](http://www.abc.com/isglulsz.html)
@@ -67,7 +67,7 @@
 - [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/obchxjqd.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/ejwopljx.html)
 - [《下一个是谁》第七季（1）](http://www.abc.com/3470048.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/qguhrqgh.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/qguhrqgh.html)
 - [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/zleztaji.html)
 - [浙江海边掀起10多米巨浪](http://www.abc.com/jyxclcon.html)
 - [15岁男生因女同桌送画遭围殴](http://www.abc.com/vhmgagnm.html)
@@ -76,7 +76,7 @@
 - [小米澎程起售价预测](http://www.abc.com/gzleybrr.html)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.abc.com/5375233.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/ukebanrq.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/7577470.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/7577470.html)
 - [巴威即将登陆](http://www.abc.com/hwcrkudt.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/7026734.html)
 - [台风来袭科学避险完整指南](http://www.abc.com/ptqeiraz.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 79c53feeb53adb3079d8 -->
+<!-- content-fingerprint: a3bca2ab3902ca0f82dc -->

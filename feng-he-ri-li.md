@@ -2,7 +2,7 @@
 
 # 浙江惊现“台风霞”粉紫色天空
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7521500 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7521500 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
@@ -29,7 +29,7 @@
 - [曝余承东内部群发飙](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
 - [HLE晋级MSI决赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
 - [杭州：台风影响期间非必要不外出](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [远炸近攻 乌军对俄放两大招意欲何为](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [A股一周熊股出炉：最熊股跌超84%](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
@@ -41,7 +41,7 @@
 - [杭州：台风影响期间非必要不外出](http://www.abc.com/7331559.html)
 - [台风来袭科学避险完整指南](http://www.abc.com/1791312.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/7058345.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/uezrecmx.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/uezrecmx.html)
 - [上海台风](http://www.abc.com/ecejrmsd.html)
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.abc.com/cqpffxxw.html)
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.abc.com/wfbdzckj.html)
@@ -54,11 +54,11 @@
 - [无人机吊起2人神图系AI合成](http://www.abc.com/sfnijzzm.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/6246995.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/9275301.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/xmsvwfyt.html)
+- [巴威路线东移](http://www.abc.com/xmsvwfyt.html)
 - [15岁男生因女同桌送画遭围殴](http://www.abc.com/gvcmwlku.html)
 - [巴威最新位置](http://www.abc.com/1200152.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/7752334.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/bizjvbpk.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/bizjvbpk.html)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](http://www.abc.com/mpzkinfa.html)
 - [《大扫除是你的谎言》](http://www.abc.com/5954853.html)
 - [曝余承东内部群发飙](http://www.abc.com/2938586.html)
@@ -71,7 +71,7 @@
 - [教育部：“教师全面硕士化”系谣言](http://www.abc.com/wojntsti.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/osflkbfn.html)
 - [Jennie神图诞生了](http://www.abc.com/2632341.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/fqyrfthw.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/fqyrfthw.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/nssrbvoj.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/0802562.html)
 - [巴威即将登陆](http://www.abc.com/0889119.html)
@@ -80,7 +80,7 @@
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](http://www.abc.com/miitfwuz.html)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.abc.com/9587326.html)
 - [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/zesguclb.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/iczckecq.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/iczckecq.html)
 - [海水倒灌](http://www.abc.com/3391911.html)
 - [知名主持人喷周星驰新电影：好难看](http://www.abc.com/bikczdqy.html)
 - [北京暴雨红色预警](http://www.abc.com/zhjdekiw.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 563aff379dd60a5d0574 -->
+<!-- content-fingerprint: 58aaebb00e4033ac249f -->

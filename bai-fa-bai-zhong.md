@@ -2,7 +2,7 @@
 
 # 各地全力以赴防范台风巴威
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7617839 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7617839 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
@@ -46,7 +46,7 @@
 - [2026年温网男单半决赛，德约科维奇三盘不敌辛纳，全场只获一个破发点，未能复刻澳网逆转奇迹。如何评价？](http://www.abc.com/2027314.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/5060500.html)
 - [教育部：“教师全面硕士化”系谣言](http://www.abc.com/rjqblckg.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/7688887.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/7688887.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/8903428.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/3795547.html)
 - [巴威即将登陆](http://www.abc.com/npnaixkr.html)
@@ -60,7 +60,7 @@
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/sowwzwbq.html)
 - [无人机吊起2人神图系AI合成](http://www.abc.com/5863979.html)
 - [上海台风](http://www.abc.com/egpoqpjv.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/7103379.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/7103379.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/qpgmhwrd.html)
 - [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.abc.com/9831502.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/6123645.html)
@@ -74,10 +74,10 @@
 - [150斤男记者在浙江沿海被吹到变形](http://www.abc.com/fpmvclqm.html)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/7699488.html)
 - [巴威最新位置](http://www.abc.com/ijgpygxh.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/9095471.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/9095471.html)
 - [TF四代考核人气分](http://www.abc.com/tqrqkgjn.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/0348163.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/6471578.html)
+- [巴威路线东移](http://www.abc.com/6471578.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/0272668.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/2197731.html)
 - [25岁南非国脚亚当斯自杀离世](http://www.abc.com/jemuwdgb.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1e0dbdce637b033dfcba -->
+<!-- content-fingerprint: c4f1dc53d4c659a661ef -->

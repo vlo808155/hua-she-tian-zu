@@ -2,7 +2,7 @@
 
 # 台风来袭科学避险完整指南
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：1885214 · 分类：国内时政 · 更新：2026-07-11T21:13:48+08:00
+> 来源：微博热搜 · 排名：第 3 位 · 热度：1885214 · 分类：国内时政 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
@@ -27,7 +27,7 @@
 
 - [上海台风](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
 - [当我问我妈不结婚可以吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [哈兰德被评“世界第一玩得起的人”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [应对台风上海转移3.4万人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
@@ -40,14 +40,14 @@
 - [曝25岁南非国脚自杀离世](http://www.abc.com/4613855.html)
 - [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/9183037.html)
 - [巴威登陆地点范围再缩小](http://www.abc.com/pypahgky.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/jytfqpow.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/jytfqpow.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/uxkfkfho.html)
 - [如何评价凡人修仙传182集，慕兰之战第六集？](http://www.abc.com/1292019.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/0328597.html)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.abc.com/vyluhxhm.html)
 - [直击东北超：沈阳vs哈尔滨](http://www.abc.com/bhmvtupo.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/fhhcickd.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/cwjkseva.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/cwjkseva.html)
 - [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](http://www.abc.com/qxdvjvpi.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/0239967.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/teityaap.html)
@@ -63,7 +63,7 @@
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/skqcamqx.html)
 - [长沙市体育局干部彭某某被停职](http://www.abc.com/9546662.html)
 - [霸占车位女干部已停职](http://www.abc.com/juvaihbh.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/5821364.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/5821364.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/xuymzdxf.html)
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.abc.com/7431432.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/jwkjwpml.html)
@@ -73,14 +73,14 @@
 - [巴威实时路径](http://www.abc.com/5611645.html)
 - [日媒拆台日本火箭只飞了11米](http://www.abc.com/uegtzzpb.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/3455946.html)
-- [巴威路线东移](http://www.abc.com/mecotsgn.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/mecotsgn.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/4022308.html)
 - [功夫女足票房已破2亿](http://www.abc.com/8134921.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/mxypkrsj.html)
 - [15岁男生因女同桌送画遭围殴](http://www.abc.com/7488244.html)
 - [周星驰官宣星女郎雪野](http://www.abc.com/qhcdiojv.html)
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/sehlbilg.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/4682370.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/4682370.html)
 - [海水倒灌](http://www.abc.com/2094661.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/levhxddu.html)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/pkijwakf.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0f5f9381d3c8b85124d8 -->
+<!-- content-fingerprint: 5b204357bc77cb318ff9 -->

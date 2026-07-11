@@ -2,7 +2,7 @@
 
 # 台风巴威实时路径
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7712462 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7712462 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
@@ -28,7 +28,7 @@
 - [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
 - [海水倒灌](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
 - [段奥娟这么瘦了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [A股一周熊股出炉：最熊股跌超84%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [远炸近攻 乌军对俄放两大招意欲何为](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
 - [前瞻：三狮军团能否锁死哈兰德](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
@@ -39,9 +39,9 @@
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/9154082.html)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/rsmyvzxz.html)
 - [小米澎程起售价预测](http://www.abc.com/3016366.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/2379688.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/2379688.html)
 - [巴威最新位置](http://www.abc.com/sfxkyety.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/9607010.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/9607010.html)
 - [上海台风](http://www.abc.com/0050693.html)
 - [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](http://www.abc.com/7979185.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/sttwwnfm.html)
@@ -68,9 +68,9 @@
 - [知名主持人喷周星驰新电影：好难看](http://www.abc.com/mjzrhzbr.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/7943107.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/ukryrhbd.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/zkrklvzq.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/zkrklvzq.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/nczapeod.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/8878563.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/8878563.html)
 - [大雨中吃盒饭的消防员找到了](http://www.abc.com/6486532.html)
 - [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](http://www.abc.com/tyxkkrfg.html)
 - [直击东北超：沈阳vs哈尔滨](http://www.abc.com/1501091.html)
@@ -78,13 +78,13 @@
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/zonxtqhd.html)
 - [浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](http://www.abc.com/boevvwdt.html)
 - [周星驰官宣星女郎雪野](http://www.abc.com/3537644.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/jbepubtd.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/jbepubtd.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/5834302.html)
 - [日本可回收火箭着陆成功 仅飞11米](http://www.abc.com/1401370.html)
 - [没有人！比我！更懂！重庆！](http://www.abc.com/zgjicxsv.html)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.abc.com/iducgoap.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/6419437.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/2649606.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/6419437.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/2649606.html)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/rzoreagn.html)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e8de6e7ca13c72264218 -->
+<!-- content-fingerprint: b905458f8f4ed0c6f162 -->

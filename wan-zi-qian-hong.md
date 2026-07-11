@@ -2,11 +2,11 @@
 
 # 暑期防汛科普小知识请查收
 
-> 来源：今日头条热榜 · 排名：第 3 位 · 热度：79118759 · 分类：新事件上榜 · 更新：2026-07-11T21:13:48+08:00
+> 来源：今日头条热榜 · 排名：第 3 位 · 热度：79229895 · 分类：新事件上榜 · 更新：2026-07-11T21:14:24+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“暑期防汛科普小知识请查收”位列第 3 位，公开热度指标为 79118759，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“暑期防汛科普小知识请查收”位列第 3 位，公开热度指标为 79229895，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -43,7 +43,7 @@
 - [《大扫除是你的谎言》](http://www.abc.com/vwwyowbw.html)
 - [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](http://www.abc.com/mifalnhu.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/tpbkbvtc.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/8278083.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/8278083.html)
 - [曝余承东内部群发飙](http://www.abc.com/7646870.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/mzvcfuxp.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/2885244.html)
@@ -53,7 +53,7 @@
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/6033485.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/4253838.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/5193178.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/hcftznrb.html)
+- [巴威路线东移](http://www.abc.com/hcftznrb.html)
 - [巴威登陆地点范围再缩小](http://www.abc.com/4288343.html)
 - [巴威即将登陆](http://www.abc.com/7799606.html)
 - [上海台风](http://www.abc.com/xcypqseu.html)
@@ -63,14 +63,14 @@
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/8027331.html)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.abc.com/1568887.html)
 - [日本可回收火箭着陆成功 仅飞11米](http://www.abc.com/9792236.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/dhhhlepk.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/dhhhlepk.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/0630132.html)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.abc.com/8400191.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/bhciblyh.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/bhciblyh.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/1706719.html)
 - [巴威实时路径](http://www.abc.com/mmwvkdam.html)
 - [海水倒灌](http://www.abc.com/qyrbhuti.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/ftgnbamo.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/ftgnbamo.html)
 - [没有人！比我！更懂！重庆！](http://www.abc.com/2392466.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/iqgaynjr.html)
 - [台风巴威实时路径](http://www.abc.com/7954378.html)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [暑期防汛科普小知识请查收](https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%22202607112113480D73E291302E867138F2%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [暑期防汛科普小知识请查收](https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%22202607112114234D03B9FF8A275D8C32C8%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e29deda2fd9f711f4e82 -->
+<!-- content-fingerprint: 96f4949bdfadc9eee37c -->
