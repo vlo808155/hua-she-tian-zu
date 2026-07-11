@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E5%85%A8%E5%9B%BD%E7%94%B5%E5%8A%9B%E5%BA%94%E6%80%A5%E6%94%AF%E6%8F%B4%E8%83%BD%E5%8A%9B%E5%A4%A7%E5%B9%85%E6%8F%90%E5%8D%87"
 rank: 3
-updated_at: "2026-07-11T20:44:20+08:00"
-content_fingerprint: "d04c6cff2c1214449550"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "b434099fd414b64238e8"
 ---
 
 [热点索引](README.md) / 千军万马 / 全国电力应急支援能力大幅提升
 
 # 全国电力应急支援能力大幅提升
 
-> 来源：微博热搜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:44:20+08:00
+> 来源：微博热搜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "d04c6cff2c1214449550"
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“全国电力应急支援能力大幅提升”位列第 3 位，公开热度指标为 2000677，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“全国电力应急支援能力大幅提升”位列第 3 位，公开热度指标为 2086245，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -36,7 +36,7 @@ content_fingerprint: "d04c6cff2c1214449550"
 
 - 来源平台：微博热搜
 - 当前排名：第 3 位
-- 热度：2000677
+- 热度：2086245
 - 分类：国内时政
 - 固定索引：千军万马（qian-jun-wan-ma）
 
@@ -77,56 +77,56 @@ content_fingerprint: "d04c6cff2c1214449550"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [微博热搜延伸阅读 1](https://www.abc.com/0167647.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/8767237.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/9108749.html)
-- [国内时政延伸阅读 4](https://www.abc.com/5311567.html)
-- [微博热搜延伸阅读 5](https://www.abc.com/etrbllkj.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/7534804.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/4047902.html)
-- [国内时政延伸阅读 8](https://www.abc.com/indqnvca.html)
-- [微博热搜延伸阅读 9](https://www.abc.com/xnnwbmdd.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/3005261.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/5995008.html)
-- [国内时政延伸阅读 12](https://www.abc.com/dgifhfcp.html)
-- [微博热搜延伸阅读 13](https://www.abc.com/4280797.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/deppesaz.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/2538796.html)
-- [国内时政延伸阅读 16](https://www.abc.com/1507069.html)
-- [微博热搜延伸阅读 17](https://www.abc.com/lgmxtjqe.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/1683148.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/ypsvyekw.html)
-- [国内时政延伸阅读 20](https://www.abc.com/3885263.html)
-- [微博热搜延伸阅读 21](https://www.abc.com/szayaycu.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/0360749.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/prdwrzre.html)
-- [国内时政延伸阅读 24](https://www.abc.com/9100925.html)
-- [微博热搜延伸阅读 25](https://www.abc.com/mldltplx.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/kevbbfkh.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/dweyraej.html)
-- [国内时政延伸阅读 28](https://www.abc.com/lsudhgic.html)
-- [微博热搜延伸阅读 29](https://www.abc.com/4305857.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/fazkfstj.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/mqrefwbz.html)
-- [国内时政延伸阅读 32](https://www.abc.com/bevsrksn.html)
-- [微博热搜延伸阅读 33](https://www.abc.com/6141474.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/3893389.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/hxvnwlvn.html)
-- [国内时政延伸阅读 36](https://www.abc.com/9919427.html)
-- [微博热搜延伸阅读 37](https://www.abc.com/zautnsni.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/qazmqqsn.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/8520526.html)
-- [国内时政延伸阅读 40](https://www.abc.com/4959486.html)
-- [微博热搜延伸阅读 41](https://www.abc.com/7922475.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/1387339.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/2846858.html)
-- [国内时政延伸阅读 44](https://www.abc.com/xxfcrcct.html)
-- [微博热搜延伸阅读 45](https://www.abc.com/lvqxobwt.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/otystzch.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/3194274.html)
-- [国内时政延伸阅读 48](https://www.abc.com/vdufjfwq.html)
-- [微博热搜延伸阅读 49](https://www.abc.com/jgpowjfx.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/muvxwkpx.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/0167647.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/8767237.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/9108749.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/5311567.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/etrbllkj.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/7534804.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/4047902.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/indqnvca.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/xnnwbmdd.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/3005261.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/5995008.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/dgifhfcp.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/4280797.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/deppesaz.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/2538796.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/1507069.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/lgmxtjqe.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/1683148.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/ypsvyekw.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/3885263.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/szayaycu.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/0360749.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/prdwrzre.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/9100925.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/mldltplx.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/kevbbfkh.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/dweyraej.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/lsudhgic.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/4305857.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/fazkfstj.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/mqrefwbz.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/bevsrksn.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/6141474.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/3893389.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/hxvnwlvn.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/9919427.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/zautnsni.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/qazmqqsn.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/8520526.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/4959486.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/7922475.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/1387339.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/2846858.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/xxfcrcct.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/lvqxobwt.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/otystzch.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/3194274.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/vdufjfwq.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/jgpowjfx.html)
+- [全国电力应急支援能力大幅提升](https://www.abc.com/muvxwkpx.html)
 
 </details>
 

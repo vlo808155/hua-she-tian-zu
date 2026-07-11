@@ -2,18 +2,18 @@
 
 实时热点内容索引。页面采集公开榜单的标题、摘要、排名与来源链接，每 10 分钟检查一次，仅在榜单内容变化时提交更新。
 
-最后更新：2026-07-11T20:44:20+08:00
+最后更新：2026-07-11T20:50:44+08:00
 
 | 序号 | 热点标题 | 来源 | 固定成语索引 |
 | ---: | --- | --- | --- |
 | 1 | [巴威登陆地点范围再缩小](hua-she-tian-zu.md) | 百度热搜 | 画蛇添足 / `hua-she-tian-zu` |
-| 2 | [巴威最新位置](yi-xin-yi-yi.md) | 微博热搜 | 一心一意 / `yi-xin-yi-yi` |
+| 2 | [上海台风](yi-xin-yi-yi.md) | 微博热搜 | 一心一意 / `yi-xin-yi-yi` |
 | 3 | [巴威实时路径](san-xin-er-yi.md) | 今日头条热榜 | 三心二意 / `san-xin-er-yi` |
 | 4 | [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](si-hai-wei-jia.md) | 知乎热榜 | 四海为家 / `si-hai-wei-jia` |
 | 5 | [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](wu-gu-feng-deng.md) | 哔哩哔哩热门 | 五谷丰登 / `wu-gu-feng-deng` |
 | 6 | [巴威逼近 上海已紧急撤离3.4万人](liu-shen-wu-zhu.md) | 百度热搜 | 六神无主 / `liu-shen-wu-zhu` |
-| 7 | [上海台风](qi-shang-ba-xia.md) | 微博热搜 | 七上八下 / `qi-shang-ba-xia` |
-| 8 | [巴威登陆地点有变](ba-mian-ling-long.md) | 今日头条热榜 | 八面玲珑 / `ba-mian-ling-long` |
+| 7 | [巴威最新位置](qi-shang-ba-xia.md) | 微博热搜 | 七上八下 / `qi-shang-ba-xia` |
+| 8 | [巴威即将登陆](ba-mian-ling-long.md) | 今日头条热榜 | 八面玲珑 / `ba-mian-ling-long` |
 | 9 | [你会去看周星驰的新电影《功夫女足》吗？](jiu-niu-yi-mao.md) | 知乎热榜 | 九牛一毛 / `jiu-niu-yi-mao` |
 | 10 | [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](shi-quan-shi-mei.md) | 哔哩哔哩热门 | 十全十美 / `shi-quan-shi-mei` |
 | 11 | [各地全力以赴防范台风巴威](bai-fa-bai-zhong.md) | 百度热搜 | 百发百中 / `bai-fa-bai-zhong` |

@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%B7%B4%E5%A8%81%E9%80%BC%E8%BF%91+%E4%B8%8A%E6%B5%B7%E5%B7%B2%E7%B4%A7%E6%80%A5%E6%92%A4%E7%A6%BB3.4%E4%B8%87%E4%BA%BA&sa=fyb_news&rsv_dl=fyb_news"
 rank: 1
-updated_at: "2026-07-11T20:44:20+08:00"
-content_fingerprint: "564b0321ea2a5ea7c977"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "c90589a2a6be238a5566"
 ---
 
 [热点索引](README.md) / 六神无主 / 巴威逼近 上海已紧急撤离3.4万人
 
 # 巴威逼近 上海已紧急撤离3.4万人
 
-> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:44:20+08:00
+> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -25,7 +25,7 @@ content_fingerprint: "564b0321ea2a5ea7c977"
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“巴威逼近 上海已紧急撤离3.4万人”位列第 1 位，公开热度指标为 7713144。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“巴威逼近 上海已紧急撤离3.4万人”位列第 1 位，公开热度指标为 7713719。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：台风“巴威”临近，上海市应急部门11日上午已开始组织浦东、奉贤、金山等沿海地区及临港新片区、化工区、洋山港等危险区域人员实施转移撤离，截至12时已撤离3.4万人。
 
@@ -35,7 +35,7 @@ content_fingerprint: "564b0321ea2a5ea7c977"
 
 - 来源平台：百度热搜
 - 当前排名：第 1 位
-- 热度：7713144
+- 热度：7713719
 - 固定索引：六神无主（liu-shen-wu-zhu）
 
 ## 阅读关注点
@@ -50,15 +50,15 @@ content_fingerprint: "564b0321ea2a5ea7c977"
 
 ## 相关热点
 
-- [上海台风](qi-shang-ba-xia.md)（七上八下）
-- [巴威登陆地点有变](ba-mian-ling-long.md)（八面玲珑）
+- [巴威最新位置](qi-shang-ba-xia.md)（七上八下）
+- [巴威即将登陆](ba-mian-ling-long.md)（八面玲珑）
 - [你会去看周星驰的新电影《功夫女足》吗？](jiu-niu-yi-mao.md)（九牛一毛）
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](shi-quan-shi-mei.md)（十全十美）
 
 ## 前后篇导航
 
 - 上一篇：[【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](wu-gu-feng-deng.md)（五谷丰登）
-- 下一篇：[上海台风](qi-shang-ba-xia.md)（七上八下）
+- 下一篇：[巴威最新位置](qi-shang-ba-xia.md)（七上八下）
 
 ## 热点仓库导航
 
@@ -75,56 +75,56 @@ content_fingerprint: "564b0321ea2a5ea7c977"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [百度热搜延伸阅读 1](https://www.abc.com/5902785.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/8113529.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/4852922.html)
-- [百度热搜延伸阅读 4](https://www.abc.com/gxydvnde.html)
-- [实时热搜延伸阅读 5](https://www.abc.com/3267943.html)
-- [热点资讯延伸阅读 6](https://www.abc.com/sslmwxfa.html)
-- [百度热搜延伸阅读 7](https://www.abc.com/emaxipwt.html)
-- [实时热搜延伸阅读 8](https://www.abc.com/1711566.html)
-- [热点资讯延伸阅读 9](https://www.abc.com/kvpickgr.html)
-- [百度热搜延伸阅读 10](https://www.abc.com/7285580.html)
-- [实时热搜延伸阅读 11](https://www.abc.com/gopnxzrp.html)
-- [热点资讯延伸阅读 12](https://www.abc.com/8716333.html)
-- [百度热搜延伸阅读 13](https://www.abc.com/qabrsbmi.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/ijbjsmdg.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/7808995.html)
-- [百度热搜延伸阅读 16](https://www.abc.com/2154809.html)
-- [实时热搜延伸阅读 17](https://www.abc.com/eppbjpad.html)
-- [热点资讯延伸阅读 18](https://www.abc.com/cusbnzqq.html)
-- [百度热搜延伸阅读 19](https://www.abc.com/cynamqkf.html)
-- [实时热搜延伸阅读 20](https://www.abc.com/pcueezer.html)
-- [热点资讯延伸阅读 21](https://www.abc.com/2249803.html)
-- [百度热搜延伸阅读 22](https://www.abc.com/poslsebe.html)
-- [实时热搜延伸阅读 23](https://www.abc.com/mudzvjhh.html)
-- [热点资讯延伸阅读 24](https://www.abc.com/7352113.html)
-- [百度热搜延伸阅读 25](https://www.abc.com/jsuuapqm.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/jlzujuui.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/6918176.html)
-- [百度热搜延伸阅读 28](https://www.abc.com/fdnoidcq.html)
-- [实时热搜延伸阅读 29](https://www.abc.com/8084848.html)
-- [热点资讯延伸阅读 30](https://www.abc.com/3788923.html)
-- [百度热搜延伸阅读 31](https://www.abc.com/2772771.html)
-- [实时热搜延伸阅读 32](https://www.abc.com/tdztbdjg.html)
-- [热点资讯延伸阅读 33](https://www.abc.com/vkmzuwlv.html)
-- [百度热搜延伸阅读 34](https://www.abc.com/5590851.html)
-- [实时热搜延伸阅读 35](https://www.abc.com/btvhakcc.html)
-- [热点资讯延伸阅读 36](https://www.abc.com/8211188.html)
-- [百度热搜延伸阅读 37](https://www.abc.com/8546187.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/hknmonsw.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/kjfcobsk.html)
-- [百度热搜延伸阅读 40](https://www.abc.com/pkfivpwh.html)
-- [实时热搜延伸阅读 41](https://www.abc.com/wtimgzbp.html)
-- [热点资讯延伸阅读 42](https://www.abc.com/xsknxmbt.html)
-- [百度热搜延伸阅读 43](https://www.abc.com/8904139.html)
-- [实时热搜延伸阅读 44](https://www.abc.com/kgczcyfw.html)
-- [热点资讯延伸阅读 45](https://www.abc.com/jfcbzfyo.html)
-- [百度热搜延伸阅读 46](https://www.abc.com/9535281.html)
-- [实时热搜延伸阅读 47](https://www.abc.com/kjrbwibn.html)
-- [热点资讯延伸阅读 48](https://www.abc.com/eknevqcr.html)
-- [百度热搜延伸阅读 49](https://www.abc.com/6049874.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/rauqswkk.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/5902785.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/8113529.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/4852922.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/gxydvnde.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/3267943.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/sslmwxfa.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/emaxipwt.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/1711566.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/kvpickgr.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/7285580.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/gopnxzrp.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/8716333.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/qabrsbmi.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/ijbjsmdg.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/7808995.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/2154809.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/eppbjpad.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/cusbnzqq.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/cynamqkf.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/pcueezer.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/2249803.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/poslsebe.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/mudzvjhh.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/7352113.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/jsuuapqm.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/jlzujuui.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/6918176.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/fdnoidcq.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/8084848.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/3788923.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/2772771.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/tdztbdjg.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/vkmzuwlv.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/5590851.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/btvhakcc.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/8211188.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/8546187.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/hknmonsw.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/kjfcobsk.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/pkfivpwh.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/wtimgzbp.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/xsknxmbt.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/8904139.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/kgczcyfw.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/jfcbzfyo.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/9535281.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/kjrbwibn.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/eknevqcr.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/6049874.html)
+- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/rauqswkk.html)
 
 </details>
 

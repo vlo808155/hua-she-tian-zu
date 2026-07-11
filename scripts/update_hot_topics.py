@@ -28,7 +28,7 @@ USER_AGENT = (
 TIME_ZONE = timezone(timedelta(hours=8), name="Asia/Shanghai")
 MINIMUM_ITEMS = 100
 EXTERNAL_LINK_COUNT = 50
-CONTENT_SCHEMA_VERSION = "3"
+CONTENT_SCHEMA_VERSION = "4"
 
 REPOSITORY_TOPICS: dict[str, list[tuple[str, str]]] = {
     "hua-she-tian-zu": [
@@ -446,6 +446,7 @@ def expand_external_template(template: str, rng: random.Random) -> str:
 
 def generate_external_links(
     slug: str,
+    title: str,
     tags: list[str],
     templates: list[tuple[str, str]],
 ) -> list[tuple[str, str]]:
@@ -459,13 +460,12 @@ def generate_external_links(
     attempts = 0
     while len(links) < EXTERNAL_LINK_COUNT and attempts < EXTERNAL_LINK_COUNT * 20:
         attempts += 1
-        template_tag, template = rng.choice(pool)
+        _template_tag, template = rng.choice(pool)
         url = expand_external_template(template, rng)
         if url in seen:
             continue
         seen.add(url)
-        anchor_tag = template_tag or tags[len(links) % len(tags)]
-        links.append((f"{anchor_tag}延伸阅读 {len(links) + 1}", url))
+        links.append((title, url))
     if len(links) != EXTERNAL_LINK_COUNT:
         raise ValueError(f"Could not generate {EXTERNAL_LINK_COUNT} unique external links for {slug}")
     return links
@@ -559,7 +559,7 @@ def render_topic(
         for name, topics in REPOSITORY_TOPICS.items()
         for target_slug, target_idiom in [topics[index % len(topics)]]
     )
-    external_links = generate_external_links(slug, tags, templates)
+    external_links = generate_external_links(slug, item.title, tags, templates)
     external_link_lines = "\n".join(
         f"- [{markdown_text(anchor)}]({url})" for anchor, url in external_links
     )
