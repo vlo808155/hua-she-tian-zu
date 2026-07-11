@@ -2,11 +2,11 @@
 
 # 台风巴威实时路径
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7712282 · 更新：2026-07-12T04:27:05+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7713683 · 更新：2026-07-12T04:28:30+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“台风巴威实时路径”位列第 1 位，公开热度指标为 7712282。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“台风巴威实时路径”位列第 1 位，公开热度指标为 7713683。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：锁定中国气象直播间，跟踪直击“巴威”动态，听气象专家支招防御要点。
 
@@ -51,17 +51,17 @@
 - [你们觉得哪个菜系是八大菜系之首？](http://www.movie.hkepx.cn/movie/8079085.htm)
 - [上海中心千吨阻尼器开始摆动](http://www.movie.hkepx.cn/movie/5234433.htm)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.play.hengshemaoyi.cn/xiju/9843728.htm)
-- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/xiju/6033500.htm)
+- [广西洪水](http://www.movie.hkepx.cn/xiju/6033500.htm)
 - [《请看VCR》](http://www.movie.hkepx.cn/xiju/9081129.htm)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.movie.hkepx.cn/movie/5517559.htm)
 - [朝鲜通报特大腐败犯罪](http://www.play.hengshemaoyi.cn/kongbu/7660682.htm)
-- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
-- [救援期间冒雨吃饭的消防员找到了](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
-- [曝25岁南非国脚自杀离世](http://www.daogukj.com/zzeaeilt/)
+- [杭州 台风](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
+- [北京暴雨红色预警](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.daogukj.com/zzeaeilt/)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.movie.hkepx.cn/xiju/1559845.htm)
 - [温州台风](http://www.daogukj.com/zaijvjby/)
 - [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.play.hengshemaoyi.cn/xiju/6065498.htm)
-- [杭州 台风](http://www.movie.hkepx.cn/xiju/0592083.htm)
+- [诺斯科娃温网女单冠军](http://www.movie.hkepx.cn/xiju/0592083.htm)
 - [暑期防汛科普小知识请查收](http://www.play.hengshemaoyi.cn/kongbu/3190158.htm)
 - [挪威VS英格兰：凯恩PK哈兰德](http://www.movie.hkepx.cn/xiju/8058403.htm)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.movie.hkepx.cn/xiju/0407134.htm)
@@ -70,7 +70,7 @@
 - [好震撼的一句话瞬间醍醐灌顶](http://www.play.hengshemaoyi.cn/kongbu/4739008.htm)
 - [台风“巴威”在浙江乐清二次登陆](http://www.daogukj.com/9650038)
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/4399837.htm)
-- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/bodikkcn/)
+- [救援期间冒雨吃饭的消防员找到了](http://www.daogukj.com/bodikkcn/)
 - [桃黑黑直播回应](http://www.play.hengshemaoyi.cn/kongbu/0936287.htm)
 - [万物都能撞脸哈兰德](http://www.play.hengshemaoyi.cn/kongbu/7557381.htm)
 - [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.daogukj.com/6136718)
@@ -78,7 +78,7 @@
 - [知名主持人喷周星驰新电影：好难看](http://www.play.hengshemaoyi.cn/kongbu/4505915.htm)
 - [冉莹颖邹市明这段看窒息了](http://www.movie.hkepx.cn/movie/9172563.htm)
 - [大风中上海机场绑完飞机绑舷梯](http://www.daogukj.com/psrubjka/)
-- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/xiju/8460312.htm)
+- [为什么不能用炸弹摧毁台风](http://www.movie.hkepx.cn/xiju/8460312.htm)
 - [曝余承东内部群发飙](http://www.movie.hkepx.cn/xiju/3343717.htm)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.daogukj.com/qlmhijex/)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.movie.hkepx.cn/movie/5118780.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 31c0814249ab9650bfe9 -->
+<!-- content-fingerprint: cf11ad930a1b2d1e49b1 -->

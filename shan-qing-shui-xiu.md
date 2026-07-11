@@ -2,11 +2,11 @@
 
 # 吾从人族来，自当为人族竭尽全力！
 
-> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：2696776 · 分类：日常 · 更新：2026-07-12T04:27:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：2697008 · 分类：日常 · 更新：2026-07-12T04:28:30+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“吾从人族来，自当为人族竭尽全力！”位列第 3 位，公开热度指标为 2696776，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“吾从人族来，自当为人族竭尽全力！”位列第 3 位，公开热度指标为 2697008，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：-
 
@@ -38,7 +38,7 @@
 
 - [曝余承东内部群发飙](http://www.movie.hkepx.cn/xiju/9107169.htm)
 - [上海中心1000吨阻尼器开始摆动](http://www.daogukj.com/2118100)
-- [曝25岁南非国脚自杀离世](http://www.daogukj.com/4008344)
+- [“两倍的价格 我买100吨西瓜”](http://www.daogukj.com/4008344)
 - [广西贵港原副市长潘汉胜被双开](http://www.play.hengshemaoyi.cn/kongbu/7615028.htm)
 - [温州台风](http://www.play.hengshemaoyi.cn/xiju/6049463.htm)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.play.hengshemaoyi.cn/xiju/3011019.htm)
@@ -58,7 +58,7 @@
 - [直接工作与读大专，哪个更划算？](http://www.play.hengshemaoyi.cn/kongbu/4655475.htm)
 - [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.daogukj.com/6439972)
 - [台风“巴威”在浙江乐清二次登陆](http://www.movie.hkepx.cn/movie/8714906.htm)
-- [杭州 台风](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
+- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
 - [福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰](http://www.movie.hkepx.cn/movie/8757141.htm)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.daogukj.com/eagjoiap/)
 - [万物都能撞脸哈兰德](http://www.play.hengshemaoyi.cn/xiju/9146558.htm)
@@ -67,9 +67,9 @@
 - [台风巴威1小时走30到50公里](http://www.daogukj.com/mxxhzzoj/)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.daogukj.com/3878784)
 - [海贼王为什么剧情为什么越来越差？](http://www.daogukj.com/zkpqzjjl/)
-- [广西洪水](http://www.movie.hkepx.cn/xiju/2484261.htm)
+- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/xiju/2484261.htm)
 - [“我不在的日子里，你们很嚣张啊”](http://www.movie.hkepx.cn/xiju/8693395.htm)
-- [浙江惊现“台风霞”粉紫色天空](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
+- [救援期间冒雨吃饭的消防员找到了](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
 - [你觉得孩子住校好还是走读好？](http://www.play.hengshemaoyi.cn/kongbu/5541435.htm)
 - [冉莹颖邹市明这段看窒息了](http://www.daogukj.com/6739669)
 - [教育部：“教师全面硕士化”系谣言](http://www.movie.hkepx.cn/movie/9062101.htm)
@@ -81,10 +81,10 @@
 - [挪威主厨没想到会进8强](http://www.play.hengshemaoyi.cn/xiju/9996924.htm)
 - [《请看VCR》](http://www.daogukj.com/ebzzkofo/)
 - [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.daogukj.com/1982276)
-- [“两倍的价格 我买100吨西瓜”](http://www.daogukj.com/5145711)
+- [曝25岁南非国脚自杀离世](http://www.daogukj.com/5145711)
 - [宝妈手麻3小时确诊脑梗进抢救室](http://www.daogukj.com/9197192)
-- [北京暴雨红色预警](http://www.daogukj.com/ngmslwod/)
-- [手麻脚麻真的要赶紧进医院](http://www.daogukj.com/8361807)
+- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/ngmslwod/)
+- [为什么不能用炸弹摧毁台风](http://www.daogukj.com/8361807)
 - [《下一个是谁》第七季（1）](http://www.daogukj.com/vyqctkoa/)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3a61b5d4cc81519d1ad4 -->
+<!-- content-fingerprint: 323aca24b62c09d5e69d -->

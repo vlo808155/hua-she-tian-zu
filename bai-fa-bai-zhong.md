@@ -2,11 +2,11 @@
 
 # 各地全力以赴防范台风巴威
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7615928 · 更新：2026-07-12T04:27:05+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7615945 · 更新：2026-07-12T04:28:30+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“各地全力以赴防范台风巴威”位列第 2 位，公开热度指标为 7615928。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“各地全力以赴防范台风巴威”位列第 2 位，公开热度指标为 7615945。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：今年第9号台风“巴威”逼近，各地各部门闻“风”而动、严阵以待，启动应急响应、强化隐患排查、做好转移避险，扎实做好防范应对工作，确保人民群众生命财产安全。
 
@@ -36,7 +36,7 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [《功夫女足》猫眼开分9.4](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
 - [大风中上海机场绑完飞机绑舷梯](http://www.daogukj.com/nksrlhgk/)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
@@ -57,9 +57,9 @@
 - [无人机吊起2人神图系AI合成](http://www.daogukj.com/eymoxoal/)
 - [台风巴威已登陆](http://www.daogukj.com/sblnbief/)
 - [巴威逼近 上海已紧急撤离3.4万人](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/xiju/1342296.htm)
 - [挪威主厨没想到会进8强](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [诺斯科娃温网女单冠军](http://www.daogukj.com/mqwqpttl/)
+- [杭州 台风](http://www.daogukj.com/mqwqpttl/)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.movie.hkepx.cn/movie/1933025.htm)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.daogukj.com/dubydsdf/)
 - [朝鲜通报特大腐败犯罪](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
@@ -79,7 +79,7 @@
 - [上海中心1000吨阻尼器开始摆动](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
 - [周星驰林子聪“callback”少林足球](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.daogukj.com/jdhlltmp/)
-- [为什么不能用炸弹摧毁台风](http://www.daogukj.com/inrtjmju/)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.daogukj.com/inrtjmju/)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.movie.hkepx.cn/movie/4017423.htm)
 - [挪威VS英格兰：凯恩PK哈兰德](http://www.daogukj.com/9107163)
 - [冉莹颖邹市明这段看窒息了](http://www.daogukj.com/ypwsrnna/)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d242866e244670da4d69 -->
+<!-- content-fingerprint: ee4489512c99d98a3102 -->

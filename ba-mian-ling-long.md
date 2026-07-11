@@ -2,11 +2,11 @@
 
 # 挪威VS英格兰：凯恩PK哈兰德
 
-> 来源：今日头条热榜 · 排名：第 2 位 · 热度：27292938 · 分类：新事件上榜 · 更新：2026-07-12T04:27:05+08:00
+> 来源：今日头条热榜 · 排名：第 2 位 · 热度：27322947 · 分类：新事件上榜 · 更新：2026-07-12T04:28:30+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“挪威VS英格兰：凯恩PK哈兰德”位列第 2 位，公开热度指标为 27292938，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“挪威VS英格兰：凯恩PK哈兰德”位列第 2 位，公开热度指标为 27322947，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -26,9 +26,9 @@
 ## 站内推荐
 
 - [路怒症被反杀，真的很解气](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [曝25岁南非国脚自杀离世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [北京暴雨红色预警](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [“两倍的价格 我买100吨西瓜”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [救援期间冒雨吃饭的消防员找到了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
 - [万物都能撞脸哈兰德](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
@@ -55,19 +55,19 @@
 - [台风巴威二次登陆](http://www.daogukj.com/bdilzxjd/)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.movie.hkepx.cn/xiju/6416942.htm)
 - [台风巴威1小时走30到50公里](http://www.daogukj.com/rioupnlf/)
-- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.daogukj.com/4038825)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.movie.hkepx.cn/xiju/1465121.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/xiju/1465121.htm)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
 - [周星驰林子聪“callback”少林足球](http://www.movie.hkepx.cn/movie/3433204.htm)
 - [冉莹颖邹市明这段看窒息了](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
-- [北京暴雨红色预警](http://www.movie.hkepx.cn/movie/2806122.htm)
+- [浙江惊现“台风霞”粉紫色天空](http://www.movie.hkepx.cn/movie/2806122.htm)
 - [朝鲜通报特大腐败犯罪](http://www.movie.hkepx.cn/xiju/8259656.htm)
 - [挪威主厨没想到会进8强](http://www.daogukj.com/1174569)
 - [各地全力以赴防范台风巴威](http://www.movie.hkepx.cn/movie/6697492.htm)
 - [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.movie.hkepx.cn/xiju/5943289.htm)
 - [杭州20分钟变了4个色](http://www.movie.hkepx.cn/movie/8569024.htm)
-- [广西洪水](http://www.daogukj.com/pftujnfw/)
+- [丁程鑫说王俊凯太能存钱了](http://www.daogukj.com/pftujnfw/)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
 - [上海台风](http://www.movie.hkepx.cn/movie/7912436.htm)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [挪威VS英格兰：凯恩PK哈兰德](https://www.toutiao.com/trending/7660293418253467691/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660293418253467691%22%2C%22hot_board_impr_id%22%3A%2220260712042705A7DD740C679B13B2123E%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [挪威VS英格兰：凯恩PK哈兰德](https://www.toutiao.com/trending/7660293418253467691/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660293418253467691%22%2C%22hot_board_impr_id%22%3A%22202607120428282CF92BD1997AA59AB449%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0b7bc8828b6ee0329225 -->
+<!-- content-fingerprint: cc2449f4a347d3322892 -->
