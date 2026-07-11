@@ -2,11 +2,11 @@
 
 # 台风巴威实时路径
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7714549 · 更新：2026-07-11T21:07:39+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7714654 · 更新：2026-07-11T21:08:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“台风巴威实时路径”位列第 1 位，公开热度指标为 7714549。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“台风巴威实时路径”位列第 1 位，公开热度指标为 7714654。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -25,11 +25,11 @@
 
 ## 站内推荐
 
-- [巴威逼近 上海已紧急撤离3.4万人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
 - [海水倒灌](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
 - [段奥娟这么瘦了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
 - [TF四代考核人气分](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [前瞻：三狮军团能否锁死哈兰德](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [“26版西游记”团队回应爆火出圈](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
@@ -50,23 +50,23 @@
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](https://www.abc.com/4338173.html)
 - [Jennie神图诞生了](https://www.abc.com/fxyczcgq.html)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://www.abc.com/jsuuapqm.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/jlzujuui.html)
+- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/jlzujuui.html)
 - [无人机吊起2人神图系AI合成](https://www.abc.com/6918176.html)
-- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/fdnoidcq.html)
+- [朝鲜通报特大腐败犯罪](https://www.abc.com/fdnoidcq.html)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/8084848.html)
 - [段奥娟这么瘦了](https://www.abc.com/3788923.html)
 - [《大扫除是你的谎言》](https://www.abc.com/2772771.html)
-- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/tdztbdjg.html)
+- [杭州地铁停运](https://www.abc.com/tdztbdjg.html)
 - [巴威过境日本 大树连根拔起雨横飞](https://www.abc.com/vkmzuwlv.html)
 - [巴威实时路径](https://www.abc.com/5590851.html)
 - [杭州：台风影响期间非必要不外出](https://www.abc.com/btvhakcc.html)
 - [当我问我妈不结婚可以吗](https://www.abc.com/8211188.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](https://www.abc.com/8546187.html)
-- [应对台风上海转移3.4万人](https://www.abc.com/hknmonsw.html)
+- [巴威路线东移](https://www.abc.com/hknmonsw.html)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](https://www.abc.com/kjfcobsk.html)
 - [16岁高中生踢门玩闹后被捅杀](https://www.abc.com/pkfivpwh.html)
-- [前瞻：三狮军团能否锁死哈兰德](https://www.abc.com/wtimgzbp.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/xsknxmbt.html)
+- [“26版西游记”团队回应爆火出圈](https://www.abc.com/wtimgzbp.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/xsknxmbt.html)
 - [长沙市体育局干部彭某某被停职](https://www.abc.com/8904139.html)
 - [去了一趟得克萨斯州。](https://www.abc.com/kgczcyfw.html)
 - [巴威即将登陆](https://www.abc.com/jfcbzfyo.html)
@@ -75,9 +75,9 @@
 - [北京9区市民非必要不外出](https://www.abc.com/eknevqcr.html)
 - [浙江海边掀起10多米巨浪](https://www.abc.com/6049874.html)
 - [直击东北超：沈阳vs哈尔滨](https://www.abc.com/rauqswkk.html)
-- [知名主持人喷周星驰新电影：好难看](https://www.abc.com/mgzzzlyq.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/mgzzzlyq.html)
 - [巴威登陆地点范围再缩小](https://www.abc.com/7397735.html)
-- [浙江惊现“台风霞”粉紫色天空](https://www.abc.com/9458167.html)
+- [知名主持人喷周星驰新电影：好难看](https://www.abc.com/9458167.html)
 - [各地全力以赴防范台风巴威](https://www.abc.com/wivlpkum.html)
 - [曝余承东内部群发飙](https://www.abc.com/6868628.html)
 - [上海台风](https://www.abc.com/kzaquqtr.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4ec3a16bfe5c7fd88b29 -->
+<!-- content-fingerprint: 806d5e7f4a3cc9b804b2 -->
