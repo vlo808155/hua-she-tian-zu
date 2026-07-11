@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%B7%B4%E5%A8%81%E7%99%BB%E9%99%86%E5%9C%B0%E7%82%B9%E8%8C%83%E5%9B%B4%E5%86%8D%E7%BC%A9%E5%B0%8F&sa=fyb_news&rsv_dl=fyb_news"
 rank: 1
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "ccdfe6187e7684a42d95"
+updated_at: "2026-07-11T20:17:55+08:00"
+content_fingerprint: "5abb8b6b191ce735ac0b"
 ---
 
 # 巴威登陆地点范围再缩小
 
-> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:17:55+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "ccdfe6187e7684a42d95"
 
 - 来源平台：百度热搜
 - 当前排名：第 1 位
-- 热度：7809143
+- 热度：7809023
 - 固定索引：画蛇添足（hua-she-tian-zu）
 
 ## 相关标签

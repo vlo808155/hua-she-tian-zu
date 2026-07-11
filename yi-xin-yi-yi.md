@@ -10,13 +10,13 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E5%B7%B4%E5%A8%81%E6%9C%80%E6%96%B0%E4%BD%8D%E7%BD%AE"
 rank: 1
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "c0105c9310c674cfccd9"
+updated_at: "2026-07-11T20:17:55+08:00"
+content_fingerprint: "ed19f6f39f3ce459d972"
 ---
 
 # 巴威最新位置
 
-> 来源：微博热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：微博热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:17:55+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "c0105c9310c674cfccd9"
 
 - 来源平台：微博热搜
 - 当前排名：第 1 位
-- 热度：3487509
+- 热度：3457466
 - 分类：民生新闻
 - 固定索引：一心一意（yi-xin-yi-yi）
 

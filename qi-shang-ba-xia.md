@@ -10,13 +10,13 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%8F%B0%E9%A3%8E"
 rank: 2
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "a6b7552d0e6bee28bc35"
+updated_at: "2026-07-11T20:17:55+08:00"
+content_fingerprint: "b8ac2a34089ea2791be5"
 ---
 
 # 上海台风
 
-> 来源：微博热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：微博热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:17:55+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "a6b7552d0e6bee28bc35"
 
 - 来源平台：微博热搜
 - 当前排名：第 2 位
-- 热度：2394005
+- 热度：2774873
 - 分类：民生新闻
 - 固定索引：七上八下（qi-shang-ba-xia）
 

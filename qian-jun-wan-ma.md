@@ -10,13 +10,13 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E5%A4%8F%E7%B2%AE%E4%BA%A7%E9%87%8F%E9%A6%96%E7%A0%B43000%E4%BA%BF%E6%96%A4"
 rank: 3
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "7b6474e646c9be0aefd1"
+updated_at: "2026-07-11T20:17:55+08:00"
+content_fingerprint: "9ed96387bb81f22d1294"
 ---
 
 # 夏粮产量首破3000亿斤
 
-> 来源：微博热搜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：微博热搜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:17:55+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "7b6474e646c9be0aefd1"
 
 - 来源平台：微博热搜
 - 当前排名：第 3 位
-- 热度：1950080
+- 热度：1867751
 - 分类：国内时政
 - 固定索引：千军万马（qian-jun-wan-ma）
 

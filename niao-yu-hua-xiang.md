@@ -10,13 +10,13 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2028079560181171761"
 rank: 3
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "b345347cd5b5bab36aa7"
+updated_at: "2026-07-11T20:17:55+08:00"
+content_fingerprint: "1d71d8109df3d447aa7c"
 ---
 
 # 不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？
 
-> 来源：知乎热榜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：知乎热榜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:17:55+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "b345347cd5b5bab36aa7"
 
 - 来源平台：知乎热榜
 - 当前排名：第 3 位
-- 热度：623 万热度
+- 热度：632 万热度
 - 分类：问答
 - 固定索引：鸟语花香（niao-yu-hua-xiang）
 

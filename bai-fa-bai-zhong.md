@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%A6%82%E4%BD%95%E9%98%B2%E5%BE%A1%E5%BA%94%E5%AF%B9%E9%A3%8E%E6%9A%B4%E6%BD%AE+%E6%B5%B7%E6%B5%AA%E7%81%BE%E5%AE%B3&sa=fyb_news&rsv_dl=fyb_news"
 rank: 2
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "0709203573eda21131c1"
+updated_at: "2026-07-11T20:17:55+08:00"
+content_fingerprint: "cc8f5b00fdf9e2f8d541"
 ---
 
 # 如何防御应对风暴潮 海浪灾害
 
-> 来源：百度热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:17:55+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "0709203573eda21131c1"
 
 - 来源平台：百度热搜
 - 当前排名：第 2 位
-- 热度：7617083
+- 热度：7615901
 - 固定索引：百发百中（bai-fa-bai-zhong）
 
 ## 相关标签

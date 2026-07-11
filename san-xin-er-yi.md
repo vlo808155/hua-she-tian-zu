@@ -10,13 +10,13 @@ tags:
 source: "今日头条热榜"
 source_url: "https://webcast-open.douyin.com/open/media_live/332441134597"
 rank: 1
-updated_at: "2026-07-11T20:11:28+08:00"
-content_fingerprint: "d9a32c0981ed9c6f6108"
+updated_at: "2026-07-11T20:17:55+08:00"
+content_fingerprint: "0dc89636510616fd9a30"
 ---
 
 # 巴威实时路径
 
-> 来源：今日头条热榜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:11:28+08:00
+> 来源：今日头条热榜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:17:55+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "d9a32c0981ed9c6f6108"
 
 - 来源平台：今日头条热榜
 - 当前排名：第 1 位
-- 热度：89751867
+- 热度：90386368
 - 分类：热门事件
 - 固定索引：三心二意（san-xin-er-yi）
 
