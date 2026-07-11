@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%B7%B4%E5%A8%81%E7%99%BB%E9%99%86%E5%9C%B0%E7%82%B9%E8%8C%83%E5%9B%B4%E5%86%8D%E7%BC%A9%E5%B0%8F&sa=fyb_news&rsv_dl=fyb_news"
 rank: 1
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "65802d441024f114d91b"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "9d081204d4416c0d8773"
 ---
 
 [热点索引](README.md) / 画蛇添足 / 巴威登陆地点范围再缩小
 
 # 巴威登陆地点范围再缩小
 
-> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "65802d441024f114d91b"
 
 - 来源平台：百度热搜
 - 当前排名：第 1 位
-- 热度：7808750
+- 热度：7808085
 - 固定索引：画蛇添足（hua-she-tian-zu）
 
 ## 阅读关注点

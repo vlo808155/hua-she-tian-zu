@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%8F%B0%E9%A3%8E"
 rank: 2
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "948dcccfb13cd4e956fc"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "3a7c1a11a785a78a7cb7"
 ---
 
 [热点索引](README.md) / 七上八下 / 上海台风
 
 # 上海台风
 
-> 来源：微博热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：微博热搜 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "948dcccfb13cd4e956fc"
 
 - 来源平台：微博热搜
 - 当前排名：第 2 位
-- 热度：2661876
+- 热度：2734742
 - 分类：民生新闻
 - 固定索引：七上八下（qi-shang-ba-xia）
 

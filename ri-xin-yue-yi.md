@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1VjNL6LEEm"
 rank: 4
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "60da0f8aeabdc9a16aec"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "dfa6aea06429da3b1a1e"
 ---
 
 [热点索引](README.md) / 日新月异 / 当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法
 
 # 当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 4 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 4 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "60da0f8aeabdc9a16aec"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 4 位
-- 热度：2393162
+- 热度：2397256
 - 分类：演奏
 - 固定索引：日新月异（ri-xin-yue-yi）
 

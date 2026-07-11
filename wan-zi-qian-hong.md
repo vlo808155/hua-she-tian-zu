@@ -7,17 +7,17 @@ tags:
   - "实时热搜"
   - "热点资讯"
 source: "今日头条热榜"
-source_url: "https://www.toutiao.com/trending/7660084757178433579/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660084757178433579%22%2C%22hot_board_impr_id%22%3A%2220260711202932976DB7F90FBCCC92D4DB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
+source_url: "https://www.toutiao.com/trending/7660084757178433579/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660084757178433579%22%2C%22hot_board_impr_id%22%3A%22202607112030018AB8679584BC35EA2B86%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
 rank: 3
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "dcd9da3beb2ac2f46e74"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "b2461f6347c1293304ab"
 ---
 
 [热点索引](README.md) / 万紫千红 / 国产新能源重卡组团出海
 
 # 国产新能源重卡组团出海
 
-> 来源：今日头条热榜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：今日头条热榜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 
@@ -62,6 +62,6 @@ content_fingerprint: "dcd9da3beb2ac2f46e74"
 
 ## 来源与延伸阅读
 
-- [国产新能源重卡组团出海](https://www.toutiao.com/trending/7660084757178433579/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660084757178433579%22%2C%22hot_board_impr_id%22%3A%2220260711202932976DB7F90FBCCC92D4DB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [国产新能源重卡组团出海](https://www.toutiao.com/trending/7660084757178433579/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660084757178433579%22%2C%22hot_board_impr_id%22%3A%22202607112030018AB8679584BC35EA2B86%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。

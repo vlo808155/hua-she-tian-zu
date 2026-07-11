@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%B7%B4%E5%A8%81%E9%80%BC%E8%BF%91+%E4%B8%8A%E6%B5%B7%E5%B7%B2%E7%B4%A7%E6%80%A5%E6%92%A4%E7%A6%BB3.4%E4%B8%87%E4%BA%BA&sa=fyb_news&rsv_dl=fyb_news"
 rank: 1
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "c0e51876f31baf923927"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "6c02872475b1c72a76e4"
 ---
 
 [热点索引](README.md) / 六神无主 / 巴威逼近 上海已紧急撤离3.4万人
 
 # 巴威逼近 上海已紧急撤离3.4万人
 
-> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "c0e51876f31baf923927"
 
 - 来源平台：百度热搜
 - 当前排名：第 1 位
-- 热度：7711871
+- 热度：7713763
 - 固定索引：六神无主（liu-shen-wu-zhu）
 
 ## 阅读关注点

@@ -10,15 +10,15 @@ tags:
 source: "今日头条热榜"
 source_url: "https://webcast-open.douyin.com/open/media_live/332441134597"
 rank: 1
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "c206535f19f7916a0da1"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "b2ee91b11251675edea8"
 ---
 
 [热点索引](README.md) / 三心二意 / 巴威实时路径
 
 # 巴威实时路径
 
-> 来源：今日头条热榜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：今日头条热榜 · 榜单排名：第 1 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 

@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E9%95%BF%E6%B2%99%E5%B8%82%E4%BD%93%E8%82%B2%E5%B1%80%E5%B9%B2%E9%83%A8%E5%BD%AD%E6%9F%90%E6%9F%90%E8%A2%AB%E5%81%9C%E8%81%8C"
 rank: 4
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "14be3eac87b7c86b93a2"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "af1eb9ab582dfa2ba48d"
 ---
 
 [热点索引](README.md) / 春暖花开 / 长沙市体育局干部彭某某被停职
 
 # 长沙市体育局干部彭某某被停职
 
-> 来源：微博热搜 · 榜单排名：第 4 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：微博热搜 · 榜单排名：第 4 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "14be3eac87b7c86b93a2"
 
 - 来源平台：微博热搜
 - 当前排名：第 4 位
-- 热度：1443600
+- 热度：1363319
 - 分类：民生新闻
 - 固定索引：春暖花开（chun-nuan-hua-kai）
 

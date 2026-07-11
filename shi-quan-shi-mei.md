@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1nwN76YEUG"
 rank: 2
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "3a829dc3be9aa5e7e8b2"
+updated_at: "2026-07-11T20:30:02+08:00"
+content_fingerprint: "8d8ea65bf5c60247924f"
 ---
 
 [热点索引](README.md) / 十全十美 / “一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】
 
 # “一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 2 位 · 更新时间：2026-07-11T20:30:02+08:00
 
 ## 事件概览
 
