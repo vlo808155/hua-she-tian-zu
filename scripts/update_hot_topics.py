@@ -418,6 +418,17 @@ def item_fingerprint(item: HotItem) -> str:
     return hashlib.sha256(payload.encode("utf-8")).hexdigest()[:20]
 
 
+def page_fingerprint(rows: list[tuple[str, str, HotItem]], index: int) -> str:
+    linked_indexes = [(index - 1) % len(rows)] + [
+        (index + step) % len(rows) for step in range(0, 5)
+    ]
+    payload = "\n".join(
+        f"{rows[row_index][0]}:{item_fingerprint(rows[row_index][2])}"
+        for row_index in linked_indexes
+    )
+    return hashlib.sha256(payload.encode("utf-8")).hexdigest()[:20]
+
+
 def existing_fingerprint(path: Path) -> str:
     if not path.is_file():
         return ""
@@ -425,8 +436,13 @@ def existing_fingerprint(path: Path) -> str:
     return match.group(1) if match else ""
 
 
-def render_topic(slug: str, idiom: str, item: HotItem, updated_at: str) -> str:
-    fingerprint = item_fingerprint(item)
+def render_topic(
+    rows: list[tuple[str, str, HotItem]],
+    index: int,
+    updated_at: str,
+) -> str:
+    slug, idiom, item = rows[index]
+    fingerprint = page_fingerprint(rows, index)
     tags = [item.source, "实时热搜", "热点资讯"]
     if item.category and item.category not in tags:
         tags.append(item.category)
@@ -435,6 +451,24 @@ def render_topic(slug: str, idiom: str, item: HotItem, updated_at: str) -> str:
     score_line = f"- 热度：{markdown_text(item.score)}\n" if item.score else ""
     category_line = f"- 分类：{markdown_text(item.category)}\n" if item.category else ""
     tag_text = " ".join(f"`{markdown_text(tag)}`" for tag in tags)
+    previous_slug, previous_idiom, previous_item = rows[(index - 1) % len(rows)]
+    next_slug, next_idiom, next_item = rows[(index + 1) % len(rows)]
+    related_rows = [rows[(index + step) % len(rows)] for step in range(1, 5)]
+    related_links = "\n".join(
+        f"- [{markdown_text(related_item.title)}]({related_slug}.md)"
+        f"（{related_idiom}）"
+        for related_slug, related_idiom, related_item in related_rows
+    )
+    repository_links = "\n".join(
+        f"- [{name}](https://github.com/{OWNER}/{name})"
+        for name in REPOSITORY_TOPICS
+    )
+    attention_points = [
+        f"该话题当前位于{item.source}第 {item.rank} 位，排名会随实时热度变化。",
+        "阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。",
+        "后续进展可能改变现有信息，页面会在下一次榜单采集时更新。",
+    ]
+    attention_list = "\n".join(f"- {markdown_text(point)}" for point in attention_points)
     return (
         "---\n"
         f"title: {yaml_string(item.title)}\n"
@@ -448,18 +482,28 @@ def render_topic(slug: str, idiom: str, item: HotItem, updated_at: str) -> str:
         f"updated_at: {yaml_string(updated_at)}\n"
         f"content_fingerprint: {yaml_string(fingerprint)}\n"
         "---\n\n"
+        f"[热点索引](README.md) / {idiom} / {markdown_text(item.title)}\n\n"
         f"# {markdown_text(item.title)}\n\n"
         f"> 来源：{markdown_text(item.source)} · 榜单排名：第 {item.rank} 位 · 更新时间：{updated_at}\n\n"
-        "## 热点正文\n\n"
+        "## 事件概览\n\n"
         f"{markdown_text(item.summary)}\n\n"
-        "## 热点信息\n\n"
+        "## 当前榜单信息\n\n"
         f"- 来源平台：{markdown_text(item.source)}\n"
         f"- 当前排名：第 {item.rank} 位\n"
         f"{score_line}"
         f"{category_line}"
         f"- 固定索引：{idiom}（{slug}）\n\n"
+        "## 阅读关注点\n\n"
+        f"{attention_list}\n\n"
         "## 相关标签\n\n"
         f"{tag_text}\n\n"
+        "## 相关热点\n\n"
+        f"{related_links}\n\n"
+        "## 前后篇导航\n\n"
+        f"- 上一篇：[{markdown_text(previous_item.title)}]({previous_slug}.md)（{previous_idiom}）\n"
+        f"- 下一篇：[{markdown_text(next_item.title)}]({next_slug}.md)（{next_idiom}）\n\n"
+        "## 热点仓库导航\n\n"
+        f"{repository_links}\n\n"
         "## 来源与延伸阅读\n\n"
         f"- [{markdown_text(item.title)}]({item.url})\n\n"
         "本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。"
@@ -482,6 +526,12 @@ def render_readme(repo: str, rows: list[tuple[str, str, HotItem]], updated_at: s
         "| 序号 | 热点标题 | 来源 | 固定成语索引 |\n"
         "| ---: | --- | --- | --- |\n"
         + "\n".join(table)
+        + "\n\n"
+        "## 热点仓库导航\n\n"
+        + "\n".join(
+            f"- [{name}](https://github.com/{OWNER}/{name})"
+            for name in REPOSITORY_TOPICS
+        )
         + "\n\n"
         "## 数据来源\n\n"
         "- [百度热搜](https://top.baidu.com/board?tab=realtime)\n"
@@ -522,15 +572,18 @@ def update_repository(repo_dir: Path, repo: str, items: list[HotItem], updated_a
             break
         offset += len(topics)
 
-    rows: list[tuple[str, str, HotItem]] = []
+    rows = [
+        (slug, idiom, items[offset + index])
+        for index, (slug, idiom) in enumerate(REPOSITORY_TOPICS[repo])
+    ]
     changed_files: list[str] = []
-    for index, (slug, idiom) in enumerate(REPOSITORY_TOPICS[repo]):
-        item = items[offset + index]
-        rows.append((slug, idiom, item))
+    for index, (slug, _idiom, item) in enumerate(rows):
         path = repo_dir / f"{slug}.md"
-        if existing_fingerprint(path) == item_fingerprint(item):
+        current = path.read_text("utf-8") if path.is_file() else ""
+        has_navigation = "## 热点仓库导航" in current and "## 前后篇导航" in current
+        if existing_fingerprint(path) == page_fingerprint(rows, index) and has_navigation:
             continue
-        path.write_text(render_topic(slug, idiom, item, updated_at), encoding="utf-8", newline="\n")
+        path.write_text(render_topic(rows, index, updated_at), encoding="utf-8", newline="\n")
         changed_files.append(path.name)
 
     readme = repo_dir / "README.md"
