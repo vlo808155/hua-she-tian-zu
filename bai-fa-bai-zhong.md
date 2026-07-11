@@ -2,11 +2,11 @@
 
 # 各地全力以赴防范台风巴威
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7617804 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7618849 · 更新：2026-07-11T20:57:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“各地全力以赴防范台风巴威”位列第 2 位，公开热度指标为 7617804。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“各地全力以赴防范台风巴威”位列第 2 位，公开热度指标为 7618849。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：今年第9号台风“巴威”逼近，各地各部门闻“风”而动、严阵以待，启动应急响应、强化隐患排查、做好转移避险，扎实做好防范应对工作，确保人民群众生命财产安全。
 
@@ -27,9 +27,9 @@
 
 - [巴威登陆地点范围再缩小](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
 - [巴威逼近 上海已紧急撤离3.4万人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [功夫女足票房已破2亿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [台风巴威1小时走30到50公里](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [日本砸钱抢印度AI精英赢面几何](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [南非25岁世界杯参赛球员去世](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [上海天空](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [博主：泽连斯基避谈乌国内战损情况](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3b4169bd646f686e1a5f -->
+<!-- content-fingerprint: a7f3166612abbf1d76d4 -->

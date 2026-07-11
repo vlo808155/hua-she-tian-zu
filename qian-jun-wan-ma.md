@@ -2,11 +2,11 @@
 
 # 台风来袭科学避险完整指南
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：1912105 · 分类：国内时政 · 更新：2026-07-11T20:56:41+08:00
+> 来源：微博热搜 · 排名：第 3 位 · 热度：1926973 · 分类：国内时政 · 更新：2026-07-11T20:57:11+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“台风来袭科学避险完整指南”位列第 3 位，公开热度指标为 1912105，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“台风来袭科学避险完整指南”位列第 3 位，公开热度指标为 1926973，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -27,7 +27,7 @@
 
 - [上海台风](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
 - [杭州 台风](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [应对台风上海转移3.4万人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [朝鲜通报特大腐败犯罪](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
 - [广西贵港原副市长潘汉胜被双开](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c6777cb08dd54c896b12 -->
+<!-- content-fingerprint: 9da4f1c03c448b2a7004 -->

@@ -2,7 +2,7 @@
 
 # 【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）
 
-> 来源：哔哩哔哩热门 · 排名：第 4 位 · 热度：503402 · 分类：明星综合 · 更新：2026-07-11T20:56:41+08:00
+> 来源：哔哩哔哩热门 · 排名：第 4 位 · 热度：503402 · 分类：明星综合 · 更新：2026-07-11T20:57:11+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@
 ## 站内推荐
 
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [吾从人族来，自当为人族竭尽全力！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [北京暴雨红色预警](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
 - [教育部：“教师全面硕士化”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
 - [哈兰德PK凯恩 世一锋终极对决](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
 - [日媒拆台日本火箭只飞了11米](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 580d2b03f4f2c1fc1d99 -->
+<!-- content-fingerprint: ad7bbd3c1ac7883122b5 -->

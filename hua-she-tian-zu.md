@@ -2,11 +2,11 @@
 
 # 巴威登陆地点范围再缩小
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7809169 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7807972 · 更新：2026-07-11T20:57:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“巴威登陆地点范围再缩小”位列第 1 位，公开热度指标为 7809169。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“巴威登陆地点范围再缩小”位列第 1 位，公开热度指标为 7807972。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：根据浙江气象局最新消息，台风“巴威”的登陆地点范围已进一步缩小，‌预计其将以每小时20~30公里的速度向西北方向移动，强度变化不大，最大可能11日晚半夜前后在洞头至温岭一带沿海登陆。
 
@@ -26,10 +26,10 @@
 ## 站内推荐
 
 - [各地全力以赴防范台风巴威](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [北京暴雨红色预警](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [长沙市体育局干部彭某某被停职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
 - [周星驰官宣星女郎雪野](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [段奥娟这么瘦了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [博主：泽连斯基避谈乌国内战损情况](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [海水倒灌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [远炸近攻 乌军对俄放两大招意欲何为](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ce8fbde2699f7eadb288 -->
+<!-- content-fingerprint: a5c6e9f10935a9fb532c -->

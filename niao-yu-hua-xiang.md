@@ -2,7 +2,7 @@
 
 # 浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：625 万热度 · 分类：问答 · 更新：2026-07-11T20:56:41+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：625 万热度 · 分类：问答 · 更新：2026-07-11T20:57:11+08:00
 
 ## 热点正文
 
@@ -29,7 +29,7 @@
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
 - [《下一个是谁》第七季（1）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
 - [《大扫除是你的谎言》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [浙江湖州市长：全面进入战时状态](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [最新研判！台风巴威登陆时间或提前](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c1f48d8ee930180ab249 -->
+<!-- content-fingerprint: db4b2b11d1c652164ec3 -->

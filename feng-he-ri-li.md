@@ -2,11 +2,11 @@
 
 # 长沙霸占车位公职人员被停职
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7522988 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7522364 · 更新：2026-07-11T20:57:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“长沙霸占车位公职人员被停职”位列第 3 位，公开热度指标为 7522988。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“长沙霸占车位公职人员被停职”位列第 3 位，公开热度指标为 7522364。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近日，“一体育局干部霸占他人车位”事件持续在网络发酵。7月11日，长沙市体育局通报：决定给予彭某某停职处理，纪检监察机关已对彭某某相关问题开展核实处理。下一步，长沙市体育局将深刻警醒，引以为戒，加强干部队伍教育管理。
 
@@ -28,7 +28,7 @@
 - [台风巴威实时路径](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
 - [曝余承东内部群发飙](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
 - [HLE晋级MSI决赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [TF四代考核人气分](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [段奥娟这么瘦了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
 - [浙江海边掀起10多米巨浪](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 60d6e756bb3f14ddf635 -->
+<!-- content-fingerprint: 1aafdac0e7fa4a8a536c -->

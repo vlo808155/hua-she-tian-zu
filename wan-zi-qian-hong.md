@@ -2,11 +2,11 @@
 
 # 暑期防汛科普小知识请查收
 
-> 来源：今日头条热榜 · 排名：第 3 位 · 热度：77501303 · 分类：新事件上榜 · 更新：2026-07-11T20:56:41+08:00
+> 来源：今日头条热榜 · 排名：第 3 位 · 热度：77588481 · 分类：新事件上榜 · 更新：2026-07-11T20:57:11+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“暑期防汛科普小知识请查收”位列第 3 位，公开热度指标为 77501303，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“暑期防汛科普小知识请查收”位列第 3 位，公开热度指标为 77588481，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [暑期防汛科普小知识请查收](https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%2220260711205640A85B1C494A7CE339B54A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [暑期防汛科普小知识请查收](https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%2220260711205709F5C3103666D5340DFBB6%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c7c0983b224c0ac658a5 -->
+<!-- content-fingerprint: 1bafb35733d5ae201005 -->
