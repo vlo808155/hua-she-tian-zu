@@ -8,17 +8,17 @@ tags:
   - "热点资讯"
   - "新事件上榜"
 source: "今日头条热榜"
-source_url: "https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%2220260711205044831CA01D53C566CF8376%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
+source_url: "https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%22202607112051222AA8D8F76CA8DF6B2E7A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
 rank: 3
-updated_at: "2026-07-11T20:50:44+08:00"
-content_fingerprint: "910895ecc75f55a4ea18"
+updated_at: "2026-07-11T20:51:23+08:00"
+content_fingerprint: "bc5859404dbcbf570308"
 ---
 
 [热点索引](README.md) / 万紫千红 / 暑期防汛科普小知识请查收
 
 # 暑期防汛科普小知识请查收
 
-> 来源：今日头条热榜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:50:44+08:00
+> 来源：今日头条热榜 · 榜单排名：第 3 位 · 更新时间：2026-07-11T20:51:23+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "910895ecc75f55a4ea18"
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“暑期防汛科普小知识请查收”位列第 3 位，公开热度指标为 76975569，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“暑期防汛科普小知识请查收”位列第 3 位，公开热度指标为 77063162，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -36,7 +36,7 @@ content_fingerprint: "910895ecc75f55a4ea18"
 
 - 来源平台：今日头条热榜
 - 当前排名：第 3 位
-- 热度：76975569
+- 热度：77063162
 - 分类：新事件上榜
 - 固定索引：万紫千红（wan-zi-qian-hong）
 
@@ -59,7 +59,7 @@ content_fingerprint: "910895ecc75f55a4ea18"
 
 ## 前后篇导航
 
-- 上一篇：[全国电力应急支援能力大幅提升](qian-jun-wan-ma.md)（千军万马）
+- 上一篇：[杭州 台风](qian-jun-wan-ma.md)（千军万马）
 - 下一篇：[浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](niao-yu-hua-xiang.md)（鸟语花香）
 
 ## 热点仓库导航
@@ -132,6 +132,6 @@ content_fingerprint: "910895ecc75f55a4ea18"
 
 ## 来源与延伸阅读
 
-- [暑期防汛科普小知识请查收](https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%2220260711205044831CA01D53C566CF8376%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [暑期防汛科普小知识请查收](https://www.toutiao.com/trending/7660399763040813098/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660399763040813098%22%2C%22hot_board_impr_id%22%3A%22202607112051222AA8D8F76CA8DF6B2E7A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
