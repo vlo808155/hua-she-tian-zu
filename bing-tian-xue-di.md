@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待《长安三万里》的导演谢君伟，也不知道他新片《三国第一部争洛阳》票房扑街的原因？
+# 为什么印度小吃摊的卫生看起来那么糟，很多国人去吃了闹肚子，可是印度人却不受影响？
 
-> 来源：知乎热榜 · 排名：第 4 位 · 热度：186 万热度 · 分类：问答 · 更新：2026-07-19T07:37:23+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：511 万热度 · 分类：问答 · 更新：2026-07-19T15:49:46+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待《长安三万里》的导演谢君伟，也不知道他新片《三国第一部争洛阳》票房扑街的原因？”位列第 4 位，公开热度指标为 186 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么印度小吃摊的卫生看起来那么糟，很多国人去吃了闹肚子，可是印度人却不受影响？”位列第 4 位，公开热度指标为 511 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：导演谢君伟 ，代表作:《长安三万里》《三国第一部:争洛阳》
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [寻找卢本伟](ri-xin-yue-yi.md)
-- [英格兰6比4胜法国 夺得世界杯季军](hua-she-tian-zu.md)
-- [法国vs英格兰](yi-xin-yi-yi.md)
-- [英格兰6-4法国获季军](san-xin-er-yi.md)
+- [【独家】牧神记 第92集 牛车](ri-xin-yue-yi.md)
+- [法国门将身价堪比一杯蜜雪冰城](hua-she-tian-zu.md)
+- [正片不如路透](yi-xin-yi-yi.md)
+- [马龙许昕晋级男双决赛](san-xin-er-yi.md)
 
 ## 站内推荐
 
-- [美国基建能力不是很差吗？为什么这次世界杯中的体育场馆这么多？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [如何看待喜剧动画电影《八仙！》 2026 年 7 月 18 日在上映首日开出豆瓣 8.3 分的高分？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [如何看待白宫提词器操作员提前获取特朗普演讲稿，并据此押注获利近10万元，最终被调查？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [金标联盟宣布小米、OPPO、vivo、荣耀将统一「碰一碰」及运存管理标准，安卓生态能否告别各自为战？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [经济学家任泽平 VIP 付费会员群「暴雷」，有人听信操作建议亏损 1000多万，你如何看这种现象？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [法国 4-6 英格兰这场比赛算是诚信互刷吗？你怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [奥特痞子](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [【纪录片】闪闪的儿科医生4 第8集 爱的回归线](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [穿山甲和瓜老板的世纪同框](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [航天嘉豪记1.1](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为啥人坐在并不严密的车子里拍摄狮虎时，这些猛兽却很少攻击人？](http://www.movie.hkepx.cn/movie/4471620.htm)
-- [英格兰6-4法国获季军](http://www.daogukj.com/xebdfgux/)
-- [姆巴佩加冕世界杯历史射手王](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
-- [科幻悬疑惊悚片《恐怖游轮》首次内地影院上映，看完后你感受如何？](http://www.movie.hkepx.cn/xiju/5621807.htm)
-- [贝林厄姆最后时刻一条龙破门](http://www.daogukj.com/dzktieeu/)
-- [郭富城夫妇带3个女儿现身机场](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
-- [媒体：县长硬刚首富背后是权力傲慢](http://www.movie.hkepx.cn/movie/4977487.htm)
-- [泰国总理夫人打卡成都宽窄巷子](http://www.movie.hkepx.cn/xiju/7776753.htm)
-- [躲在超市后门拆炸弹的三人](http://www.daogukj.com/0771353)
-- [法国半场丢4球 詹俊：被打得满地找牙](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
-- [不是哥们，放火威胁律师 ？](http://www.movie.hkepx.cn/xiju/1266622.htm)
-- [寻找卢本伟](http://www.daogukj.com/bnubczgn/)
-- [泰总理夜游成都边走边吃冰淇淋](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
-- [泰总理夫人对熊猫玩偶爱不释手](http://www.movie.hkepx.cn/xiju/3833912.htm)
-- [理想马赫M100深度体验：自研AI芯片到底怎么样？](http://www.daogukj.com/qygzdgwj/)
-- [看未来五年你的城市怎么变](http://www.movie.hkepx.cn/movie/3609280.htm)
-- [姆巴佩世界杯历史射手王](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
-- [《绝区零》二周年主题曲MV | 预言](http://www.daogukj.com/dxagawao/)
-- [曝蔡依林演唱会报酬税后仅90万](http://www.daogukj.com/qdpevqqj/)
-- [英法大战打出网球比分](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
-- [英格兰队上半场连轰4球](http://www.daogukj.com/tpbetyah/)
-- [美国基建能力不是很差吗？为什么这次世界杯中的体育场馆这么多？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
-- [杭州一女子独自用餐遭服务员多次传话「黄总邀请你去包厢」，官方已介入，如何看待此事？](http://www.movie.hkepx.cn/xiju/3442051.htm)
-- [奥特痞子](http://www.movie.hkepx.cn/xiju/4635137.htm)
-- [铠甲勇士刑天·守护初心【P2】光暗一体](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
-- [如何看待喜剧动画电影《八仙！》 2026 年 7 月 18 日在上映首日开出豆瓣 8.3 分的高分？](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
-- [葡媒评世界杯最令人失望23人](http://www.daogukj.com/eqtbqajy/)
-- [借灾情博眼球 警方查处3起网络谣言](http://www.movie.hkepx.cn/movie/5314158.htm)
-- [杜华劝邹市明去看病](http://www.movie.hkepx.cn/movie/1796986.htm)
-- [萨卡帽子戏法](http://www.daogukj.com/yldwicuv/)
-- [姆巴佩梅开二度 打进本届第10球](http://www.movie.hkepx.cn/xiju/1923731.htm)
-- [无语了 姆巴佩苦笑](http://www.movie.hkepx.cn/xiju/5823393.htm)
-- [英格兰6比4胜法国 夺得世界杯季军](http://www.daogukj.com/2626307)
-- [伊朗已停止履行伊美谅解备忘录](http://www.movie.hkepx.cn/xiju/9508117.htm)
-- [英法进球大战裁判都受不了](http://www.movie.hkepx.cn/xiju/9262898.htm)
-- [大衣哥测试除草剂草长疯了果断拒代言](http://www.daogukj.com/tqdltahc/)
-- [怎么反驳「生物学上忘掉一个人需要7年，可7是质数除不尽也忘不掉」这段话？](http://www.movie.hkepx.cn/xiju/9646924.htm)
-- [姆巴佩苦笑](http://www.daogukj.com/1624901)
-- [刘宇宁此事到此为止](http://www.movie.hkepx.cn/movie/6632805.htm)
-- [法国门将身价堪比一杯蜜雪冰城](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
-- [王俊凯演唱会退场天才](http://www.daogukj.com/5122805)
-- [友情提示：这是一个解压视频.](http://www.movie.hkepx.cn/movie/7942093.htm)
-- [世界杯季军赛，法国 4-6 英格兰，萨卡戴帽，姆巴佩双响创纪录，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
-- [DeepSeek V4 正式版即将发布，有哪些值得关注的亮点？](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
-- [法国半场0比4英格兰](http://www.daogukj.com/hdlfcclx/)
-- [有什么东西正在敲你的门……](http://www.daogukj.com/1703206)
-- [女儿一个谎让父亲坐了两年牢](http://www.daogukj.com/1803044)
-- [皮尤调查显示中国全球好感度首超美国，反映了哪些趋势？](http://www.daogukj.com/3520679)
-- [如何看待白宫提词器操作员提前获取特朗普演讲稿，并据此押注获利近10万元，最终被调查？](http://www.movie.hkepx.cn/xiju/3318389.htm)
-- [巴黎街头发生严重骚乱](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
+- [肯德基+必胜客+塔斯汀 史上最强山寨汉堡！](http://www.movie.hkepx.cn/movie/4471620.htm)
+- [马龙许昕晋级男双决赛](http://www.daogukj.com/xebdfgux/)
+- [洪水退去 横州茉莉花重新冒芽](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
+- [友情提示：这是一个解压视频.](http://www.movie.hkepx.cn/xiju/5621807.htm)
+- [为什么真人版的毛利兰都没有角？](http://www.daogukj.com/dzktieeu/)
+- [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
+- [为什么越来越多的演员去开演唱会？不少人因高价票与低质翻唱遭质疑，跨界开演唱会这条路能长久吗？](http://www.movie.hkepx.cn/movie/4977487.htm)
+- [周星驰回应观众喊话“一直拍下去”](http://www.movie.hkepx.cn/xiju/7776753.htm)
+- [女孩卧室囤积大量“吧唧”致中毒](http://www.daogukj.com/0771353)
+- [AI行业要重新洗牌了](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
+- [物业主动撤离小区 谁来接盘](http://www.movie.hkepx.cn/xiju/1266622.htm)
+- [【独家】牧神记 第92集 牛车](http://www.daogukj.com/bnubczgn/)
+- [美加墨世界杯决赛，西班牙 vs 阿根廷，你更看好哪支球队？决胜的关键是什么？](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
+- [最早那一批做断骨增高的人，现在怎么样了？](http://www.movie.hkepx.cn/xiju/3833912.htm)
+- [决赛来袭！西班牙7战6胜1平仅丢1球](http://www.daogukj.com/qygzdgwj/)
+- [本周中国硬核成果密集“上新”](http://www.movie.hkepx.cn/movie/3609280.htm)
+- [马龙许昕3比0林高远袁烜松](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
+- [马龙许昕晋级全锦赛男双决赛](http://www.daogukj.com/dxagawao/)
+- [世界杯决赛比分预测](http://www.daogukj.com/qdpevqqj/)
+- [世界两大AI组织都是狠角色](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
+- [如何评价 FIFA 主席说可以中美合办世界杯？这是玩笑还是有所考量？](http://www.daogukj.com/tpbetyah/)
+- [法国 4-6 英格兰这场比赛算是诚信互刷吗？你怎么看？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
+- [小伙模仿上海霸道总裁！点外卖能吃到什么离谱的菜？](http://www.movie.hkepx.cn/xiju/3442051.htm)
+- [3元雪糕没人买 20元冰淇淋要排队](http://www.movie.hkepx.cn/xiju/4635137.htm)
+- [世界杯决赛：西班牙vs阿根廷](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
+- [奥特痞子](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
+- [上半年入境外国人超 2291 万人次，同比增长20.4%，希腊游客增长近2倍，老外为何扎堆来中国避暑？](http://www.daogukj.com/eqtbqajy/)
+- [月之暗面 Kimi 最新发布的大模型 K3 有哪些局限性？](http://www.movie.hkepx.cn/movie/5314158.htm)
+- [和孩子沟通困难，明明是讨论，但家长提出问题，为什么孩子却不能理解和接受？](http://www.movie.hkepx.cn/movie/1796986.htm)
+- [那个从来都不喝水的朋友](http://www.daogukj.com/yldwicuv/)
+- [这一秒过火走势](http://www.movie.hkepx.cn/xiju/1923731.htm)
+- [美国时代广场成阿根廷庙会了](http://www.movie.hkepx.cn/xiju/5823393.htm)
+- [法国门将身价堪比一杯蜜雪冰城](http://www.daogukj.com/2626307)
+- [姆巴佩决赛预测](http://www.movie.hkepx.cn/xiju/9508117.htm)
+- [如何看待索尼宣布取消实体盘半个月后，官方账号沦陷，发什么都被冲，玩家愤怒不仅没减弱反而日益激烈？](http://www.movie.hkepx.cn/xiju/9262898.htm)
+- [电影《八仙！》票房突破 2 亿，猫眼预测超14亿，你觉得最终票房能到多少？](http://www.daogukj.com/tqdltahc/)
+- [67岁老人坚持锻炼身体不给儿女添麻烦教程](http://www.movie.hkepx.cn/xiju/9646924.htm)
+- [“鬼子专业户”王侃去世](http://www.daogukj.com/1624901)
+- [韩国股民迎来股市大变脸](http://www.movie.hkepx.cn/movie/6632805.htm)
+- [医生：洞洞鞋不适合光脚穿](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
+- [人类发现有生命所需三大特征行星](http://www.daogukj.com/5122805)
+- [盒马被曝让员工三伏天在户外吃饭](http://www.movie.hkepx.cn/movie/7942093.htm)
+- [姆巴佩 2 射 1 传成历史射手王，一战刷爆 14 大纪录，如何评价他在世界杯季军赛的表现？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
+- [《崩坏：星穹铁道》公益第二卷：「当一颗星照亮夜空」](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
+- [女孩卧室囤大量“吧唧”致甲醛中毒](http://www.daogukj.com/hdlfcclx/)
+- [男子买钻戒追求女子 未果后起诉返还](http://www.daogukj.com/1703206)
+- [博主：姆巴佩失去证明自己最好机会](http://www.daogukj.com/1803044)
+- [《星炬不熄》 | 《鸣潮》演唱会「致予新世界」](http://www.daogukj.com/3520679)
+- [【纪录片】闪闪的儿科医生4 第8集 爱的回归线](http://www.movie.hkepx.cn/xiju/3318389.htm)
+- [暑假接来玩14岁儿子纹成大花腿](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待《长安三万里》的导演谢君伟，也不知道他新片《三国第一部争洛阳》票房扑街的原因？](https://www.zhihu.com/question/2061530706438895358)
+- [为什么印度小吃摊的卫生看起来那么糟，很多国人去吃了闹肚子，可是印度人却不受影响？](https://www.zhihu.com/question/2060535612919363451)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 593cb9a93019510e5333 -->
+<!-- content-fingerprint: b5200a615c90209bd20e -->
