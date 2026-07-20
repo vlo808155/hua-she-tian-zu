@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# “四哥”谢贤去世
+# 中国人保中国太保中国平安集体发声
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7808405 · 更新：2026-07-20T16:28:30+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7809655 · 更新：2026-07-20T23:32:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，““四哥”谢贤去世”位列第 1 位，公开热度指标为 7808405。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中国人保中国太保中国平安集体发声”位列第 1 位，公开热度指标为 7809655。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：7月20日，中国人保、中国太保、中国平安三家头部保险机构集体发声，相继表态将发挥长期资金优势，以实际行动支持资本市场平稳高质量发展。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [谢贤去世](yi-xin-yi-yi.md)
-- [证监会就近期A股波动发声](san-xin-er-yi.md)
-- [如何看待游戏主播旭旭宝宝因发表「不看周星驰新片」观点遭网暴，发视频怒怼网友且拒绝道歉，后又将视频删除？](si-hai-wei-jia.md)
-- [《鸣潮》巡回演唱会「致予新世界」官方录播](wu-gu-feng-deng.md)
+- [导演这段是要毁了长剧吗](yi-xin-yi-yi.md)
+- [中国海警回应菲方攻击中方执法人员](san-xin-er-yi.md)
+- [如何评价代数几何著名猜想「雅可比猜想」被AI证伪？如此简洁、可独立验证的数学发现意味着什么？](si-hai-wei-jia.md)
+- [树恨你](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
-- [到中国买买买 新国货圈粉外国游客](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [谢婷婷发文悼念父亲谢贤](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [西班牙领奖时阿根廷全队背过身](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [奔跑吧投票](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [媒体：阿根廷队“输球输人”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [今天为什么需要世界人工智能大会](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [谢贤曾昏迷进ICU强撑到谢霆锋回港](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [公交车从南沙大桥上冲出系假视频](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [美股存储芯片反弹](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [白鹿奔跑吧下一季投票第一](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [证监会就近期A股波动发声](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [（知识科普）一口气看完侦查位干员技能增强削弱史，来看看你都了解多少？](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [有人发明了无薪水工作](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [随着中国降水线北移，南水北调工程还有必要吗？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [上海特大暴雨致新华医院一大楼积水](http://www.daogukj.com/ihcjjgzd/)
-- [今年最热的时候马上就来](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [《功夫女足》观众看了都说好，为什么影评人说烂大街？](http://www.daogukj.com/hytgpxub/)
-- [如何看待俄40分钟40枚导弹砸向基辅](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [《明日方舟：终末地》过场动画 - 伏澜](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [如何看待最近网传的deep seek v4正式版灰测？](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [《鸣潮》巡回演唱会「致予新世界」官方录播](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [1~11集合集来喽!](http://www.daogukj.com/8357764)
-- [中国人工智能发展到什么程度了](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [选择性辞职](http://www.daogukj.com/rdfrumhx/)
-- [穿越战锤20年，全团战死，唯你幸存退役，你的后半生会如何度过？](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [敬业钢铁发表声明，正告英国政府立即停止以国内法践踏国际投资规则的行径，哪些信息值得关注？](http://www.daogukj.com/lntrsvpz/)
-- [想减肥报完游泳班的人天塌了](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [西班牙阿根廷赛后打起来了](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [朱之文回应为阻止老婆直播摔手机](http://www.daogukj.com/mofrooiq/)
-- [谢霆锋发讣告](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [下届世界杯看球时差](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [谢霆锋悼念父亲：不用哭 他觉得不潇洒](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [谢霆锋父亲谢贤去世](http://www.daogukj.com/8424365)
-- [如何看待游戏主播旭旭宝宝因发表「不看周星驰新片」观点遭网暴，发视频怒怼网友且拒绝道歉，后又将视频删除？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [给大领导汇报工作，领导经常性抓到一个点就使劲往细节问，直到问答不上，该如何应对呢？这种现象正常吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [为省机票亏2.4万男子：有人愿高价买车](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [铠甲勇士刑天·守护初心【P3】战斗从来不是一个人](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [千万不要在网上买低价饮料](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [铠甲勇士刑天·守护初心](http://www.daogukj.com/4727274)
-- [四个一起冒烟！狂！大司马杯最搞笑一幕：导播可以开摄像头了。](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [西班牙两位公主再捧大力神杯](http://www.daogukj.com/2266153)
-- [证监会：全力维护市场平稳运行](http://www.daogukj.com/3795795)
-- [阿根廷首都发生球迷骚乱](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [港交所考虑延长交易时间 取消午休](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [19岁亚马尔加冕最年轻双冠王](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [扫机风暴2](http://www.daogukj.com/uhjkuxrm/)
-- [关于极端天气 这几个谣言千万别信](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [14岁少年文身成大花腿 家属索赔20万](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [媒体：阿根廷队“输球输人”](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [西班牙夺冠路上唯一没赢的是佛得角](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [67岁老人坚持锻炼身体不给儿女添麻烦教程](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [中国海警回应菲方攻击中方执法人员](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [为什么在极限运动视频中多数是外国人？](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [鬼压床：全人类为何共享着同一个噩梦？](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [美6艘巡逻舰“现身”南海意欲何为](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [《 双 枪 牛 仔 》](http://www.daogukj.com/ihcjjgzd/)
+- [为什么豆包没有被 DeepSeek「斩杀」？](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [周星驰：影帝谢贤 一路好走](http://www.daogukj.com/hytgpxub/)
+- [菲方人员用划桨长棍攻击我海警](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [沪指、创业板指收红，电力、煤炭板块走强，如何看待 2026 年 7 月 20 日 A 股市场行情？](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [香港演员、谢霆锋父亲谢贤去世，他在影坛留下了哪些经典作品？你对他有哪些记忆？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [树恨你](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [如何看待最近网传的DeepSeek v4正式版灰测？](http://www.daogukj.com/8357764)
+- [数读上半年工业和信息化经济成绩单](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [谢贤李小龙是同月同日离世](http://www.daogukj.com/rdfrumhx/)
+- [完全看不懂中国网络梗的日本人，再也不怕了！](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [乒超名单](http://www.daogukj.com/lntrsvpz/)
+- [谢贤曾多次夸赞张柏芝善待孙子](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [张柏芝多平台账号头像变全黑](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [张柏芝头像变黑](http://www.daogukj.com/mofrooiq/)
+- [小时候吃的很多水果都慢慢消失了](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [把240Hz电竞巨幕戴在脸上？ROG XREAL R1 AR 眼镜上手体验！](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [穿拖鞋离场 用塑料袋装“大力神杯”](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [前妻狄波拉双眼红肿回应谢贤离世](http://www.daogukj.com/8424365)
+- [如何评价代数几何著名猜想「雅可比猜想」被AI证伪？如此简洁、可独立验证的数学发现意味着什么？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [为什么我开始不害怕领导了，说什么都不反驳，只淡淡一笑，看到主要领导也就这样？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [特朗普喊话国际足联主席，「美国必须再次举办世界杯，且要在我任期间实现」，这可能性有多大？背后有何考量？](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [谢贤遗嘱将 90% 遗产留给两个孙子，剩下 10% 由其儿女平均分配，如何看这一分配？](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [清华姚班 全球AI半壁江山](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [三万斤西瓜成本近8000元仅能卖6000元](http://www.daogukj.com/4727274)
+- [一年超 8 万家面包店关停，超市烘焙区却排长队，面包生意到底好不好做？反映了怎样的消费趋势？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [驾照考得早的好处还在提升](http://www.daogukj.com/2266153)
+- [我在世界杯闭幕式表演了我的世界杯主题曲 Champion！](http://www.daogukj.com/3795795)
+- [沉浸式感受清朝御厨制作摔不碎的豆腐](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [亚马尔曾说决赛遇到中国队也很难](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [谢贤进ICU后一心要等谢霆锋回香港](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [月租4600元的酒店谁在住](http://www.daogukj.com/uhjkuxrm/)
+- [跟着中国第一个旅游博主徐霞客的足迹去旅行，看看400年后变成了什么样！](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [王玉雯别说了刘宇宁害羞了](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [白鹿奔跑吧下一季投票第一](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [境外绑架杀害中国公民嫌犯被遣返](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [千万博主谈b站真相（完整版）](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
 - [史蒂夫执教中国队！【AI全民制作人】](http://www.daogukj.com/5905118)
-- [2026年世界杯决赛，恩佐下半场两黄变一红被罚下，对此你怎么看？这是本场比赛的转折点吗？](http://www.daogukj.com/gchjscql/)
-- [装备制造业“压舱石”作用凸显](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [八仙 口碑爆了](http://www.daogukj.com/9269800)
-- [A股行情](http://www.daogukj.com/7091853)
-- [俄罗斯花滑运动员谢尔巴科娃宣布订婚](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [科技股暴跌为何散户没“察觉”](http://www.daogukj.com/2402025)
-- [男孩暑假文了个大花腿 母亲索赔20万](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [阿根廷队无法接受输掉决赛的事实](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [马云现身世界杯总决赛现场](http://www.daogukj.com/gchjscql/)
+- [我国大国制造加速提质升级](http://www.movie.hkepx.cn/xiju/1255661.htm)
+- [成龙：我还做武行时谢贤已是大明星](http://www.daogukj.com/9269800)
+- [Zara阔腿裤存安全隐患](http://www.daogukj.com/7091853)
+- [菲方围顶冲撞中方巡逻艇并恶意攻击](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [西班牙夺冠路上唯一没赢的是佛得角](http://www.daogukj.com/2402025)
+- [中方警告日方：将付出沉重代价](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [崇左地震](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [“四哥”谢贤去世](https://www.baidu.com/s?wd=%E2%80%9C%E5%9B%9B%E5%93%A5%E2%80%9D%E8%B0%A2%E8%B4%A4%E5%8E%BB%E4%B8%96&sa=fyb_news&rsv_dl=fyb_news)
+- [中国人保中国太保中国平安集体发声](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E4%BA%BA%E4%BF%9D%E4%B8%AD%E5%9B%BD%E5%A4%AA%E4%BF%9D%E4%B8%AD%E5%9B%BD%E5%B9%B3%E5%AE%89%E9%9B%86%E4%BD%93%E5%8F%91%E5%A3%B0&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 43720eeb68ed17b61347 -->
+<!-- content-fingerprint: 24cfc2ae6a4052206c5d -->
