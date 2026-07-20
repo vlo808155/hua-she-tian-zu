@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 马龙/许昕获全国乒乓球锦标赛男双冠军，如何评价这场比赛？
+# 西班牙队领奖时阿根廷队集体背过身，被批毫无风度，怎样看待他们的做法？为啥本届世界杯阿根廷风评这么差？
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：1237 万热度 · 分类：问答 · 更新：2026-07-20T05:37:16+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：1099 万热度 · 分类：问答 · 更新：2026-07-20T16:28:30+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“马龙/许昕获全国乒乓球锦标赛男双冠军，如何评价这场比赛？”位列第 2 位，公开热度指标为 1237 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“西班牙队领奖时阿根廷队集体背过身，被批毫无风度，怎样看待他们的做法？为啥本届世界杯阿根廷风评这么差？”位列第 2 位，公开热度指标为 1099 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026年全国乒乓球锦标赛男双决赛，马龙/许昕3-0战胜向鹏/黄友政，“龙蟒组合”获得冠军。 更多资讯请下载央视新闻客户端
+来源公开摘要显示：输球又输人？世界杯决赛后西班牙如愿夺冠，可在领奖时阿根廷这边却做出了很有争议的举动，全员背身拒看颁奖，硬生生把亚军的荣誉，变成了全网热议的口碑翻车现场。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《鸣潮》巡回演唱会「致予新世界」官方录播](shi-quan-shi-mei.md)
-- [新动能的三张“新面孔”](bai-fa-bai-zhong.md)
-- [走读汕头的侨乡家国情](qian-jun-wan-ma.md)
-- [全国已建成高质量数据集12万个](wan-zi-qian-hong.md)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](shi-quan-shi-mei.md)
+- [到中国买买买 新国货圈粉外国游客](bai-fa-bai-zhong.md)
+- [中国人工智能发展到什么程度了](qian-jun-wan-ma.md)
+- [装备制造业“压舱石”作用凸显](wan-zi-qian-hong.md)
 
 ## 站内推荐
 
-- [清华大学的学生中有80%的人是过目不忘的，这个是真的么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [如何看待EWC官方邀请其他赛区选手观看《突然的陀螺》，随后因引发LPL粉丝不满而下架并处罚相关人员？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [西班牙玄学 对手伤退](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [穿山甲和瓜老板的世纪同框](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [贝克汉姆夫妇现身决赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [世界杯夺冠后爆发冲突，帕雷德斯锁喉加西亚+怒推加维，他会受到追加处罚吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [⚡对 对 子 战 神 8⚡](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [我在世界杯闭幕式表演了我的世界杯主题曲 Champion！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [为省机票亏2.4万男子：有人愿高价买车](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [港交所考虑延长交易时间 取消午休](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [阿根廷90分钟0射门](http://www.movie.hkepx.cn/movie/4879804.htm)
-- [67岁老人坚持锻炼身体不给儿女添麻烦教程](http://www.movie.hkepx.cn/movie/5294565.htm)
-- [世界杯中场秀 不转播](http://www.movie.hkepx.cn/xiju/8234213.htm)
-- [上海暴雨](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
-- [新乐器！订书钉演奏《千本樱》](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
-- [水皮](http://www.movie.hkepx.cn/xiju/2272650.htm)
-- [恩佐红牌罚下](http://www.movie.hkepx.cn/movie/5183558.htm)
-- [电影《八仙！》票房突破 2 亿，猫眼预测超14亿，你觉得最终票房能到多少？](http://www.daogukj.com/qcalvqip/)
-- [⚡对 对 子 战 神 8⚡](http://www.daogukj.com/qsfzwgun/)
-- [西班牙玄学 对手伤退](http://www.daogukj.com/broiawjw/)
-- [甲亢哥球衣印有全部48支参赛队](http://www.movie.hkepx.cn/xiju/2682801.htm)
-- [上半年入境外国人超 2291 万人次，同比增长20.4%，希腊游客增长近2倍，老外为何扎堆来中国避暑？](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
-- [新动能的三张“新面孔”](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
-- [世界杯决赛](http://www.movie.hkepx.cn/xiju/8343373.htm)
-- [美加墨世界杯决赛，西班牙 vs 阿根廷，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
-- [樊振东评世界杯最佳阵容](http://www.daogukj.com/8483541)
-- [西班牙vs阿根廷](http://www.daogukj.com/qxxcgldr/)
-- [男子突然想起，自己小时候在自行车车把里藏了15元零花钱，时隔20年锯开车把将钱取出。](http://www.daogukj.com/9209363)
-- [樊振东资深球迷实锤了](http://www.movie.hkepx.cn/xiju/3158244.htm)
-- [穿山甲和瓜老板的世纪同框](http://www.daogukj.com/cyhwfhva/)
-- [医生：洞洞鞋不适合光脚穿](http://www.daogukj.com/tfhkqorv/)
-- [世界杯决赛判罚尺度](http://www.movie.hkepx.cn/xiju/7580051.htm)
-- [裁判这都能忍住不掏牌](http://www.daogukj.com/knzztlfc/)
-- [西班牙阿根廷加时赛](http://www.movie.hkepx.cn/movie/0847264.htm)
-- [1~11集合集来喽!](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
-- [甲亢哥献唱世界杯决赛](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
-- [两只猫为什么会互相舔毛？怎么知道他们是闹着玩还是真的打架？](http://www.movie.hkepx.cn/movie/1751427.htm)
-- [你们立大功了！修改的救生绳 已救一人](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
-- [“鬼子专业户”王侃去世](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
-- [动物园非洲幼狮每天坐三蹦子上下班](http://www.movie.hkepx.cn/movie/1023624.htm)
-- [女孩卧室囤大量“吧唧”致甲醛中毒](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
-- [两大央企深夜宣布：增持A股](http://www.daogukj.com/7693477)
-- [大姨从40℃西安到黑龙江塔河避暑](http://www.movie.hkepx.cn/xiju/2826252.htm)
-- [阿根廷和西班牙场上发生冲突](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
-- [走读汕头的侨乡家国情](http://www.daogukj.com/1461847)
-- [友情提示：这是一个解压视频.](http://www.movie.hkepx.cn/xiju/0818230.htm)
-- [洪秀柱盼统一：我已近80岁等不及了](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
-- [寻找卢本伟](http://www.daogukj.com/xoshfaqj/)
-- [养了一个自私的且动不动就以跳楼威胁的女儿，该如何破局？](http://www.movie.hkepx.cn/xiju/4934568.htm)
-- [《功夫女足》和《少林足球》，抛开情怀滤镜，单论电影本身，你觉得哪个更好看？为什么？](http://www.daogukj.com/wiudnclj/)
-- [7 月 19 日苏州、杭州、上海等地遭遇大暴雨，你那儿雨下得大吗？出行和生活有没有受到影响？](http://www.movie.hkepx.cn/movie/0173822.htm)
-- [四个一起冒烟！狂！大司马杯最搞笑一幕：导播可以开摄像头了。](http://www.daogukj.com/4402502)
-- [西班牙阿根廷 吓醒我](http://www.movie.hkepx.cn/xiju/3001134.htm)
-- [西班牙阿根廷半场犯规16次](http://www.daogukj.com/wkrcfluq/)
-- [阿根廷用完换人名额](http://www.movie.hkepx.cn/movie/6354712.htm)
-- [如何看待部分社区认为DeepSeek-V4的灰度测试是路由Claude Fable、Opus等模型？](http://www.movie.hkepx.cn/xiju/8131821.htm)
-- [特朗普现身世界杯决赛看台](http://www.daogukj.com/4751279)
-- [大罗把大力神杯递给特朗普](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
-- [中场秀夏奇拉来了](http://www.daogukj.com/6772234)
-- [卫健委辟谣韩红基金会物资分配不均](http://www.movie.hkepx.cn/movie/1847830.htm)
+- [谢霆锋紧急低调返港处理谢贤后事](http://www.movie.hkepx.cn/movie/4879804.htm)
+- [证监会：全力维护市场平稳运行](http://www.movie.hkepx.cn/movie/5294565.htm)
+- [谢霆锋发讣告](http://www.movie.hkepx.cn/xiju/8234213.htm)
+- [男童在网红村旅游时被溪水冲走遇难](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
+- [67岁老人坚持锻炼身体不给儿女添麻烦教程](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
+- [朱之文回应为阻止老婆直播摔手机](http://www.movie.hkepx.cn/xiju/2272650.htm)
+- [西班牙公主时隔16年再捧大力神杯](http://www.movie.hkepx.cn/movie/5183558.htm)
+- [（知识科普）一口气看完侦查位干员技能增强削弱史，来看看你都了解多少？](http://www.daogukj.com/qcalvqip/)
+- [随着中国降水线北移，南水北调工程还有必要吗？](http://www.daogukj.com/qsfzwgun/)
+- [我在世界杯闭幕式表演了我的世界杯主题曲 Champion！](http://www.daogukj.com/broiawjw/)
+- [今年最热的时候马上就来](http://www.movie.hkepx.cn/xiju/2682801.htm)
+- [西班牙领奖时阿根廷全队背过身](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
+- [到中国买买买 新国货圈粉外国游客](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
+- [证监会就近期A股波动发声](http://www.movie.hkepx.cn/xiju/8343373.htm)
+- [如何看待游戏主播旭旭宝宝因发表「不看周星驰新片」观点遭网暴，发视频怒怼网友且拒绝道歉，后又将视频删除？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
+- [奔跑吧投票](http://www.daogukj.com/8483541)
+- [谢贤去世](http://www.daogukj.com/qxxcgldr/)
+- [全 网 最 幸 运 的 动 画 教 程 3.5](http://www.daogukj.com/9209363)
+- [有人发明了无薪水工作](http://www.movie.hkepx.cn/xiju/3158244.htm)
+- [为省机票亏2.4万男子：有人愿高价买车](http://www.daogukj.com/cyhwfhva/)
+- [上海暴雨致新华医院一大楼积水](http://www.daogukj.com/tfhkqorv/)
+- [谢霆锋父亲谢贤去世](http://www.movie.hkepx.cn/xiju/7580051.htm)
+- [《功夫女足》幕后的“捞金大佬”](http://www.daogukj.com/knzztlfc/)
+- [《明日方舟：终末地》过场动画 - 伏澜](http://www.movie.hkepx.cn/movie/0847264.htm)
+- [“黄总请你去包厢” 为何围观难散场](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
+- [选择性辞职](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
+- [《滕王阁序》的语言美感是不是任何一篇骈文都无法超越？](http://www.movie.hkepx.cn/movie/1751427.htm)
+- [铠甲勇士刑天·守护初心](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
+- [陈楚生3次预测世界杯冠军全中](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
+- [“北京烤鸭”惹了谁](http://www.movie.hkepx.cn/movie/1023624.htm)
+- [媒体：阿根廷队“输球输人”](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
+- [谢婷婷发文悼念父亲谢贤](http://www.daogukj.com/7693477)
+- [如何看待月之暗面kimi在2026年7月19日宣布算力紧张，暂停会员开放？](http://www.movie.hkepx.cn/xiju/2826252.htm)
+- [2026 年世界杯决赛 90 分钟常规时间阿根廷 0 射门，全场鲜有机会，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
+- [中国人工智能发展到什么程度了](http://www.daogukj.com/1461847)
+- [四个一起冒烟！狂！大司马杯最搞笑一幕：导播可以开摄像头了。](http://www.movie.hkepx.cn/xiju/0818230.htm)
+- [科技股暴跌为何散户没“察觉”](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
+- [新乐器！订书钉演奏《千本樱》](http://www.daogukj.com/xoshfaqj/)
+- [足坛真神TOP：亚马尔！西班牙世界杯冠军！谁的青春竟能如此](http://www.movie.hkepx.cn/xiju/4934568.htm)
+- [1~11集合集来喽!](http://www.daogukj.com/wiudnclj/)
+- [14岁少年文身成大花腿 家属索赔20万](http://www.movie.hkepx.cn/movie/0173822.htm)
+- [自来水有氯味就是不卫生？谣言](http://www.daogukj.com/4402502)
+- [西班牙两位公主再捧大力神杯](http://www.movie.hkepx.cn/xiju/3001134.htm)
+- [想减肥报完游泳班的人天塌了](http://www.daogukj.com/wkrcfluq/)
+- [西班牙阿根廷赛后打起来了](http://www.movie.hkepx.cn/movie/6354712.htm)
+- [香港演员、谢霆锋父亲谢贤去世，他在影坛留下了哪些经典作品？你对他有哪些记忆？](http://www.movie.hkepx.cn/xiju/8131821.htm)
+- [《功夫女足》观众看了都说好，为什么影评人说烂大街？](http://www.daogukj.com/4751279)
+- [西班牙夺冠路上唯一没赢的是佛得角](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
+- [上海特大暴雨致新华医院一大楼积水](http://www.daogukj.com/6772234)
+- [昭阳公主定档](http://www.movie.hkepx.cn/movie/1847830.htm)
 
 </details>
 
 ## 原始来源
 
-- [马龙/许昕获全国乒乓球锦标赛男双冠军，如何评价这场比赛？](https://www.zhihu.com/question/2062261231742707046)
+- [西班牙队领奖时阿根廷队集体背过身，被批毫无风度，怎样看待他们的做法？为啥本届世界杯阿根廷风评这么差？](https://www.zhihu.com/question/2062500114510214490)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7b76811d8275be220b3e -->
+<!-- content-fingerprint: 2c31d447c85981607fca -->
