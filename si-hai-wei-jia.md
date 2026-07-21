@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 树恨你
+# 如何看待旭旭宝宝回应网暴风波，称「一句一地鸡毛被黑切片利用，自己绝不向造谣者妥协」？
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：4729312 · 分类：单机游戏 · 更新：2026-07-21T17:42:07+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：341 万热度 · 分类：问答 · 更新：2026-07-21T23:55:46+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“树恨你”位列第 1 位，公开热度指标为 4729312，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待旭旭宝宝回应网暴风波，称「一句一地鸡毛被黑切片利用，自己绝不向造谣者妥协」？”位列第 1 位，公开热度指标为 341 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：树恨你 Game：Trees Hate You ⛔请勿相信其他任何自称是我（鲤鱼Ace）的言论或求助 ⛔我不会在任何社交平台上创建官方社群或添加好友 ⛔请勿相信由人为模仿或人工智能生成关于我（鲤鱼Ace）的任何内容 ⛔内容仅供娱乐，与现实中任何事件无关，请勿代入并联想，请勿模仿 ⛔未经授权，禁止转载！
+来源公开摘要显示：旭旭宝宝在7月20日的视频中还原了事件过程：从最初一句普通的观影偏好被曲解为不爱国，到自己反击黑粉的言论被切片搬运、刺激路人情绪，再到水军下场连带网暴其周边朋友。 他表示有许多清醒的水友在帮他澄清，自己绝不向这种泼脏水的手段妥协。 在当下的短视频生态中，这种利用黑切片+制造对立+水军毁掉一个主播的套路有多可怕？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [台风“红霞”要来了](wu-gu-feng-deng.md)
-- [外卖员被3烈犬吓尖叫主人说不咬人](liu-shen-wu-zhu.md)
-- [菲方恶意攻击致中方人员受伤](qi-shang-ba-xia.md)
-- [中国海警局发布菲律宾非法「坐滩」57 号舰蓄意挑衅的声明，并公布现场画面，有哪些信息值得关注？](ba-mian-ling-long.md)
+- [树恨你](wu-gu-feng-deng.md)
+- [BBA集体降价 销售：价格还能谈](liu-shen-wu-zhu.md)
+- [九门](qi-shang-ba-xia.md)
+- [王毅：菲军警部分势力蓄意挑衅](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [入伏了，解暑实力排行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [90后家长整顿家长群](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [谢贤第一任妻子哭到沙哑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [AI都扛不住反复焦虑的人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [房车博主大批消失，床车自驾爆火，二者差距到底有多大？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [《冰纷美加墨》收官，这一个多月的一个头两个大，熬过来后我会感谢这些夜晚，我或许很难爱上足球，但我爱这种和亿万人有共同回忆的时刻。](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [长鑫科技：网上投资者放弃认购658万股](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [事关A股市场 证监会最新发声](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [露露饮料被曝成分虚标](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [终于理解奶奶辈的衣服了](http://www.daogukj.com/7394302)
-- [90后清华天才 干崩了美股](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [从杨过到赌神 谢贤的传奇一生](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [入伏了，解暑实力排行](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [马宁首次回应无缘主哨淘汰赛，称到现在都不知道为什么，配置问题不是核心原因，那问题可能出在哪里？](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [“广西女流浪汉怀孕”系谣言](http://www.daogukj.com/thgdlrxk/)
-- [新乐器！订书钉演奏《千本樱》](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [阿根廷首都球迷聚集演变为骚乱，警方出动水炮车，15 人被捕，如何看待此类冲突？阿根廷足球文化有何特点？](http://www.daogukj.com/qqvbmaen/)
-- [菲律宾为何此时在仁爱礁制造冲突](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [菲方恶意攻击致中方人员受伤](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [广西辟谣“女流浪汉怀孕”](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [员工嫌弃母亲被老板直接辞退](http://www.daogukj.com/6313812)
-- [鬼压床：全人类为何共享着同一个噩梦？](http://www.daogukj.com/wczbkkvt/)
-- [深圳地铁「逢包必检、逢人必查」，将对市民出行带来哪些影响？](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [退钱哥晒世界杯观赛支出：超13万](http://www.daogukj.com/7394302)
+- [A股六大重磅信号落地](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [博主：谢贤一生藏着香港影视业变迁](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [房车博主大批消失，床车自驾爆火，二者差距到底有多大？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [小米上调全年手机出货目标至 1.1 亿部，增幅约 16%，增量主要来自低端机型，如何看待此举？](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [“养老服务师考试10月开考”不实](http://www.daogukj.com/thgdlrxk/)
+- [西班牙最后夺冠，会改变各国接下来几年的踢法吗？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [50岁李小冉素颜白得发光](http://www.daogukj.com/qqvbmaen/)
+- [NewJeans回归预告](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [九门](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [「怡颗莓」草莓被指检出8种PFAS永久性化学物，在美遭集体起诉，这些从何而来？食用风险有多大？](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [装修工人封顶将工友封进夹层](http://www.daogukj.com/6313812)
+- [千万博主谈b站真相（完整版）](http://www.daogukj.com/wczbkkvt/)
+- [如何看待世界杯决赛之后，西班牙队在官方的庆祝照片上把特朗普给裁剪掉了？](http://www.movie.hkepx.cn/movie/7868565.htm)
 - [媒体探访从小树林出圈的“26版西游记”](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [工业对经济增长贡献率超35%](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [家长假装做CT哄孩子戒糖](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [台风“红霞”要来了](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [怡颗莓回应检出致癌物](http://www.daogukj.com/jjlkzcvz/)
-- [王玉雯在白鹿面前很少化妆](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [AI的猴子为什么能让菲律宾“破防”](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [AI 的「最后一公里」，还要走多久？](http://www.daogukj.com/drcaefzl/)
-- [如何看待旭旭宝宝回应网暴风波，称「一句一地鸡毛被黑切片利用，自己绝不向造谣者妥协」？](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [房车博主大批消失，床车自驾爆火，二者差距到底有多大？](http://www.daogukj.com/rrxeunix/)
-- [张柏芝月中火速安排大儿子回香港](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [阿根廷队多人面临禁赛](http://www.daogukj.com/qekijaaa/)
-- [亚马尔夺冠 “亚马弟”成最亮眼的崽](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [为什么日韩人民突然同步爱吃麻辣烫了？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [影视飓风被指一群员工陪老板演松弛感白人，影视飓风回应「解读太恶毒」，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [Bin暂别赛场](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [OpenAI 负责人称 Kimi 开源是减速主义，他的说法有道理吗？开源对 AI 的发展能带来什么？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [锋芝 原配真夫妻的含金量](http://www.daogukj.com/4880877)
-- [26岁女子恋爱后体检发现自己是男性](http://www.daogukj.com/gyblgzpw/)
-- [怡颗莓 致癌物](http://www.daogukj.com/3742193)
-- [菲方恶意攻击致使中方人员受伤](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [令人震惊的玩家](http://www.daogukj.com/yhmvbvtt/)
-- [A股](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [月嫂看护时睡着致26天婴儿摔落](http://www.daogukj.com/4405323)
-- [90后家长整顿家长群](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [乐事回应「消费者吃到蓝色薯片」，系工厂使用的着色验证薯片，不影响食品安全与品质，薯片为什么要着色验证？](http://www.daogukj.com/ydbbqbuc/)
-- [相亲2天花33万闪婚 1月后女方提离婚](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [夫妻俩夜里抓知了猴双双坠井被困](http://www.daogukj.com/5927597)
-- [《鸣潮》巡回演唱会「致予新世界」官方录播](http://www.daogukj.com/3691526)
-- [儿女不愿接班 创始人套现13亿离场](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [33岁外卖员脑梗倒地多日才被发现](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [个人养老金缴费水平将提高](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [西安中考满分 640，600 分以上超 10500 人，599 分基本无好学校可选，如何看待？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [感谢每一份付出，只要信念仍在，我们终会再次出发](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [如何看待父母「你不要比吃，不要比穿，就比学习」的想法？](http://www.daogukj.com/9555051)
-- [菲2艘海警船正接近仁爱礁](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [9图看我国新兴产业积厚成势](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [王楚然 职业生涯三把火](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [树恨你](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [菲方恶意攻击致中方人员受伤](http://www.daogukj.com/jjlkzcvz/)
+- [《功夫女足》票房破16亿](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [何运晨维权](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [曝张柏芝月中火速安排儿子返港陪谢贤](http://www.daogukj.com/drcaefzl/)
+- [专访河南漂流哥](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [承认吧，你也无法拒绝陈都灵这样的队友！](http://www.daogukj.com/rrxeunix/)
+- [曝张雅琪已婚](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [谁来救救瘦子在夏天的食欲](http://www.daogukj.com/qekijaaa/)
+- [一条老奶奶](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [世界人工智能大会达成丰硕成果](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [寝室睡个觉真难](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [专家：黄金已严重超卖](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [听说日本自行车拥有量亚洲第一，日本人真的这么喜欢骑自行车吗？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [买的金针菇忘记吃了成这样了](http://www.daogukj.com/4880877)
+- [《功夫女足》上映 10 天票房破 15 亿，电影做对了哪些事？给周星驰、张小斐、迪丽热巴带来哪些收益？](http://www.daogukj.com/gyblgzpw/)
+- [这一秒过火 听劝](http://www.daogukj.com/3742193)
+- [因提亲一句玩笑公公送5吨西瓜](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [武汉一工人高空作业从60层降到14层，发现副绳疑遭人为割断，此举可能触犯了哪些法律？](http://www.daogukj.com/yhmvbvtt/)
+- [中国数学家王虹邓煜有望斩获最高奖项](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [沉浸式感受清朝御厨制作摔不碎的豆腐](http://www.daogukj.com/4405323)
+- [长鑫科技：网上投资者放弃认购658万股](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [26岁女子恋爱后体检发现自己是男性](http://www.daogukj.com/ydbbqbuc/)
+- [男子用免打孔单杠倒立锻炼摔成脑疝](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [台风“红霞”要来了](http://www.daogukj.com/5927597)
+- [大狗嚼 这一口会很疯狂！](http://www.daogukj.com/3691526)
+- [证监会召开座谈会：主动回应市场关切](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [丹尼尔呢](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [差点被烟管单杀了](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [马宁首次回应无缘主哨淘汰赛，称到现在都不知道为什么，配置问题不是核心原因，那问题可能出在哪里？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [怎么理解苏轼的“人间有味是清欢”？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [女子性交易发现避孕套脱落勒索8万](http://www.daogukj.com/9555051)
+- [美加墨世界杯的三个意难平](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [树恨你](https://b23.tv/BV1h4KU66ENd)
+- [如何看待旭旭宝宝回应网暴风波，称「一句一地鸡毛被黑切片利用，自己绝不向造谣者妥协」？](https://www.zhihu.com/question/2062763580878071282)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 61b12520ceda2fae113c -->
+<!-- content-fingerprint: 1293769c1b12d5078ca2 -->
