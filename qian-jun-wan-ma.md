@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 我国社会稳定形势持续向好
+# 如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：996723 · 分类：国内时政 · 更新：2026-07-24T23:15:15+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：341 万热度 · 分类：问答 · 更新：2026-07-25T04:05:18+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“我国社会稳定形势持续向好”位列第 3 位，公开热度指标为 996723，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？”位列第 3 位，公开热度指标为 341 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：如果在一个晚上，一名男子偷偷撬锁进入别人的房子不知是企图盗窃、抢劫还是杀人。 屋内的人查看监控看到有人已经在撬锁。 他立即报警的同时起锅烧油，并且在门口守株待兔。等男子进入屋内之后迎面一勺热油泼到男子全身导致其重度烧伤。 警方赶来后将重度烧伤的入室男子拨打了120，并且录取了口供。 而入室男子随后被送往医院抢救后活了下来，事后入室男子的家属反起诉屋主。而入室男子事后辩称自己只是喝醉了酒才进入屋内。 请问屋主的行为是否属于正当防卫？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `国内时政`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [从三组外贸数据读懂“中国机遇2.0”](wan-zi-qian-hong.md)
-- [如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？](niao-yu-hua-xiang.md)
-- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](shan-qing-shui-xiu.md)
-- [暑期游火爆 网红民宿老板却亏麻了](feng-he-ri-li.md)
+- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](wan-zi-qian-hong.md)
+- [美国被曝考虑对第8国动武](niao-yu-hua-xiang.md)
+- [微信撤回消息后可删除提示字](shan-qing-shui-xiu.md)
+- [媒体评王虹获奖：别再说寒门难出贵子](feng-he-ri-li.md)
 
 ## 站内推荐
 
-- [歌手排名](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [四字名已经满足不了90后家长了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [明天入中伏](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [成吉思鸡200卢比买一送一，我只要送的那份](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [詹姆斯加盟76人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [成吉思鸡200卢比买一送一，我只要送的那份](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [遗忘之海 × ASHLEY WOOD艺术家联动PV —「锋下之形」](http://www.daogukj.com/8034746)
-- [暑期游火爆 网红民宿老板却亏麻了](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
-- [王兴兴登《时代》封面](http://www.daogukj.com/yjeybyqr/)
-- [树恨你](http://www.movie.hkepx.cn/movie/0234270.htm)
-- [年内近90城发房补](http://www.movie.hkepx.cn/xiju/1436315.htm)
-- [长鑫科技一签能赚多少](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
-- [峰学蔚来武亮住院](http://www.movie.hkepx.cn/movie/0738215.htm)
-- [俄军苏-57战机坠毁与乌袭击有关吗](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
-- [黄金还能不能买](http://www.movie.hkepx.cn/xiju/4806301.htm)
-- [窦靖童第一](http://www.movie.hkepx.cn/xiju/7489093.htm)
-- [睡眠好坏和床头朝向有关系吗](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
-- [“鞋拔子脸”维权女孩：修复至少30万](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
-- [如何评价荣耀最新的 logo？为啥要在这个时间点更换logo？](http://www.movie.hkepx.cn/movie/1016973.htm)
-- [证监会原副主席方星海被查](http://www.movie.hkepx.cn/movie/8785597.htm)
-- [歌手排名](http://www.daogukj.com/uxoqsalx/)
-- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.movie.hkepx.cn/movie/2181882.htm)
-- [从数学研究角度，为什么王虹可以在本科小透明后取得巨大突破？](http://www.movie.hkepx.cn/movie/6448079.htm)
-- [方某军因操纵证券市场被罚没1.75亿](http://www.movie.hkepx.cn/movie/4252904.htm)
-- [大叔跳江救的女娃今年考上北大了](http://www.movie.hkepx.cn/movie/7165592.htm)
-- [【纪录片】地球·劫后重生 中配版07 大陆碰撞](http://www.play.hengshemaoyi.cn/xiju/8975129.htm)
-- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](http://www.movie.hkepx.cn/xiju/1092537.htm)
-- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
-- [如何看待内存的涨价终于波及到了显卡，50系显卡逐渐大面积缺货开始暴涨？](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
-- [林依轮复刻白鹿周生如故红衣造型](http://www.daogukj.com/5516263)
-- [亚足联为何反对世界杯扩军至64队](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
-- [中方管制14家欧盟实体释放什么信号](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
-- [全宇宙最阴的物件](http://www.daogukj.com/dxqevygl/)
-- [微信撤回消息后可删除提示字](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
-- [孙颖莎俱乐部回应伤情](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
-- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
-- [为什么感觉现在小孩越来越笨了？](http://www.daogukj.com/zkdbaajm/)
-- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](http://www.movie.hkepx.cn/movie/3226951.htm)
-- [如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？](http://www.movie.hkepx.cn/movie/8362863.htm)
-- [森罗物语扩展包/沉浸式吃播展示 （部分）](http://www.movie.hkepx.cn/movie/9956114.htm)
-- [长鑫科技上市时间敲定 7 月 27 日，哪些信息值得关注？你看好它的上市吗？](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
-- [俄罗斯奶牛猫运毒被抓只能喵喵喵](http://www.movie.hkepx.cn/xiju/7498992.htm)
-- [中国卖不动的车在欧洲上了销量榜](http://www.movie.hkepx.cn/movie/5631141.htm)
-- [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.daogukj.com/1160189)
-- [周星驰叫迪丽热巴巴爷](http://www.movie.hkepx.cn/movie/6067790.htm)
-- [Angelababy13岁旧照](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
-- [中国海警水炮喷射驱离菲船只现场](http://www.movie.hkepx.cn/movie/3280328.htm)
-- [瓜迪奥拉婉拒意大利男足主教练帅位，据称其「经过了数日的权衡」，对此你怎么看？](http://www.daogukj.com/fkubbivn/)
-- [博主：一场医考骚乱撕开印度深层困局](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
-- [张柏芝这些年被路人偶遇时拍到的图片](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
-- [A股史上最大股票回购方案](http://www.daogukj.com/pdxfeqmt/)
-- [中南大学回应一硕士论文13页雷同](http://www.movie.hkepx.cn/xiju/4223434.htm)
-- [男子在家裸体被女邻居发群是谁错了](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
-- [射雕英雄传侠之大者全网收视榜](http://www.daogukj.com/9192187)
-- [如何看待近期日本面临的股债汇「三杀」的境况？](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
-- [TES战胜狼队](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
+- [亚足联为何反对世界杯扩军至64队](http://www.daogukj.com/8034746)
+- [媒体评王虹获奖：别再说寒门难出贵子](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
+- [男生中考699分偷偷改志愿读中职](http://www.daogukj.com/yjeybyqr/)
+- [【第48版】如果“豆包”死掉你会怎样-【AI全民制作人】](http://www.movie.hkepx.cn/movie/0234270.htm)
+- [年会不能停2口碑](http://www.movie.hkepx.cn/xiju/1436315.htm)
+- [目前除了王虹和邓煜两位数学家，还有哪些华人数学家未来有望争取菲尔兹奖？](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
+- [韦东奕课后向王虹追问请教](http://www.movie.hkepx.cn/movie/0738215.htm)
+- [物业大撤退背后发生了什么](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
+- [男子捂死妻子埋尸荒野13年后被抓](http://www.movie.hkepx.cn/xiju/4806301.htm)
+- [76人阵容](http://www.movie.hkepx.cn/xiju/7489093.htm)
+- [AI重现狼牙山五壮士英雄壮举](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
+- [连续21天十点睡六点起，我真的会变健康吗？](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
+- [LPL2026赛季第三赛段组内赛EDG 1:2 BLG，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/1016973.htm)
+- [广东多地宣布：停止一切线下培训](http://www.movie.hkepx.cn/movie/8785597.htm)
+- [詹姆斯加盟76人](http://www.daogukj.com/uxoqsalx/)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.movie.hkepx.cn/movie/2181882.htm)
+- [《下一个是谁》第七季（2）](http://www.movie.hkepx.cn/movie/6448079.htm)
+- [《最绝望の主持人》](http://www.movie.hkepx.cn/movie/4252904.htm)
+- [台风红霞逼近广东强度将爆发](http://www.movie.hkepx.cn/movie/7165592.htm)
+- [詹姆斯发长文](http://www.play.hengshemaoyi.cn/xiju/8975129.htm)
+- [证监会原副主席方星海被查](http://www.movie.hkepx.cn/xiju/1092537.htm)
+- [微信撤回消息后可删除提示字](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
+- [12306 优先为老年旅客分配下铺，而带娃旅客不优先，该如何平衡不同群体需求？](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
+- [王虹获奖感言「很幸运在合适时间遇见合适的人，得到正确引导」，你怎么看？](http://www.daogukj.com/5516263)
+- [方某军因操纵证券市场被罚没1.75亿](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
+- [怎样看待女生越来越不喜欢肌肉男的现象？](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
+- [如何看待内存的涨价终于波及到了显卡，50系显卡逐渐大面积缺货开始暴涨？](http://www.daogukj.com/dxqevygl/)
+- [如何看待「詹姆斯2年800万美元加盟76人，第2年球员选项」，老詹这一决定的未来前景如何 ？](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
+- [小伙在土耳其为孕妻买甜品被刺6刀](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
+- [王兴兴登《时代》封面](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
+- [詹姆斯年薪仅400万](http://www.daogukj.com/zkdbaajm/)
+- [“广西百色遭遇严重洪灾”系谣言](http://www.movie.hkepx.cn/movie/3226951.htm)
+- [美国被曝考虑对第8国动武](http://www.movie.hkepx.cn/movie/8362863.htm)
+- [一招区分动物奶油和植物奶油](http://www.movie.hkepx.cn/movie/9956114.htm)
+- [Shams：勒布朗-詹姆斯2年800万签约76人，第二年球员选项，如何评价这一操作？](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
+- [《歌手》第10期排名：窦靖童第一](http://www.movie.hkepx.cn/xiju/7498992.htm)
+- [女子将家中电视背景墙装成教室黑板](http://www.movie.hkepx.cn/movie/5631141.htm)
+- [歌手排名](http://www.daogukj.com/1160189)
+- [为什么感觉现在小孩越来越笨了？](http://www.movie.hkepx.cn/movie/6067790.htm)
+- [感觉宋威龙好会谈恋爱](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
+- [从24℃到46℃，零跑A10被高温打回原形吗？](http://www.movie.hkepx.cn/movie/3280328.htm)
+- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](http://www.daogukj.com/fkubbivn/)
+- [马克龙打电话祝贺王虹获奖](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
+- [白鹿真发长度](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
+- [詹姆斯底薪](http://www.daogukj.com/pdxfeqmt/)
+- [比亚迪“大汉”要来了](http://www.movie.hkepx.cn/xiju/4223434.htm)
+- [【纪录片】地球·劫后重生 中配版07 大陆碰撞](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
+- [高温天做5件事会给身体埋下病根](http://www.daogukj.com/9192187)
+- [乌克兰大变天了](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
+- [中美贸易连涨3个月意味着什么](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
 
 </details>
 
 ## 原始来源
 
-- [我国社会稳定形势持续向好](https://s.weibo.com/weibo?q=%E6%88%91%E5%9B%BD%E7%A4%BE%E4%BC%9A%E7%A8%B3%E5%AE%9A%E5%BD%A2%E5%8A%BF%E6%8C%81%E7%BB%AD%E5%90%91%E5%A5%BD)
+- [如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？](https://www.zhihu.com/question/2057805207183085608)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: aff68d77ffb45fade4e1 -->
+<!-- content-fingerprint: 1db6582e74b9adf02112 -->
