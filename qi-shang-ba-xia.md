@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 王虹亲戚称家族已走出6名大学生
+# 携程被罚51.79亿
 
-> 来源：今日头条热榜 · 排名：第 2 位 · 热度：35254198 · 分类：新事件上榜 · 更新：2026-07-25T07:46:42+08:00
+> 来源：微博热搜 · 排名：第 2 位 · 热度：1483288 · 分类：民生新闻 · 更新：2026-07-25T15:33:33+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“王虹亲戚称家族已走出6名大学生”位列第 2 位，公开热度指标为 35254198，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“携程被罚51.79亿”位列第 2 位，公开热度指标为 1483288，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [如何看待「詹姆斯2年800万美元加盟76人，第2年球员选项」，老詹这一决定的未来前景如何 ？](ba-mian-ling-long.md)
-- [永劫，再打十年也不会腻 | 新英雄【全职高手 · 叶修】CG](jiu-niu-yi-mao.md)
-- [解码中国经济半年报](shi-quan-shi-mei.md)
-- [我国首条穿越长江高铁隧道贯通](bai-fa-bai-zhong.md)
+- [小鹏X9因趴窝问题召回 33473 辆，有车主称大部分都是3万公里就趴窝，换完再塌，哪个流程出了问题？](ba-mian-ling-long.md)
+- [这才是真正的民用机床](jiu-niu-yi-mao.md)
+- [防溺水 这样做](shi-quan-shi-mei.md)
+- [景德镇手工瓷业遗存列入世界遗产](bai-fa-bai-zhong.md)
 
 ## 站内推荐
 
-- [王虹获奖感言「很幸运在合适时间遇见合适的人，得到正确引导」，你怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [改写“意难平”《幻影忍者》二创挑战全新结局重磅放出⚡️](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [【徐静雨】詹姆斯加盟费城76人，伟大的决定，詹霸天重回东部了！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [树恨你](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [国民党全代会吴伯雄交棒郑丽文](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [两大存储芯片巨头股价大跌](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [商务部宣布为维护国家安全和利益，将 14 家欧盟实体列入出口管制管控名单，有哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [心灵在2012年的一次播报，时隔14年落在了自己的身上，时间绕了一圈，完成了温暖的闭环。](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《最绝望の主持人》](http://www.play.hengshemaoyi.cn/kongbu/5645462.htm)
-- [前 LPL 解说孙亚龙发长文曝 Bin 自降薪水后又称降薪、队内吵架为谣言，到底啥情况？](http://www.movie.hkepx.cn/movie/8293092.htm)
-- [如何看待近期日本面临的股债汇「三杀」的境况？](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
-- [连续21天十点睡六点起，我真的会变健康吗？](http://www.daogukj.com/8375241)
-- [如何看待「詹姆斯2年800万美元加盟76人，第2年球员选项」，老詹这一决定的未来前景如何 ？](http://www.daogukj.com/iaraacys/)
-- [美加墨世界杯后，哈兰德、亚马尔身价达到惊人的 2.2 亿欧元，已突破历史，这是一个什么水平？](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
-- [比亚迪“大汉”要来了](http://www.daogukj.com/jkwmzbpc/)
-- [奥尼尔：詹姆斯是完美领袖](http://www.play.hengshemaoyi.cn/kongbu/9710980.htm)
-- [自驾克罗地亚，你永远猜不到下一站会有多“抓马”](http://www.movie.hkepx.cn/xiju/9588893.htm)
-- [我国首条穿越长江高铁隧道贯通](http://www.movie.hkepx.cn/movie/8778310.htm)
-- [詹姆斯新赛季年薪创NBA生涯新低](http://www.movie.hkepx.cn/movie/6076618.htm)
-- [男子在家裸体被女邻居发群是谁错了](http://www.daogukj.com/dpkkzqnv/)
-- [出师表翻译成日语再翻回来](http://www.movie.hkepx.cn/movie/1651889.htm)
-- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.daogukj.com/9130223)
-- [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.movie.hkepx.cn/xiju/5806124.htm)
-- [女孩卖4克头发换12元买奶茶](http://www.daogukj.com/fkjhvpfb/)
-- [辟谣周榜｜沈阳全城停水系谣言](http://www.play.hengshemaoyi.cn/kongbu/6838815.htm)
-- [韦东奕课后向王虹追问请教](http://www.movie.hkepx.cn/xiju/2953910.htm)
-- [美国被曝考虑对第8国动武](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
-- [王兴兴登《时代》封面](http://www.movie.hkepx.cn/movie/7538444.htm)
-- [《下一个是谁》第七季（2）](http://www.movie.hkepx.cn/movie/4849813.htm)
-- [SpaceX 星舰实施第 13 次试飞，超重助推器按计划完成海上回收着陆，此次发射有哪些看点？](http://www.movie.hkepx.cn/xiju/0772096.htm)
-- [感觉宋威龙好会谈恋爱](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
-- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](http://www.movie.hkepx.cn/movie/2588691.htm)
-- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](http://www.play.hengshemaoyi.cn/kongbu/0673260.htm)
-- [野猴坐工地狂喝饮料 工人一脸无奈](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
-- [每周2天少吃坚持一月瘦5斤](http://www.movie.hkepx.cn/movie/5784282.htm)
-- [俄罗斯再成中国汽车最大买家](http://www.movie.hkepx.cn/movie/3182879.htm)
-- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](http://www.daogukj.com/3766509)
-- [永劫，再打十年也不会腻 | 新英雄【全职高手 · 叶修】CG](http://www.play.hengshemaoyi.cn/xiju/6973597.htm)
-- [多所“小而精”大学分数线超985](http://www.play.hengshemaoyi.cn/xiju/0738996.htm)
-- [A股史上最大股票回购方案](http://www.daogukj.com/ctquznvn/)
-- [火箭穿闪电一飞冲天](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
-- [亚足联为何反对世界杯扩军至64队](http://www.movie.hkepx.cn/xiju/5105551.htm)
-- [乌克兰大变天了](http://www.daogukj.com/8216748)
-- [男生中考699分偷偷改志愿读中职](http://www.movie.hkepx.cn/xiju/8980675.htm)
-- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](http://www.movie.hkepx.cn/xiju/6567869.htm)
-- [王虹回应为何没直接读北大数学系](http://www.daogukj.com/njgxlzmh/)
-- [树恨你](http://www.movie.hkepx.cn/xiju/5238935.htm)
-- [【苏星河车机】小资人群最爱的车，车机能有多么离谱？](http://www.movie.hkepx.cn/xiju/5524746.htm)
-- [男子潜逃30多年后回老家：怕客死异乡](http://www.play.hengshemaoyi.cn/kongbu/1255416.htm)
-- [“鞋拔子脸”维权女孩：修复至少30万](http://www.movie.hkepx.cn/movie/0643495.htm)
-- [王楚然绊了一下反而出了神图](http://www.daogukj.com/4160069)
-- [周星驰叫迪丽热巴“巴爷”](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
-- [鹭卓直播](http://www.movie.hkepx.cn/movie/5891565.htm)
-- [【纪录片】地球·劫后重生 中配版07 大陆碰撞](http://www.movie.hkepx.cn/movie/7078938.htm)
-- [近日马斯克称其2万亿新模型「可能超越Kimi」，可能超越Kimi的具体依据是什么？对此你们是怎么看？](http://www.daogukj.com/mqfndzhh/)
-- [《魔兽世界》GM用秒杀能力帮女主播打23层大秘境，遭到玩家严厉谴责，这波丑闻暴雪怎么处理才服众？](http://www.play.hengshemaoyi.cn/xiju/6747952.htm)
-- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](http://www.daogukj.com/1314318)
-- [林依轮复刻白鹿周生如故红衣造型](http://www.daogukj.com/8186889)
+- [任正非为什么说「τ 定律是华为唯一出路」？](http://www.play.hengshemaoyi.cn/kongbu/5645462.htm)
+- [王楚钦击球失败小表情](http://www.movie.hkepx.cn/movie/8293092.htm)
+- [台风红霞](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
+- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](http://www.daogukj.com/8375241)
+- [小鹏X9因趴窝问题召回 33473 辆，有车主称大部分都是3万公里就趴窝，换完再塌，哪个流程出了问题？](http://www.daogukj.com/iaraacys/)
+- [以“上嫁姿态”进入豪门，婚后转为“平嫁姿态”相处，可行吗？](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
+- [中伏到 你的脂肪准备好了吗](http://www.daogukj.com/jkwmzbpc/)
+- [曝大S房产已过户至具俊晔和子女名下](http://www.play.hengshemaoyi.cn/kongbu/9710980.htm)
+- [我会顺着网线 找到你！](http://www.movie.hkepx.cn/xiju/9588893.htm)
+- [景德镇手工瓷业遗存列入世界遗产](http://www.movie.hkepx.cn/movie/8778310.htm)
+- [杭州多地巨响 有人称房子都颤了](http://www.movie.hkepx.cn/movie/6076618.htm)
+- [黄雅琼怀孕](http://www.daogukj.com/dpkkzqnv/)
+- [曲婉婷点赞冰雪女王梗](http://www.movie.hkepx.cn/movie/1651889.htm)
+- [台风预计今晚登陆 长沙将有大暴雨](http://www.daogukj.com/9130223)
+- [【独家】《凡人修仙传之慕兰之战》第8集【总第184集】](http://www.movie.hkepx.cn/xiju/5806124.htm)
+- [7.9元手机壳惹来38万元索赔](http://www.daogukj.com/fkjhvpfb/)
+- [郭碧婷称你们最好永远误解](http://www.play.hengshemaoyi.cn/kongbu/6838815.htm)
+- [黄雅琼回应怀孕后还玩拼豆](http://www.movie.hkepx.cn/xiju/2953910.htm)
+- [「四位菲尔兹奖主有三位会说中文」，如何看待菲奖得主约翰·帕登（白杰文）的汉语水平？你对他还有哪些了解？](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
+- [大脑有上百亿个神经元，为什么正常人只产生一个意识？是什么在阻止第二个“我”的出现？](http://www.movie.hkepx.cn/movie/7538444.htm)
+- [携程滥用市场支配地位实施垄断行为，被罚没 51.79 亿元，起到哪些警示作用？对相关行业有何影响？](http://www.movie.hkepx.cn/movie/4849813.htm)
+- [直击台风红霞路径](http://www.movie.hkepx.cn/xiju/0772096.htm)
+- [台风红霞最新路径](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
+- [三个“第一”复盘携程垄断案始末](http://www.movie.hkepx.cn/movie/2588691.htm)
+- [商务部宣布为维护国家安全和利益，将 14 家欧盟实体列入出口管制管控名单，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/0673260.htm)
+- [菲律宾挑事 驻菲大使：坚决打回去](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
+- [郭碧婷说什么叫我给人家生孩子](http://www.movie.hkepx.cn/movie/5784282.htm)
+- [直哉挑衅佐助 十尾空降涩谷](http://www.movie.hkepx.cn/movie/3182879.htm)
+- [重庆警方今年打掉境内外电诈团伙198个](http://www.daogukj.com/3766509)
+- [这才是真正的民用机床](http://www.play.hengshemaoyi.cn/xiju/6973597.htm)
+- [井泉大使：闹什么闹 承担得起后果吗](http://www.play.hengshemaoyi.cn/xiju/0738996.htm)
+- [儿子陪老爸找工作！没想到我会陪55岁的老爸去招聘会...](http://www.daogukj.com/ctquznvn/)
+- [AI血检提前15年预警心脏病](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
+- [《最绝望の主持人》](http://www.movie.hkepx.cn/xiju/5105551.htm)
+- [菲尔兹奖得主邓煜的知乎主页引热议，嗑 CP、写物理诗，你怎么看这位答主科研之外的「反差感」解压日常？](http://www.daogukj.com/8216748)
+- [男生中考699分偷改志愿读中职](http://www.movie.hkepx.cn/xiju/8980675.htm)
+- [小米澎程 skynomadn90max 白色测试车现身，这意味着什么？](http://www.movie.hkepx.cn/xiju/6567869.htm)
+- [中国世界遗产+1](http://www.daogukj.com/njgxlzmh/)
+- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.movie.hkepx.cn/xiju/5238935.htm)
+- [携程因垄断行为被罚没51.79亿元](http://www.movie.hkepx.cn/xiju/5524746.htm)
+- [离岸信托个税新规出台，设立、存续、清算全链条征税 适用 20% 税率，将产生哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/1255416.htm)
+- [温兆伦力挺《功夫女足》](http://www.movie.hkepx.cn/movie/0643495.htm)
+- [3胞胎学霸分别被清华北理工北邮录取](http://www.daogukj.com/4160069)
+- [佛得角门将称收到多份来自中国的邀请](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
+- [王腾谈携程被罚51.79亿](http://www.movie.hkepx.cn/movie/5891565.htm)
+- [杨植麟团队 KimiK3 拥有 2.8 万亿参数且团队最小成员仅 17 岁，这意味着什么？](http://www.movie.hkepx.cn/movie/7078938.htm)
+- [辟谣周榜｜沈阳全城停水系谣言](http://www.daogukj.com/mqfndzhh/)
+- [中国大使问菲方闹什么闹能承担后果吗](http://www.play.hengshemaoyi.cn/xiju/6747952.htm)
+- [2026 乒超联赛常规赛第一站男团，王楚钦 1-2 张煜东，如何评价本场比赛？](http://www.daogukj.com/1314318)
+- [奥运冠军黄雅琼怀孕](http://www.daogukj.com/8186889)
 
 </details>
 
 ## 原始来源
 
-- [王虹亲戚称家族已走出6名大学生](https://www.toutiao.com/trending/7666229895692848691/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227666229895692848691%22%2C%22hot_board_impr_id%22%3A%22202607250746416232B555AC2BB935F7F5%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [携程被罚51.79亿](https://s.weibo.com/weibo?q=%E6%90%BA%E7%A8%8B%E8%A2%AB%E7%BD%9A51.79%E4%BA%BF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ced3b0947499891c30db -->
+<!-- content-fingerprint: 381124eea7e17d02f00f -->

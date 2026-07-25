@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 广东多地宣布：停止一切线下培训
+# 王小洪会见FBI局长帕特尔
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7807905 · 更新：2026-07-25T07:46:42+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7809307 · 更新：2026-07-25T15:33:33+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“广东多地宣布：停止一切线下培训”位列第 1 位，公开热度指标为 7807905。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“王小洪会见FBI局长帕特尔”位列第 1 位，公开热度指标为 7809307。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：24日晚，潮州市教育局发布通知，全市托幼机构停止一切校内活动，校外教育培训机构停止一切线下培训活动。
+来源公开摘要显示：国务委员、公安部部长王小洪24日在京会见美国联邦调查局局长帕特尔。双方同意在执法领域继续深化交流合作。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [个人贷款新规8月1日起正式实施](yi-xin-yi-yi.md)
-- [从数学研究角度，为什么王虹可以在本科小透明后取得巨大突破？](san-xin-er-yi.md)
-- [《下一个是谁》第七季（2）](si-hai-wei-jia.md)
-- [台风红霞加强](wu-gu-feng-deng.md)
+- [王楚钦爆冷不敌张煜东](yi-xin-yi-yi.md)
+- [王小洪会见美国联邦调查局局长](san-xin-er-yi.md)
+- [携程滥用市场支配地位实施垄断行为，被罚没 51.79 亿元，起到哪些警示作用？对相关行业有何影响？](si-hai-wei-jia.md)
+- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
-- [我国首条穿越长江高铁隧道贯通](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [《魔兽世界》GM用秒杀能力帮女主播打23层大秘境，遭到玩家严厉谴责，这波丑闻暴雪怎么处理才服众？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [美加墨世界杯后，哈兰德、亚马尔身价达到惊人的 2.2 亿欧元，已突破历史，这是一个什么水平？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [怎样看待女生越来越不喜欢肌肉男的现象？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [景德镇手工瓷业遗存列入世界遗产](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [山西运城一路面塌陷处现大量白骨](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [中国大使问菲方闹什么闹能承担后果吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [以“上嫁姿态”进入豪门，婚后转为“平嫁姿态”相处，可行吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [从数学研究角度，为什么王虹可以在本科小透明后取得巨大突破？](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [李昊 十个勤天从来不止四个字](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [张柏芝曾说妈妈是一生的事业](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [“广西百色遭遇严重洪灾”系谣言](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [台风红霞最新路径发布](http://www.daogukj.com/ihcjjgzd/)
-- [特斯拉跌麻了](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [《歌手》第10期排名：窦靖童第一](http://www.daogukj.com/hytgpxub/)
-- [乌克兰大变天了](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [全宇宙最阴的物件](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [詹姆斯发长文](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [台风红霞加强](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [感觉宋威龙好会谈恋爱](http://www.daogukj.com/8357764)
-- [从三组外贸数据读懂“中国机遇2.0”](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](http://www.daogukj.com/rdfrumhx/)
-- [野猴坐工地狂喝饮料 工人一脸无奈](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [⚡一战成名⚡我把风扇立在了一支笔上](http://www.daogukj.com/lntrsvpz/)
-- [奥尼尔：詹姆斯是完美领袖](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](http://www.daogukj.com/mofrooiq/)
-- [王虹获奖感言「很幸运在合适时间遇见合适的人，得到正确引导」，你怎么看？](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [博三女生没结婚问亲戚：谁笑话我妈了](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [詹姆斯加盟76人](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [如何看待「詹姆斯2年800万美元加盟76人，第2年球员选项」，老詹这一决定的未来前景如何 ？](http://www.daogukj.com/8424365)
-- [《下一个是谁》第七季（2）](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [台风](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [出师表翻译成日语再翻回来](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [男生中考699分偷偷改志愿读中职](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [【苏星河车机】小资人群最爱的车，车机能有多么离谱？](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [女孩卖4克头发换12元买奶茶](http://www.daogukj.com/4727274)
-- [美“星舰”实施第13次试飞](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.daogukj.com/2266153)
-- [“鞋拔子脸”维权女孩：修复至少30万](http://www.daogukj.com/3795795)
-- [台风红霞或以巅峰强度登陆广东](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [每周2天少吃坚持一月瘦5斤](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [森罗物语扩展包/沉浸式吃播展示 （部分）](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [周星驰叫迪丽热巴“巴爷”](http://www.daogukj.com/uhjkuxrm/)
-- [男子在家裸体被女邻居发群是谁错了](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [晚上在店里加班处理金枪鱼，顺便切点边角料偷偷做个晚餐吃](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [怎样看待女生越来越不喜欢肌肉男的现象？](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [全球第一个 老挝彻底禁售燃油新车](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [王虹回应为何没直接读北大数学系](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
-- [林依轮复刻白鹿周生如故红衣造型](http://www.daogukj.com/5905118)
-- [亚足联为何反对世界杯扩军至64队](http://www.daogukj.com/gchjscql/)
-- [商务部宣布为维护国家安全和利益，将 14 家欧盟实体列入出口管制管控名单，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [前 LPL 解说孙亚龙发长文曝 Bin 自降薪水后又称降薪、队内吵架为谣言，到底啥情况？](http://www.daogukj.com/9269800)
-- [改写“意难平”《幻影忍者》二创挑战全新结局重磅放出⚡️](http://www.daogukj.com/7091853)
-- [为什么rmvb格式消失了,它在技术上比不上H264吗？](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [美国被曝考虑对第8国动武](http://www.daogukj.com/2402025)
-- [如何看待近期日本面临的股债汇「三杀」的境况？](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [王虹亲戚称家族已走出6名大学生](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [王小洪会见美国联邦调查局局长](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [佛得角门将找到新工作了](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [宇树CEO携载人机甲登《时代》封面](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [十年荣耀初心不改，千般打法运筹帷幄 | 永劫无间新英雄【叶修】、新武器【千机伞】实机演示](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [乒坛“神雕侠侣”有点甜](http://www.daogukj.com/ihcjjgzd/)
+- [欧盟宣布4年来最大规模对俄制裁](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.daogukj.com/hytgpxub/)
+- [菲尔兹奖得主邓煜的知乎主页引热议，嗑 CP、写物理诗，你怎么看这位答主科研之外的「反差感」解压日常？](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [高压线下打电话会引发爆炸系谣言](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [台风红霞最新路径](http://www.daogukj.com/8357764)
+- [上半年农业农村经济发展势头良好](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [三个“第一”复盘携程垄断案始末](http://www.daogukj.com/rdfrumhx/)
+- [菲律宾挑事 驻菲大使：坚决打回去](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.daogukj.com/lntrsvpz/)
+- [曝大S房产已过户至具俊晔和子女名下](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [2026 乒超联赛常规赛第一站男团，王楚钦 1-2 张煜东，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [商务部宣布为维护国家安全和利益，将 14 家欧盟实体列入出口管制管控名单，有哪些信息值得关注？](http://www.daogukj.com/mofrooiq/)
+- [国民党全代会吴伯雄交棒郑丽文](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [胡军李乃文现身书博会支持黄圣依新书](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [携程为何挨了最重的罚](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [小鹏X9因趴窝问题召回 33473 辆，有车主称大部分都是3万公里就趴窝，换完再塌，哪个流程出了问题？](http://www.daogukj.com/8424365)
+- [携程滥用市场支配地位实施垄断行为，被罚没 51.79 亿元，起到哪些警示作用？对相关行业有何影响？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [整活！当做饭很难吃的女友突然买了一兜子菜…男友直接崩溃了！](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [曲婉婷点赞冰雪女王梗](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [男生中考699分偷改志愿读中职](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [携程因垄断行为被罚没51.79亿元](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [7.9元手机壳惹来38万元索赔](http://www.daogukj.com/4727274)
+- [晒背泡脚这2个错90%的人都在犯](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [台风预计今晚登陆 长沙将有大暴雨](http://www.daogukj.com/2266153)
+- [温兆伦力挺《功夫女足》](http://www.daogukj.com/3795795)
+- [除了玩手机还有这么多低成本爱好](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [郭碧婷说什么叫我给人家生孩子](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [《民法典》为什么把“配偶”放在“亲属”的第1位？](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [佛得角门将称收到多份来自中国的邀请](http://www.daogukj.com/uhjkuxrm/)
+- [黄雅琼怀孕](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [王虹获奖感言「很幸运在合适时间遇见合适的人，得到正确引导」，你怎么看？](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [五人分1亿元，由你来进行分配，但凡有一个人拒绝，所有人都会失去全部，你会怎么分配？](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [中国世界遗产+1](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [奥运冠军黄雅琼怀孕](http://www.daogukj.com/5905118)
+- [《最绝望の主持人》](http://www.daogukj.com/gchjscql/)
+- [网友爆料称赛里木湖 G219 国道设了两个卡点，不想进景区也得交钱，这是真的吗？收费合理吗？](http://www.movie.hkepx.cn/xiju/1255661.htm)
+- [王楚钦击球失败小表情](http://www.daogukj.com/9269800)
+- [两大存储芯片巨头股价大跌](http://www.daogukj.com/7091853)
+- [为什么中国父母会沉迷于让孩子吃苦？](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [「四位菲尔兹奖主有三位会说中文」，如何看待菲奖得主约翰·帕登（白杰文）的汉语水平？你对他还有哪些了解？](http://www.daogukj.com/2402025)
+- [台风红霞](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [携程被罚51.79亿](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [广东多地宣布：停止一切线下培训](https://www.baidu.com/s?wd=%E5%B9%BF%E4%B8%9C%E5%A4%9A%E5%9C%B0%E5%AE%A3%E5%B8%83%EF%BC%9A%E5%81%9C%E6%AD%A2%E4%B8%80%E5%88%87%E7%BA%BF%E4%B8%8B%E5%9F%B9%E8%AE%AD&sa=fyb_news&rsv_dl=fyb_news)
+- [王小洪会见FBI局长帕特尔](https://www.baidu.com/s?wd=%E7%8E%8B%E5%B0%8F%E6%B4%AA%E4%BC%9A%E8%A7%81FBI%E5%B1%80%E9%95%BF%E5%B8%95%E7%89%B9%E5%B0%94&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 290d083b4110fc64628b -->
+<!-- content-fingerprint: 59ca74a1b407b6084484 -->
