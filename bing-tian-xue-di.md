@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【独家】牧神记 第93集 弑帝
+# 美国五大科技巨头 AI 隐性债务被曝达1.65万亿美元，四年内增长8倍，巨额表外负债会成为定时炸弹吗？
 
-> 来源：哔哩哔哩热门 · 排名：第 4 位 · 热度：1943679 · 分类：国产动画 · 更新：2026-07-26T19:54:57+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：166 万热度 · 分类：问答 · 更新：2026-07-26T23:47:15+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【独家】牧神记 第93集 弑帝”位列第 4 位，公开热度指标为 1943679，榜单分类为“国产动画”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“美国五大科技巨头 AI 隐性债务被曝达1.65万亿美元，四年内增长8倍，巨额表外负债会成为定时炸弹吗？”位列第 4 位，公开热度指标为 166 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：禅道至高绝学齐开，延丰帝生死未卜
+来源公开摘要显示：美五大科技巨头AI隐性债务被曝达1.65万亿美元 央视新闻消息，21日有消息称，五家美国科技巨头因为不透明的人工智能融资，致使隐性债务规模飙升至1.65万亿美元。 《日经亚洲评论》在查阅了谷歌的母公司“字母表”公司、微软、亚马逊、元宇宙公司和甲骨文公司的财报和其他资料后发现，这五家科技巨头的隐性债务4年内增长了8倍，最近一个季度达到了1.65万亿美元，远超表内约1.35万亿美元的负债规模。 表外租赁与采购致科技巨头负债难以察觉 消息称，这些公司正在迅速扩建数据中心，以推动人工智能的发展，而建设数据中心通常需要数十亿甚至数百亿美元的投资，为降低成本，科技公
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `国产动画`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [31省份上半年GDP公布 6省位次变了](ri-xin-yue-yi.md)
-- [滞销西瓜被网红压价到一毛多一斤](hua-she-tian-zu.md)
-- [业主拒交2年物业费被起诉 法院判了](yi-xin-yi-yi.md)
-- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](san-xin-er-yi.md)
+- [【独家】牧神记 第93集 弑帝](ri-xin-yue-yi.md)
+- [甘肃省委书记省长赶赴山洪现场](hua-she-tian-zu.md)
+- [群星闪耀时撤档](yi-xin-yi-yi.md)
+- [甘肃省委书记和省长赶赴山洪现场](san-xin-er-yi.md)
 
 ## 站内推荐
 
-- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [螃蟹挑战赛](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [⚡️异 域 狗 叫 ⚡️](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [班赛就是我的舞台，我就是主角！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [四川丰谷vs北京一点心动](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [现实里空手夺刀的成功率到底有多高？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [你会让自己孩子和一些品行不端正，学习成绩又不好的孩子成为好朋友吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子偷准婆婆的支付密码 给自己转账](http://www.movie.hkepx.cn/movie/4471620.htm)
-- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](http://www.daogukj.com/xebdfgux/)
-- [美国发生AI失控事故](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
-- [大庆赶海，大海退潮后发现大个的竹节蛏眼，撒上一点盐往外跑](http://www.movie.hkepx.cn/xiju/5621807.htm)
-- [美国五大科技巨头 AI 隐性债务被曝达1.65万亿美元，四年内增长8倍，巨额表外负债会成为定时炸弹吗？](http://www.daogukj.com/dzktieeu/)
-- [《西游记》孙悟空为何从不找结拜兄弟镇元子帮忙？](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
-- [香肠这东西到底是中国人自己发明的还是欧洲传过来的？](http://www.movie.hkepx.cn/movie/4977487.htm)
-- [科幻电影《群星闪耀时》的设定有哪些 bug？](http://www.movie.hkepx.cn/xiju/7776753.htm)
-- [租房发现床上藏摄像头 偷拍者是房东](http://www.daogukj.com/0771353)
-- [观众为何不能容忍长剧片头用AI](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
-- [长期不换头像的人都在想什么](http://www.movie.hkepx.cn/xiju/1266622.htm)
-- [31省份上半年GDP公布 6省位次变了](http://www.daogukj.com/bnubczgn/)
-- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
-- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](http://www.movie.hkepx.cn/xiju/3833912.htm)
-- [工作组赶赴甘肃渭源山洪现场](http://www.daogukj.com/qygzdgwj/)
-- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.movie.hkepx.cn/movie/3609280.htm)
-- [10艘万吨大驱“齐聚”亮相](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
-- [某演员高铁占座 铁路部门回应](http://www.daogukj.com/dxagawao/)
-- [日本称与俄谈重要问题 遭俄方打脸](http://www.daogukj.com/qdpevqqj/)
-- [百万粉丝女网红贩卖私密视频被逮捕](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
-- [台风「红霞」在广东惠州登陆，超越美莎克、巴威，成今年以来登陆我国的最强台风，影响多大？你那里情况如何？](http://www.daogukj.com/tpbetyah/)
-- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
-- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.movie.hkepx.cn/xiju/3442051.htm)
-- [奇瑞董事长：我们不再参加内卷](http://www.movie.hkepx.cn/xiju/4635137.htm)
-- [张颂文和段奕宏跳着舞步上台颁奖](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
-- [螃蟹挑战赛](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
-- [Tiny Giant (Remix) | Zenless Zone Zero](http://www.daogukj.com/eqtbqajy/)
-- [如何评价凡人修仙传导演王裕仁破防骂网友？](http://www.movie.hkepx.cn/movie/5314158.htm)
-- [决战晚自习](http://www.movie.hkepx.cn/movie/1796986.htm)
-- [百花杀大结局](http://www.daogukj.com/yldwicuv/)
-- [港版金秘书为何这样路透](http://www.movie.hkepx.cn/xiju/1923731.htm)
-- [甘肃渭源山洪已致10死](http://www.movie.hkepx.cn/xiju/5823393.htm)
-- [滞销西瓜被网红压价到一毛多一斤](http://www.daogukj.com/2626307)
-- [婴儿是否知道谁是自己的妈妈](http://www.movie.hkepx.cn/xiju/9508117.htm)
-- [王楚钦梁靖崑 1-2 爆冷输给向鹏温瑞博，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/9262898.htm)
-- [【时代少年团】「米爆探班日记」EP01](http://www.daogukj.com/tqdltahc/)
-- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.movie.hkepx.cn/xiju/9646924.htm)
-- [店主卖 7.9 元手机壳时标注「荣耀XX型号」被荣耀索赔 38 万元，如何从法律角度解读？](http://www.daogukj.com/1624901)
-- [台媒：演员王建隆家中去世](http://www.movie.hkepx.cn/movie/6632805.htm)
-- [长鑫科技上市前夕记者探访](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
-- [中国女排1-3意大利获第四名](http://www.daogukj.com/5122805)
-- [红霞持续北上 河南局地有龙卷可能](http://www.movie.hkepx.cn/movie/7942093.htm)
-- [奇怪的玩具工厂 第五章 Part1](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
-- [致富经：村民养殖大狗，发展狗叫经济](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
-- [周星驰：李小龙是我的师傅](http://www.daogukj.com/hdlfcclx/)
-- [十个勤天演唱会取消](http://www.daogukj.com/1703206)
-- [第二代身份证会被消磁？谣言](http://www.daogukj.com/1803044)
-- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.daogukj.com/3520679)
-- [⚡️异 域 狗 叫 ⚡️](http://www.movie.hkepx.cn/xiju/3318389.htm)
-- [小孔摄像头藏进胸牌车钥匙](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
+- [开源Ai性能接近闭源，那些闭源模型的估值怎么维持？](http://www.movie.hkepx.cn/movie/4471620.htm)
+- [甘肃省委书记和省长赶赴山洪现场](http://www.daogukj.com/xebdfgux/)
+- [九寨沟突发泥石流 大批游客滞留](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
+- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](http://www.movie.hkepx.cn/xiju/5621807.htm)
+- [甘肃一景区发生山洪致10死23伤](http://www.daogukj.com/dzktieeu/)
+- [周星驰：中国功夫世界第一](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
+- [第二代身份证会被消磁？谣言](http://www.movie.hkepx.cn/movie/4977487.htm)
+- [山东一高中多名新生身高超1米85](http://www.movie.hkepx.cn/xiju/7776753.htm)
+- [自己吓自己～](http://www.daogukj.com/0771353)
+- [张靓颖张天爱看薛之谦演唱会](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
+- [Tiny Giant (Remix) | Zenless Zone Zero](http://www.movie.hkepx.cn/xiju/1266622.htm)
+- [【独家】牧神记 第93集 弑帝](http://www.daogukj.com/bnubczgn/)
+- [俄罗斯打到缺钱了吗](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
+- [业主拒交2年物业费被起诉 法院判了](http://www.movie.hkepx.cn/xiju/3833912.htm)
+- [仅剩4年 吸烟率如何再降3.2%](http://www.daogukj.com/qygzdgwj/)
+- [今年消费品以旧换新销售额超万亿元](http://www.movie.hkepx.cn/movie/3609280.htm)
+- [杭州已经发展成这样了吗](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
+- [【TF家族练习生】《突围II破局》EP05：你的位置，决定了你有多少选择（下）](http://www.daogukj.com/dxagawao/)
+- [迪丽热巴名字长还有这好处](http://www.daogukj.com/qdpevqqj/)
+- [滞销西瓜被网红压价到一毛多一斤](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
+- [如何看待罗永浩向电视行业“开炮”](http://www.daogukj.com/tpbetyah/)
+- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
+- [段永平称 10 年内大概率不会卖泡泡玛特？十年后的泡泡玛特会是什么样子？](http://www.movie.hkepx.cn/xiju/3442051.htm)
+- [护送迷路大爷回家，心里开心一整天~](http://www.movie.hkepx.cn/xiju/4635137.htm)
+- [这挑战迪迦干完都亮红灯走的](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
+- [现实里空手夺刀的成功率到底有多高？](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
+- [黑龙江佳木斯双胞胎携手考入清华](http://www.daogukj.com/eqtbqajy/)
+- [美对伊空袭突然叫停有何考量](http://www.movie.hkepx.cn/movie/5314158.htm)
+- [台媒：演员王建隆家中去世](http://www.movie.hkepx.cn/movie/1796986.htm)
+- [很难想象这车是怎么开过来的](http://www.daogukj.com/yldwicuv/)
+- [龙卷风突袭 他3分钟失去父母和公司](http://www.movie.hkepx.cn/xiju/1923731.htm)
+- [这些“双非”院校分数线超985](http://www.movie.hkepx.cn/xiju/5823393.htm)
+- [甘肃省委书记省长赶赴山洪现场](http://www.daogukj.com/2626307)
+- [长鑫科技员工：上市和我们没啥关系](http://www.movie.hkepx.cn/xiju/9508117.htm)
+- [评论员谈台湾岛内20万人集会抗议](http://www.movie.hkepx.cn/xiju/9262898.htm)
+- [被交大临八录取了但不想学医，我该复读吗？](http://www.daogukj.com/tqdltahc/)
+- [如果没有出现四大天王，香港乐坛能否敌得过台湾乐坛？](http://www.movie.hkepx.cn/xiju/9646924.htm)
+- [九寨沟景区通报泥石流致游客滞留](http://www.daogukj.com/1624901)
+- [KPL](http://www.movie.hkepx.cn/movie/6632805.htm)
+- [终于明白职场没有朋友的含义了](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
+- [四川九寨沟景区泥石流](http://www.daogukj.com/5122805)
+- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.movie.hkepx.cn/movie/7942093.htm)
+- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
+- [人类的指甲在生活中看起来好像并没有什么实际的价值，为什么这么长时间也没有退化呢？](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
+- [鞠婧祎让粉丝进酒店看出妆](http://www.daogukj.com/hdlfcclx/)
+- [台湾新北4.8级地震 福建多地有震感](http://www.daogukj.com/1703206)
+- [昆凌是昆凌的姓](http://www.daogukj.com/1803044)
+- [甘肃渭源一景区山洪已致 10 人遇难，23 人受伤，现场情况如何？哪些信息值得关注？](http://www.daogukj.com/3520679)
+- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](http://www.movie.hkepx.cn/xiju/3318389.htm)
+- [年客流1800万的顶流IP为何不赚钱](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
 
 </details>
 
 ## 原始来源
 
-- [【独家】牧神记 第93集 弑帝](https://b23.tv/BV1Dr3g65EJ2)
+- [美国五大科技巨头 AI 隐性债务被曝达1.65万亿美元，四年内增长8倍，巨额表外负债会成为定时炸弹吗？](https://www.zhihu.com/question/2063915578427963194)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 463a3991470b43d14b37 -->
+<!-- content-fingerprint: 7d314d3c8931215c5c09 -->
