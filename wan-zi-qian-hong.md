@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 皇家美素力 1 号奶粉被澳门检出铅超标九倍，但厂商自检说符合标准，到底该信谁？铅超标有什么食用风险？
+# 长鑫上市后，美股「半导体-芯片板块」普跌，SK海力士破发，早盘韩股熔断，日经大跌，对此你怎么看？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：357 万热度 · 分类：问答 · 更新：2026-07-28T16:01:43+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：387 万热度 · 分类：问答 · 更新：2026-07-28T23:55:46+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“皇家美素力 1 号奶粉被澳门检出铅超标九倍，但厂商自检说符合标准，到底该信谁？铅超标有什么食用风险？”位列第 3 位，公开热度指标为 357 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“长鑫上市后，美股「半导体-芯片板块」普跌，SK海力士破发，早盘韩股熔断，日经大跌，对此你怎么看？”位列第 3 位，公开热度指标为 387 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：【港澳预警美素佳儿一批次奶粉检出铅超标，品牌方回应】7月25日，澳门特区政府食品安全厅发出警示，根据澳门药物监督管理局的通报，皇家美素力®1号配方奶粉1W07KPJ批次产品检出铅含量超出澳门相关行政法规《食品中重金属污染物最高限量》的规定。提醒业界和消费者，不要出售或使用上述食品。品牌方回应美素佳儿奶粉检出铅超标 香港食物环境卫生署食物安全中心7月25日也呼吁市民不要食用一批婴儿配方奶粉，因为有关产品被澳门当局检出可能铅含量超出当地标准。相关产品名称：皇家美素力1号（800克），品牌为皇家美素佳儿；来源地为荷兰，批次为1W07KPJ。进口商为菲仕兰（香港
+来源公开摘要显示：纳指盘初跳水收盘四连跌，芯片股重挫，英伟达跌近5%韩国Kospi指数下跌逾6% 芯片股承压日经225指数跌幅扩大至1%
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [荣耀焕新品牌片「敢想，敢不同」](niao-yu-hua-xiang.md)
-- [网红书记带货知了猴被指破坏生态](shan-qing-shui-xiu.md)
-- [改善脖子前倾最简单的动作](feng-he-ri-li.md)
-- [尹锡悦当选韩国总统或无效](chun-nuan-hua-kai.md)
+- [锅已就位](niao-yu-hua-xiang.md)
+- [日本受地震波及商场已确认数人死亡](shan-qing-shui-xiu.md)
+- [日本7.1级地震民众哭喊声一片](feng-he-ri-li.md)
+- [全款买房的人变多](chun-nuan-hua-kai.md)
 
 ## 站内推荐
 
-- [六部门：禁止涉军队退役报废装备销售](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [丧 尸 下 乡](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [日本地震 杭州、宁波网友称有震感](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [韩国考虑为“借钱炒股”封顶20%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [买大路灯护眼 孩子视力1年涨200度](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [日本强震时天空出现巨型蘑菇云](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [为什么很多电车后屁股都凹一块也不修？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [从《八仙！》上映说起，为何孙悟空在影视作品中总是正义的英雄，二郎神杨戬有时候当正派，有时候当反派？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [曝Bin圣枪哥处境相反](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [日本坍塌购物中心多人确认死亡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [改善脖子前倾最简单的动作](http://www.play.hengshemaoyi.cn/kongbu/2243236.htm)
-- [美通缉重犯被曝在华东师范大学任教十余年，这一事件暴露出高校在教师管理上的哪些短板和漏洞？](http://www.movie.hkepx.cn/xiju/6258682.htm)
-- [地震50年后突然搜到已故父亲名字](http://www.daogukj.com/4199190)
-- [【剧情】炸弹妞 第三季（2014）01【玛蒂娜·希尔 / 马蒂亚斯·德特莫塞尔】](http://www.daogukj.com/ddksoogp/)
-- [【剧情】昭阳公主（2026）08 【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.daogukj.com/1151921)
-- [杨天真 切胃瘦了但迅速又胖了](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
-- [英伟达微软反对禁止中国开源AI](http://www.daogukj.com/pclokhlt/)
-- [携程被罚后内部全员信曝光](http://www.daogukj.com/1912371)
-- [熬夜时最恐怖的事](http://www.daogukj.com/1276372)
-- [网红书记带货知了猴被指破坏生态](http://www.play.hengshemaoyi.cn/kongbu/3420758.htm)
-- [敬一丹公众号疑似辟谣脑溢血传闻](http://www.movie.hkepx.cn/xiju/9275339.htm)
-- [多元夜游激发文旅活力](http://www.play.hengshemaoyi.cn/kongbu/1292863.htm)
-- [如何看待上单老祖做的视频，黄金剑魔打王者蒙多，两场均以黄金剑魔获胜？](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
-- [还记得“卖茶女”的诈骗套路吗？当“深圳网警”遇到“恋爱脑”，深情难抵骗局真相！](http://www.play.hengshemaoyi.cn/xiju/0325633.htm)
-- [詹姆斯引用中国名言却写错出处](http://www.daogukj.com/3321605)
-- [折个鸡](http://www.movie.hkepx.cn/movie/8247920.htm)
-- [法老的诅咒：一场殖民者写给世界的爽文](http://www.play.hengshemaoyi.cn/kongbu/8269947.htm)
-- [美国校园午餐被曝牛奶黏稠似史莱姆、胡萝卜可被磁铁吸起，可能有什么「科技狠活」？对健康有伤害吗？](http://www.daogukj.com/7559408)
-- [青海兴海连发强震 兰州西宁有震感](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
-- [寿司郎正在成为十年前的海底捞](http://www.daogukj.com/qygrqwfc/)
-- [日本地震](http://www.movie.hkepx.cn/movie/1898296.htm)
-- [又一名小红书前员工曝「距期权归属仅剩 8 天被解除劳动合同」，具体情况如何？其中涉及哪些法律问题？](http://www.movie.hkepx.cn/xiju/9208788.htm)
-- [携程被罚 51.79 亿元后发内部全员信，透露出哪些信息？](http://www.play.hengshemaoyi.cn/kongbu/3841017.htm)
-- [幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？](http://www.movie.hkepx.cn/movie/9300663.htm)
-- [刘亦菲素颜女大](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
-- [网红景区10人遇难 3次预警为何失效](http://www.daogukj.com/8278736)
-- [小米展出澎程6万公里路测车](http://www.daogukj.com/8218886)
-- [坚守者 vs 各种傀儡！](http://www.daogukj.com/etwnkcjm/)
-- [创业板指跌超7% 算力硬件股全线下挫](http://www.daogukj.com/jbysyguh/)
-- [如何评价大连理工2026在陕招生，普通批仅10人全部为计算机人工智能？](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
-- [年轻人为何对王虹产生强烈共鸣](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
-- [大批散户为配市值打新长鑫，却遭到大幅回撤，如何看待「为打新亏大钱」的荒诞投资现状？](http://www.daogukj.com/9528300)
-- [宋威龙张婧仪 共享手机密码](http://www.movie.hkepx.cn/movie/6435439.htm)
-- [女孩正颌后成“鞋拔子脸” 医生停诊](http://www.movie.hkepx.cn/movie/4878992.htm)
-- [佛得角门将签约泪洒现场？图是AI的](http://www.movie.hkepx.cn/xiju/8029656.htm)
-- [念相思妆造廉价感](http://www.daogukj.com/4914176)
-- [尹锡悦当选韩国总统或无效](http://www.movie.hkepx.cn/xiju/5605421.htm)
-- [全新开箱！我居然买到了德军的HK G28精确射手步枪？](http://www.movie.hkepx.cn/xiju/8838856.htm)
-- [泰国国家旅游局就中国粉丝被打致歉](http://www.movie.hkepx.cn/xiju/4562883.htm)
-- [六部门：禁止涉军队退役报废装备销售](http://www.play.hengshemaoyi.cn/xiju/9673613.htm)
-- [来杯好酒摇一摇](http://www.daogukj.com/8978179)
-- [纽约中央公园“出轨门”男女身份确认](http://www.play.hengshemaoyi.cn/kongbu/9386523.htm)
-- [韩国考虑为“借钱炒股”封顶20%](http://www.movie.hkepx.cn/movie/8202567.htm)
-- [【漫士】时间为什么不能倒流？如何从数学证明熵增？](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
-- [丧 尸 下 乡](http://www.movie.hkepx.cn/xiju/8258278.htm)
-- [周星驰不再演戏的原因](http://www.movie.hkepx.cn/movie/5226555.htm)
-- [爷爷撬开焊死6年存钱箱助孙子上大学](http://www.daogukj.com/danezrrx/)
-- [“全款买房”的人在变多](http://www.play.hengshemaoyi.cn/kongbu/5916498.htm)
-- [阿里押注长鑫 76 亿搏出近 1700 亿，小米雷军打新长鑫浮盈 7 亿，背后是怎样的投资逻辑？](http://www.movie.hkepx.cn/xiju/2002414.htm)
-- [仇子龙曾参与联名公开谴责贺建奎，现在自己却身陷基因编辑致死事件，对此你怎么看？](http://www.movie.hkepx.cn/xiju/4878037.htm)
+- [日本7.1级地震民众哭喊声一片](http://www.play.hengshemaoyi.cn/kongbu/2243236.htm)
+- [我国年收入前1%群体贡献逾五成个税](http://www.movie.hkepx.cn/xiju/6258682.htm)
+- [中国夫妇在马尔代夫玩拖曳伞双双坠海](http://www.daogukj.com/4199190)
+- [日本地震山崩瞬间画面曝光](http://www.daogukj.com/ddksoogp/)
+- [【独家】《百日成王》第11集 快看！天上有金子！【7月国创】](http://www.daogukj.com/1151921)
+- [日本地震致著名景点古石墙倒塌](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
+- [伊朗导弹甩开美军多枚拦截弹画面](http://www.daogukj.com/pclokhlt/)
+- [法老的诅咒：一场殖民者写给世界的爽文](http://www.daogukj.com/1912371)
+- [日本熊本天空浮现巨型蘑菇云](http://www.daogukj.com/1276372)
+- [日本受地震波及商场已确认数人死亡](http://www.play.hengshemaoyi.cn/kongbu/3420758.htm)
+- [泰国国家旅游局回应「GMM 保安殴打中国粉丝」被指避重就轻未停用涉事员工，如何看待这一回应？](http://www.movie.hkepx.cn/xiju/9275339.htm)
+- [地震来了怎么办？提前设置地震预警](http://www.play.hengshemaoyi.cn/kongbu/1292863.htm)
+- [没一点想看的欲望？胆量不详？笑料一筐！周笔畅满身大汉？笑到没空害怕《密室大逃脱8》](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
+- [景德镇凭什么是世界遗产?要成为世界遗产有多难?【阿Test正经比比】](http://www.play.hengshemaoyi.cn/xiju/0325633.htm)
+- [北大准新生的目标是尝尝北大食堂](http://www.daogukj.com/3321605)
+- [乒乓小将失利后拳击对手 官方通报](http://www.movie.hkepx.cn/movie/8247920.htm)
+- [美通缉重犯被曝在华东师范大学任教十余年，这一事件暴露出高校在教师管理上的哪些短板和漏洞？](http://www.play.hengshemaoyi.cn/kongbu/8269947.htm)
+- [航拍日本强震后现状](http://www.daogukj.com/7559408)
+- [为什么越来越多的公司开始在印尼投资？印尼具备何种发展潜力？](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
+- [Flandre离开AL](http://www.daogukj.com/qygrqwfc/)
+- [退货千万不要提前给取件码](http://www.movie.hkepx.cn/movie/1898296.htm)
+- [【洛天依原创】若夏日终将完结](http://www.movie.hkepx.cn/xiju/9208788.htm)
+- [河南多市三支一扶考试被指高分人数与招录名额高度对应，官方成立工作组调查，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/3841017.htm)
+- [王的猜想](http://www.movie.hkepx.cn/movie/9300663.htm)
+- [2小时内超30次余震 日本高架桥断了](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
+- [网友称迪卡侬售后将其私人电话设置为总部投诉电话长达一年，如果属实该如何维权？](http://www.daogukj.com/8278736)
+- [一口气看完【末世爽剧】——《末日来临，先杀圣母》就你道德绑架是吧？那你先嘎！](http://www.daogukj.com/8218886)
+- [医生被指发布“除非死人不要请假”](http://www.daogukj.com/etwnkcjm/)
+- [网友感慨「有微信之前人是可以不用一直在线的」，你有同感吗？你认为社交软件的进步有影响到你的生活吗？](http://www.daogukj.com/jbysyguh/)
+- [张凌赫我最讨厌事后道歉](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
+- [如何确保王虹、June Huh这类慢热型学术人才不被埋没？](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
+- [【苏新皓｜4K直拍】囍 直拍｜梦寐以求·演唱会](http://www.daogukj.com/9528300)
+- [“黄金界爱马仕”市值1年蒸发超千亿](http://www.movie.hkepx.cn/movie/6435439.htm)
+- [日本发生7.1级地震 山崩瞬间曝光](http://www.movie.hkepx.cn/movie/4878992.htm)
+- [济南暴雨铁路桥下汽车被淹不实](http://www.movie.hkepx.cn/xiju/8029656.htm)
+- [还记得“卖茶女”的诈骗套路吗？当“深圳网警”遇到“恋爱脑”，深情难抵骗局真相！](http://www.daogukj.com/4914176)
+- [全款买房的人变多](http://www.movie.hkepx.cn/xiju/5605421.htm)
+- [小米第二款车来了 雷军杀入增程赛道](http://www.movie.hkepx.cn/xiju/8838856.htm)
+- [幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？](http://www.movie.hkepx.cn/xiju/4562883.htm)
+- [日本强震时天空出现巨型蘑菇云](http://www.play.hengshemaoyi.cn/xiju/9673613.htm)
+- [“请把文字还给它本来的意思”](http://www.daogukj.com/8978179)
+- [女生展示什么是真正的梨形身材](http://www.play.hengshemaoyi.cn/kongbu/9386523.htm)
+- [曝Bin圣枪哥处境相反](http://www.movie.hkepx.cn/movie/8202567.htm)
+- [24 岁女孩正颌手术被做反变「鞋拔子脸」，当事医生已停诊，为什么会出现这种医疗事故？患者要怎么维权？](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
+- [为什么很多电车后屁股都凹一块也不修？](http://www.movie.hkepx.cn/xiju/8258278.htm)
+- [路边一块，用心雕琢，也可以变成大家喜欢的样子。](http://www.movie.hkepx.cn/movie/5226555.htm)
+- [柳周cp亲了](http://www.daogukj.com/danezrrx/)
+- [女子摸田螺溺亡 儿子连扇自己巴掌](http://www.play.hengshemaoyi.cn/kongbu/5916498.htm)
+- [张继科乒乓球百分大战](http://www.movie.hkepx.cn/xiju/2002414.htm)
+- [如何看待Anthropic公司发文「不反对开源模型，但反对具备危险能力的开源模型」？](http://www.movie.hkepx.cn/xiju/4878037.htm)
 
 </details>
 
 ## 原始来源
 
-- [皇家美素力 1 号奶粉被澳门检出铅超标九倍，但厂商自检说符合标准，到底该信谁？铅超标有什么食用风险？](https://www.zhihu.com/question/2064645873158583358)
+- [长鑫上市后，美股「半导体-芯片板块」普跌，SK海力士破发，早盘韩股熔断，日经大跌，对此你怎么看？](https://www.zhihu.com/question/2065354296774989670)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4c224c5ae80e4aa8a07f -->
+<!-- content-fingerprint: 61459fc77e7faddaea58 -->
