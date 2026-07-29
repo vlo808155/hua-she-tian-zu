@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？
+# 莫氏鸡煲首轮遭淘汰
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：971 万热度 · 分类：问答 · 更新：2026-07-29T18:16:21+08:00
+> 来源：微博热搜 · 排名：第 2 位 · 热度：877640 · 分类：综艺 · 更新：2026-07-30T00:04:31+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？”位列第 2 位，公开热度指标为 971 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“莫氏鸡煲首轮遭淘汰”位列第 2 位，公开热度指标为 877640，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：今天，泸溪河坚果桃酥因被曝吃出疑似金属牙冠而陷入食品安全争议。7月29日11时21分，都市现场记者查看山姆会员商店APP发现，该款产品已下架。 当日上午10点50分之前，记者还在山姆会员商店APP发现，该款产品目前仍在正常售卖，位列“饼干糕点热销榜”第4名，月销量超过20万件，每人限购10件，售价48.9元/件，支持全国配送。 网友在山姆超市购买的泸溪河桃酥中吃出疑似金属牙冠异物引质疑，山姆APP已下架该款产品，此前半小时仍在热销榜“泸溪河桃酥吃出牙冠”热搜第一，品牌回应_腾讯新闻消费者自称在山姆购买泸溪河桃酥疑似吃出3颗金属牙冠 市监部门已受理投诉并调
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [【乾乾特工·剧场版】大制作来啦！！！](ba-mian-ling-long.md)
-- [夏日防中暑 防护指南请收藏](jiu-niu-yi-mao.md)
-- [冲锋不止的科研尖兵](shi-quan-shi-mei.md)
-- [从三组外贸数据读懂中国机遇2.0](bai-fa-bai-zhong.md)
+- [乌克兰约80万件武器弹药流入欧洲黑市](ba-mian-ling-long.md)
+- [许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？](jiu-niu-yi-mao.md)
+- [化身Superman！摩托老哥解锁新技能](shi-quan-shi-mei.md)
+- [从四款出口“爆品”看“中国智造”](bai-fa-bai-zhong.md)
 
 ## 站内推荐
 
-- [斗地主中，为什么地主只有三张牌的优势就可以一打二了？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [疑似南方医科大学珠江医院一医生发布「除非死人，不要临时请假」言论，院方已启动调查，反映了哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [媒体曝辅助驾驶的「小蓝灯」将被禁用，背后是出于什么考量？你支持禁装吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [地狱猫复刻中途加油，全速怕什么怕拉爆直升机！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [【第一集】穿越成为GTI干员 不管是现实还是游戏都要好好活下去](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [千万不要把手机交给商家写好评](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [赵心童淘汰丁俊晖晋级上海大师赛八强](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [河北 860 元一晚酒店半夜关空调导致客人被热醒，酒店空调间断关停合法吗？消费者该怎样维权？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [千万粉丝“鉴宝网红”炒股亏光父母积蓄遭拉黑，踢出家族群，直言：再玩就剁手，相关股票软件全部删除！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [周佑凌因柳柳给民宿改名](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么黄金几乎在所有文明里都是贵重金属，并且作为了货币？](http://www.play.hengshemaoyi.cn/kongbu/5645462.htm)
-- [乐事薯片废料回收被当食用淀粉原料](http://www.movie.hkepx.cn/movie/8293092.htm)
-- [长鑫科技累计换手率超107%](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
-- [河北 860 元一晚酒店半夜关空调导致客人被热醒，酒店空调间断关停合法吗？消费者该怎样维权？](http://www.daogukj.com/8375241)
-- [【乾乾特工·剧场版】大制作来啦！！！](http://www.daogukj.com/iaraacys/)
-- [贵州少年考上北大获政府8万助学金](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
-- [小区电梯突然失控从31楼下坠到负2楼](http://www.daogukj.com/jkwmzbpc/)
-- [法老的诅咒：一场殖民者写给世界的爽文](http://www.play.hengshemaoyi.cn/kongbu/9710980.htm)
-- [《人民的名义》里，高育良和李达康都没贪钱，为什么一个坐牢一个过关？](http://www.movie.hkepx.cn/xiju/9588893.htm)
-- [从三组外贸数据读懂中国机遇2.0](http://www.movie.hkepx.cn/movie/8778310.htm)
-- [银行大面积调整营业时间](http://www.movie.hkepx.cn/movie/6076618.htm)
-- [柳柳周佑凌官宣](http://www.daogukj.com/dpkkzqnv/)
-- [张凌赫让金靖别站在自己和章若楠中间](http://www.movie.hkepx.cn/movie/1651889.htm)
-- [如何看待 SK 海力士二季度营收 79 万亿韩元，净利润 60.54 万亿韩元？](http://www.daogukj.com/9130223)
-- [女子高铁叫嚣全家体制内 警方通报](http://www.movie.hkepx.cn/xiju/5806124.htm)
-- [中方对日本熊本地震遇难者表示哀悼](http://www.daogukj.com/fkjhvpfb/)
-- [修杰楷开庭认罪请求缓刑](http://www.play.hengshemaoyi.cn/kongbu/6838815.htm)
-- [大爷杀死剧毒眼镜蛇 被离断蛇头咬伤](http://www.movie.hkepx.cn/xiju/2953910.htm)
-- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
-- [你不要再吸我啦！](http://www.movie.hkepx.cn/movie/7538444.htm)
-- [是铁环传递了灵动给她还是她共鸣灵魂于铁环，是功夫带来的丝滑还是丝滑表达了功夫](http://www.movie.hkepx.cn/movie/4849813.htm)
-- [初中生曝光侵华日军罪证被威胁](http://www.movie.hkepx.cn/xiju/0772096.htm)
-- [重庆失联00后网格员龚宝冬确认遇难](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
-- [航母到底有多大](http://www.movie.hkepx.cn/movie/2588691.htm)
-- [媒体曝辅助驾驶的「小蓝灯」将被禁用，背后是出于什么考量？你支持禁装吗？](http://www.play.hengshemaoyi.cn/kongbu/0673260.htm)
-- [其实补气血真的很简单](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
+- [智驾“小蓝灯”将禁用？官方机构发声](http://www.play.hengshemaoyi.cn/kongbu/5645462.htm)
+- [雷军感谢各地文旅支持](http://www.movie.hkepx.cn/movie/8293092.htm)
+- [开车是最容易进入心流状态的活动](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
+- [如何看待国外某历史学老师在考试题目中加入隐藏提示词抓 AI 作弊，35 名学生中 32 人中招？](http://www.daogukj.com/8375241)
+- [乌克兰约80万件武器弹药流入欧洲黑市](http://www.daogukj.com/iaraacys/)
+- [为什么很多北京本地人从不进全聚德，却对家门口那家开了几十年的烤鸭店情有独钟？](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
+- [如何评价今年机械专业分数线大涨？](http://www.daogukj.com/jkwmzbpc/)
+- [卢本伟的打牌日记1|输了有惩罚之骨头咔嗒响](http://www.play.hengshemaoyi.cn/kongbu/9710980.htm)
+- [【4K高燃】中国最帅街道飘移追走大片儿！！！](http://www.movie.hkepx.cn/xiju/9588893.htm)
+- [从四款出口“爆品”看“中国智造”](http://www.movie.hkepx.cn/movie/8778310.htm)
+- [【TF家族练习生】《突围II破局》EP05：加更](http://www.movie.hkepx.cn/movie/6076618.htm)
+- [修杰楷开庭认罪请求缓刑](http://www.daogukj.com/dpkkzqnv/)
+- [司晓迪反复碰瓷艺人收割流量该管了](http://www.movie.hkepx.cn/movie/1651889.htm)
+- [女子隐私照未打码被医美发朋友圈](http://www.daogukj.com/9130223)
+- [343 斤吃播博主「良子」在峨眉山徒步途中晕倒，后被担架抬下山，大体重人士适合徒步吗？会有哪些风险？](http://www.movie.hkepx.cn/xiju/5806124.htm)
+- [下班了 年轻人赶着去做副业](http://www.daogukj.com/fkjhvpfb/)
+- [李佳薇方要求周锐公开道歉](http://www.play.hengshemaoyi.cn/kongbu/6838815.htm)
+- [女孩摆拍盲道被撞细节曝光](http://www.movie.hkepx.cn/xiju/2953910.htm)
+- [周星驰反客为主采访董宇辉](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
+- [《明末：渊虚之羽2》正式公开，由夏思源组建新公司开发，505计划对其投资2150万欧元，对此你怎么看？](http://www.movie.hkepx.cn/movie/7538444.htm)
+- [韩国股市今年以来第九次触发熔断机制，这一轮下跌最终会如何收场？](http://www.movie.hkepx.cn/movie/4849813.htm)
+- [郑钦文排名跌至123位](http://www.movie.hkepx.cn/xiju/0772096.htm)
+- [【第一集】穿越成为GTI干员 不管是现实还是游戏都要好好活下去](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
+- [曾经的百亿票房先生黄渤，两部影片接连失利，他为什么突然不再是票房保障了？还有哪些演员扛不动院线票房了？](http://www.movie.hkepx.cn/movie/2588691.htm)
+- [河北 860 元一晚酒店半夜关空调导致客人被热醒，酒店空调间断关停合法吗？消费者该怎样维权？](http://www.play.hengshemaoyi.cn/kongbu/0673260.htm)
+- [女子修手机被店主导出40多张私密照](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
 - [广州一栈道破损致 2 岁孩童踩空坠江，孩童母亲称栈道破损已超 9 年，谁该担责？哪些信息值得注意？](http://www.movie.hkepx.cn/movie/5784282.htm)
-- [“爆发红眼病毒后公司乱成一锅粥了，赶紧趁热把boss丢下楼！！！”](http://www.movie.hkepx.cn/movie/3182879.htm)
-- [上海一室一厅酒店月租 12000 元起，半数客人为长住客，原因为何？真的比租房划算吗？](http://www.daogukj.com/3766509)
-- [夏日防中暑 防护指南请收藏](http://www.play.hengshemaoyi.cn/xiju/6973597.htm)
-- [天才女友 提档](http://www.play.hengshemaoyi.cn/xiju/0738996.htm)
-- [【苏新皓｜4K直拍】囍 直拍｜梦寐以求·演唱会](http://www.daogukj.com/ctquznvn/)
-- [泸溪河桃酥 牙冠](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
-- [《霸の意志》](http://www.movie.hkepx.cn/xiju/5105551.htm)
-- [苏超的热度为什么降温了？](http://www.daogukj.com/8216748)
-- [女童熟睡遭3岁男孩9次拿被褥捂头](http://www.movie.hkepx.cn/xiju/8980675.htm)
-- [王虹的经历是不是说明了，教育和环境对一个人发展的影响其实比很多人认为的大的多？](http://www.movie.hkepx.cn/xiju/6567869.htm)
-- [千万不要把手机交给商家写好评](http://www.daogukj.com/njgxlzmh/)
-- [【第一集】穿越成为GTI干员 不管是现实还是游戏都要好好活下去](http://www.movie.hkepx.cn/xiju/5238935.htm)
-- [343 斤吃播博主「良子」在峨眉山徒步途中晕倒，后被担架抬下山，大体重人士适合徒步吗？会有哪些风险？](http://www.movie.hkepx.cn/xiju/5524746.htm)
-- [手拉要拉冒烟了](http://www.play.hengshemaoyi.cn/kongbu/1255416.htm)
-- [迪丽热巴绝对不会穿电光蓝的衣服](http://www.movie.hkepx.cn/movie/0643495.htm)
-- [黄政民被曝出轨](http://www.daogukj.com/4160069)
-- [但斌：大跌一定要敢买](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
-- [小蓝灯](http://www.movie.hkepx.cn/movie/5891565.htm)
-- [【剧情】炸弹妞 第四季（2015）01【玛蒂娜·希尔 / 马克·本杰明·普赫】](http://www.movie.hkepx.cn/movie/7078938.htm)
-- [印度两男子涉嫌轮奸被警察当街暴打](http://www.daogukj.com/mqfndzhh/)
-- [赵钰琪14岁的美人胚子](http://www.play.hengshemaoyi.cn/xiju/6747952.htm)
-- [如何评价 Anthropic CEO发布的文章《我们对于开放权重模型的立场》？](http://www.daogukj.com/1314318)
-- [上班攒够多少才能辞职休息](http://www.daogukj.com/8186889)
+- [刀片风暴](http://www.movie.hkepx.cn/movie/3182879.htm)
+- [赵昭仪演戏一直这样吗](http://www.daogukj.com/3766509)
+- [许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？](http://www.play.hengshemaoyi.cn/xiju/6973597.htm)
+- [银行大面积调整营业时间](http://www.play.hengshemaoyi.cn/xiju/0738996.htm)
+- [八仙到底是什么等级的神仙？](http://www.daogukj.com/ctquznvn/)
+- [为什么水中含氧量更少，鲸鱼却长得很大?](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
+- [智驾“小蓝灯”将被禁用](http://www.movie.hkepx.cn/xiju/5105551.htm)
+- [我逮住蕾米埃尔了！](http://www.daogukj.com/8216748)
+- [小区电梯突然失控从31楼下坠到负2楼](http://www.movie.hkepx.cn/xiju/8980675.htm)
+- [网红私占宁波无人岛直播改造被查处，个人可以开发利用无居民海岛吗？荒岛为何不能随意建房、居住？](http://www.movie.hkepx.cn/xiju/6567869.htm)
+- [【TF家族】《2026TF家族运动会》Day1（上）](http://www.daogukj.com/njgxlzmh/)
+- [周佑凌因柳柳给民宿改名](http://www.movie.hkepx.cn/xiju/5238935.htm)
+- [张泽禹道歉](http://www.movie.hkepx.cn/xiju/5524746.htm)
+- [孙悟空客串了很多影视剧，为什么总是被用来救场？](http://www.play.hengshemaoyi.cn/kongbu/1255416.htm)
+- [散户集体抗议 韩国会前摆满吊唁花圈](http://www.movie.hkepx.cn/movie/0643495.htm)
+- [母子哪吒殿前偷“哪吒”](http://www.daogukj.com/4160069)
+- [男子携小三用假证做试管仅被拘5日](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
+- [曾舜晞带着周翊然去给赵丽颖敬酒](http://www.movie.hkepx.cn/movie/5891565.htm)
+- [A股科技股拥挤度](http://www.movie.hkepx.cn/movie/7078938.htm)
+- [343斤网红徒步峨眉山晕倒被抬下山](http://www.daogukj.com/mqfndzhh/)
+- [“喀什经开区零地价供地免租金”不实](http://www.play.hengshemaoyi.cn/xiju/6747952.htm)
+- [有说法称印度成首个被 AI 做空的国家，真的是这样吗？会对印度经济产生哪些影响？](http://www.daogukj.com/1314318)
+- [【剧情】炸弹妞 第四季（2015）01【玛蒂娜·希尔 / 马克·本杰明·普赫】](http://www.daogukj.com/8186889)
 
 </details>
 
 ## 原始来源
 
-- [许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？](https://www.zhihu.com/question/2065716053770859492)
+- [莫氏鸡煲首轮遭淘汰](https://s.weibo.com/weibo?q=%E8%8E%AB%E6%B0%8F%E9%B8%A1%E7%85%B2%E9%A6%96%E8%BD%AE%E9%81%AD%E6%B7%98%E6%B1%B0)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6fd4ba86080c7a4133d6 -->
+<!-- content-fingerprint: 02fee9662c79c126f571 -->
