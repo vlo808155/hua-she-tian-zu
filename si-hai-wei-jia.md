@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 曝多家AI公司大量收购旧书训练模型后销毁，此前先例被法院认定合理，这会成为常态吗？可能带来哪些影响？
+# 小米澎程技术发布会上发布了什么值得关注的新技术？有哪些亮点？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：1484 万热度 · 分类：问答 · 更新：2026-07-30T15:59:05+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：634 万热度 · 分类：问答 · 更新：2026-07-30T23:34:49+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“曝多家AI公司大量收购旧书训练模型后销毁，此前先例被法院认定合理，这会成为常态吗？可能带来哪些影响？”位列第 1 位，公开热度指标为 1484 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“小米澎程技术发布会上发布了什么值得关注的新技术？有哪些亮点？”位列第 1 位，公开热度指标为 634 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：IT之家 7 月 28 日消息，AI 公司在推动内存和存储资源日益紧张之后，如今似乎又将目光投向了人类的文学遗产。调查媒体 404 Media 最新报道称，多家 AI 公司正通过中间商大规模收购二手图书，以获取高质量训练数据用于训练 AI 模型，同时避免引发公众舆论反弹。 AI 的发展离不开海量数据，但并非所有数据都有价值，关键在于数据质量。近年来，大量由 AI 生成的低质量内容（俗称“AI 垃圾内容”）充斥互联网，不仅污染了数据环境，也降低了 AI 继续学习的效果。因此，领先的 AI 公司开始重新寻找由人类创作的内容，尤其是 2022 年之前出版的纸质
+来源公开摘要显示：[图片]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [抵抗者2026实机演示](wu-gu-feng-deng.md)
-- [高校录取通知书上身份证写成身证份](liu-shen-wu-zhu.md)
-- [曝C罗将结婚](qi-shang-ba-xia.md)
-- [山西长治市原市长陈向阳被查](ba-mian-ling-long.md)
+- [空调一直开vs忍着不开 谁更健康](liu-shen-wu-zhu.md)
+- [日元](qi-shang-ba-xia.md)
+- [雷军：澎程从北京到上海无需补能](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [为什么ChatGPT已经发布4年了，社会总生产力纹丝不动？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [挑战从东北徒步到西藏( 十倍速1小时5分版）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [武汉街头出现一批“卖瓜人”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [大额支付将有重要调整](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [【世界杯终局之战 续集】复仇者，冲锋！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [我做了一只完美适配折叠屏的AI猫娘！【B站AI创造公开赛】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [化身Superman！摩托老哥解锁新技能](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [行于至暗，逐猎微光|《雾影猎人》今日正式发售](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [在课堂上搞笑被抓了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [解放军两次警告日方不能自称“海军”](http://www.daogukj.com/7394302)
-- [【独家】《将夜》第16集 永字八法【4月国创】](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [曝TF四代一班二班没有变化](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [为什么ChatGPT已经发布4年了，社会总生产力纹丝不动？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [男生被北大录取村民自发敲锣打鼓庆祝](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [女生因高考成绩不理想跳河系谣言](http://www.daogukj.com/thgdlrxk/)
-- [有什么东西是「连封建王朝都嫌封建」的？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [四川甘孜州一山体发生滑坡](http://www.daogukj.com/qqvbmaen/)
-- [不建议大家买深色蛋糕](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [曝C罗将结婚](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [开封大雨冲走多人？造谣者被罚](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [县城老板开百万豪车吃顾客剩菜](http://www.daogukj.com/6313812)
-- [行于至暗，逐猎微光|《雾影猎人》今日正式发售](http://www.daogukj.com/wczbkkvt/)
-- [国家安全机关提醒打印机的废旧硒鼓可能泄密，这是如何发生的？哪些办公设备也存在类似风险？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [中际旭创上市破发背后](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [文化润疆非遗添彩](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [AI 焚书](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [【TF家族】《2026TF家族运动会》Day2（上）](http://www.daogukj.com/7394302)
+- [超强台风“白海豚”最新路径来了](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [少年水果卖不完想换馍大叔爽快答应](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [【世界杯终局之战 续集】复仇者，冲锋！](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [伊朗称袭击科威特的美空军基地](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [河南南阳楼房被冲进河中系谣言](http://www.daogukj.com/thgdlrxk/)
+- [歼15试飞遇险距甲板边缘5米刹停](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [宋威龙 热巴姐你好像提前放扇子了](http://www.daogukj.com/qqvbmaen/)
+- [1.55升“哑铃矿泉水”走红 厂家回应](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [日元](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [“河南南阳楼房被冲进河中”不实](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [成本75万票房超4亿 《痴迷》恐怖在哪](http://www.daogukj.com/6313812)
+- [《非霸凌不可吗》](http://www.daogukj.com/wczbkkvt/)
+- [如何评价小米澎程 N90 Max 预售价29.99万元、N70 Max 预售价25.99万元？](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [中国向伊朗提供400枚导弹？外交部回应](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [人民军队制胜向强](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [男子刚买5个月手机无预兆爆炸被烫伤](http://www.movie.hkepx.cn/xiju/4060100.htm)
 - [抵抗者2026实机演示](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [王的猜想](http://www.daogukj.com/jjlkzcvz/)
-- [《和 平 绿 洲 启 元 玩 家 现 状》](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [周星驰问董宇辉“拍拖了吗”](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [日本强震医院爆满停电病房像“战区”](http://www.daogukj.com/drcaefzl/)
-- [休假消防员察觉女子状态异常默默守护](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [中国 8 家整车厂赚不过 1 家电池厂，为什么宁德时代利润超过车企这么多？](http://www.daogukj.com/rrxeunix/)
-- [尹新月 出戏](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [拥有24h内洗澡证明的人才能出门](http://www.daogukj.com/qekijaaa/)
-- [《非霸凌不可吗》](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [我国可再生能源发电量占比首超四成](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [我发现很多农村教堂并没有发鸡蛋，那为什么还有那么多老头老太太去信？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [“东北不丢孩子”含金量还在上升](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [菲尔兹奖如何防止高龄数学家将自己的成果偷偷传授给不满 40 岁的年轻数学家以获奖？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [“拿命换流量这生意该歇歇了”](http://www.daogukj.com/4880877)
-- [评论员：A股新一轮配置窗口正在打开](http://www.daogukj.com/gyblgzpw/)
-- [A股市值前10红了9个](http://www.daogukj.com/3742193)
-- [教师出轨学生家长致学生休学两年](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [今年旅游市场异常冷清，消费力的提升为什么没有达到应有的效果？](http://www.daogukj.com/yhmvbvtt/)
-- [燃油二手车 正在价值洗牌中](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [我逮住蕾米埃尔了！](http://www.daogukj.com/4405323)
-- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [曾沛慈宝莲组川西之旅合照](http://www.daogukj.com/ydbbqbuc/)
-- [男子出差忘关窗 阳台10万元现金发霉](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [中方提醒：避免危险抵近中国海军舰艇](http://www.daogukj.com/5927597)
-- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.daogukj.com/3691526)
-- [影响上亿女性的病更名了](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [台媒曝林志玲被人举报违反铁路法](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [化身Superman！摩托老哥解锁新技能](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [二十届五中全会10月召开](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [国际足联正式对阿根廷足协启动调查，帕雷德斯等3人或面临长期禁赛，如何评价？阿根廷这次麻烦有多大？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [760元刷医保买片仔癀220元卖中介](http://www.daogukj.com/9555051)
-- [高铁穿越长江只要2分钟](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [蛇叼着青蛙游过小溪飞速上岸](http://www.daogukj.com/jjlkzcvz/)
+- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [宇树科技IPO时间定了 8月10日申购](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [Angelababy出门三个手机起步](http://www.daogukj.com/drcaefzl/)
+- [EDGM让二追三KSG](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [如何评价影视飓风发十周年激励金，在职年限越长奖励越高，最低发半个月工资？这种激励方式值得推广吗？](http://www.daogukj.com/rrxeunix/)
+- [迪丽热巴张碧晨合照](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [小米澎程N70](http://www.daogukj.com/qekijaaa/)
+- [邓煜在北大读了两年后就转去了MIT，这是什么样的转学政策？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [媒体称三大运营商将于 7 月 31 日前全面取消网络代理渠道，释放了哪些行业信号？对消费者有什么影响？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [2026乒超联赛王楚钦/周启豪1-2林诗栋/赵钊彦，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [豆包究竟见过多少人的糗事](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [我发现很多农村教堂并没有发鸡蛋，那为什么还有那么多老头老太太去信？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [陕西公公强奸儿媳案二审维持原判](http://www.daogukj.com/4880877)
+- [“公公强奸儿媳案”二审维持原判](http://www.daogukj.com/gyblgzpw/)
+- [小米澎程N90价格](http://www.daogukj.com/3742193)
+- [微软股价涨幅扩大至15%](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [小学生球赛为啥引来3500万人围观](http://www.daogukj.com/yhmvbvtt/)
+- [这扳机纪律你就学吧](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [乐事薯片生产废料被洗白成「毛粉」流向市场，用「毛粉」生产食用淀粉是否合规？是否存在食品安全问题？](http://www.daogukj.com/4405323)
+- [化身Superman！摩托老哥解锁新技能](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [泰国部长称不欢迎给他人造成损害的游客](http://www.daogukj.com/ydbbqbuc/)
+- [南部战区位中国黄岩岛组织战备警巡](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [何立峰与美财长贝森特举行视频通话](http://www.daogukj.com/5927597)
+- [手绘469张！还原EVA主题曲](http://www.daogukj.com/3691526)
+- [小米澎程N90 Max预售价29.99万元](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [《九门》口碑](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [小米澎程像在卖房](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [菲尔兹奖如何防止高龄数学家将自己的成果偷偷传授给不满 40 岁的年轻数学家以获奖？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [男生每天躺玩手机超5小时患血栓](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [吵架后从18楼跳下女子称很后悔](http://www.daogukj.com/9555051)
+- [宇树科技：8月10日打新](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [曝多家AI公司大量收购旧书训练模型后销毁，此前先例被法院认定合理，这会成为常态吗？可能带来哪些影响？](https://www.zhihu.com/question/2065707692950123437)
+- [小米澎程技术发布会上发布了什么值得关注的新技术？有哪些亮点？](https://www.zhihu.com/question/2066129660551722919)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 26b65351c248538e1753 -->
+<!-- content-fingerprint: b506977df871669155ae -->
