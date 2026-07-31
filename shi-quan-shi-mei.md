@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 抵抗者2026实机演示
+# 小时候看不懂，长大后已是局中人
 
-> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：8937462 · 分类：单机游戏 · 更新：2026-07-31T18:03:34+08:00
+> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：4044436 · 分类：影视剪辑 · 更新：2026-08-01T00:27:19+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“抵抗者2026实机演示”位列第 2 位，公开热度指标为 8937462，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“小时候看不懂，长大后已是局中人”位列第 2 位，公开热度指标为 4044436，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：在那黑暗岁月，我们早已习惯生离死别。 侵略者的铁蹄踏碎山河，每一寸土地燃烧。 我们是驰骋在林海雪原，不屈的抗联； 我们是隐谧在绝境的孤岛，永不消逝的电波； 我们是翻腾在运河的波涛，快意恩仇的尖刀； 我们是屹立在太行之巅，血肉筑起的长城。 拿起武器，我们是抵抗者！
+来源公开摘要显示：二十万粉庆贺！正巧用上了二十年这个意向，这几个月一直都在碰壁，还好一直有人私信鼓励我，获益良多也重新振作了精神，所以用这个视频表达感谢，素材也是应粉丝要求而做，希望二十年后，我还在大家身旁。观众朋友们看得开心哦！ 写一封信 将我的想法都记下 等老了慢慢看 简单的日子 正要感受好时光 全都拿来珍藏 人生的阶段 所有口味都品尝 是快乐或遗憾 不必去追赶 正在奔跑的时光 心安便是寻常
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
 
 ## 相关热点
 
-- [超60城优化公积金政策](bai-fa-bai-zhong.md)
-- [读懂好感度攀升背后的中国魅力](qian-jun-wan-ma.md)
-- [我国电力系统迎来结构性转变](wan-zi-qian-hong.md)
-- [中央宣传部授予王戟同志「时代楷模」称号，他的身上有怎样的故事？哪些精神值得学习？](niao-yu-hua-xiang.md)
+- [下半年经济工作发力方向划重点](bai-fa-bai-zhong.md)
+- [强军制胜不负荣光](qian-jun-wan-ma.md)
+- [北斗卫星导航系统全面完成在轨升级](wan-zi-qian-hong.md)
+- [至少 96 个足协抵制国际足联主席因凡蒂诺，他为什么犯了众怒？会被弹劾下台吗？](niao-yu-hua-xiang.md)
 
 ## 站内推荐
 
-- [《整改到胃》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [外交部回应王虹邓煜获菲尔兹奖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [狗狗配种被骗主人喊话为狗讨公道](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [李晟十日终焉领口带血](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [柯洁夺冠过程中连胜廖元赫、王星昊、李轩豪、党毅飞，这其中三人都曾在一年内赢下世界冠军，对此你怎么看？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [【纪录片】闪闪的儿科医生4 第10集 接棒！生命未完待续……](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [50℃高温来了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [72岁董明珠打卡成都太古里](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [汉口站北门未开致旅客误车被起诉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [伊朗称击毁驻约旦美军基地 3 架 F-35，哪些信息值得关注？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [连云港小区火灾母女坠楼，女童身亡，网友质疑救援人员用水柱喷射、未见云梯及气垫，这种情况怎样救援最合理？](http://www.daogukj.com/8025131)
-- [【花小烙】游隼：地球上俯冲速度最快的“鸟中战斗机”是如何炼成的？](http://www.daogukj.com/1259810)
-- [《灰境行者》全新预告丨PC测试定档9月](http://www.daogukj.com/3123281)
-- [男子买错机票 7分钟后退票被扣2千多](http://www.movie.hkepx.cn/movie/0347416.htm)
-- [外交部回应王虹邓煜获菲尔兹奖](http://www.daogukj.com/mojqmowq/)
-- [西班牙北非飞地休达遭遇大规模移民涌入，负责人直言边境已「完全崩溃」，目前情况如何?](http://www.movie.hkepx.cn/movie/8583613.htm)
-- [日韩股市“疯狂星期五”](http://www.movie.hkepx.cn/movie/7389207.htm)
-- [来吧，互相伤害吧](http://www.movie.hkepx.cn/movie/7310795.htm)
-- [C罗晒与16岁儿子肌肉合照](http://www.daogukj.com/7749326)
-- [柯洁夺冠过程中连胜廖元赫、王星昊、李轩豪、党毅飞，这其中三人都曾在一年内赢下世界冠军，对此你怎么看？](http://www.daogukj.com/4323075)
-- [巡查组当场质问：是这么规定的吗](http://www.movie.hkepx.cn/movie/9488458.htm)
+- [东北多地体感气温超 40℃，传统避暑胜地为何也变得酷热难耐？这轮高温天气会持续多久？](http://www.daogukj.com/8025131)
+- [英雄联盟经典模式表演赛](http://www.daogukj.com/1259810)
+- [DeepSeek V4 正式版发布，使用体验如何？和降价后的 GPT5.6 luna 对比谁更有优势？](http://www.daogukj.com/3123281)
+- [24小时内近4.9万移民进入西班牙休达](http://www.movie.hkepx.cn/movie/0347416.htm)
+- [50℃高温来了](http://www.daogukj.com/mojqmowq/)
+- [《原神》千星奇域 - 7.0版本传说套装PV - 诙奇幻演](http://www.movie.hkepx.cn/movie/8583613.htm)
+- [原来到一定年龄就想生小孩了](http://www.movie.hkepx.cn/movie/7389207.htm)
+- [台风白海豚已达17级 可能直奔中国](http://www.movie.hkepx.cn/movie/7310795.htm)
+- [周星驰反向采访董宇辉，口称「辉哥」，坦言已无太大动力再出演，年纪大了，体能跟不上，哪些信息值得关注？](http://www.daogukj.com/7749326)
+- [伊朗称击毁驻约旦美军基地 3 架 F-35，哪些信息值得关注？](http://www.daogukj.com/4323075)
+- [客服 坏了他真会啊](http://www.movie.hkepx.cn/movie/9488458.htm)
 - [DeepSeek V4 flash 正式版发布，有哪些亮点值得关注？](http://www.movie.hkepx.cn/movie/2374212.htm)
-- [手绘469张！还原EVA主题曲](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
-- [《基督山伯爵》这种纯爽文为什么能成为名著？](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
-- [张雅琪送客人孔明锁](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
-- [油价](http://www.movie.hkepx.cn/movie/6531033.htm)
-- [连云港火灾母女坠楼 3岁女童身亡](http://www.daogukj.com/spbreewj/)
-- [王者荣耀这自动寻路太好用了，以后跑图方便了](http://www.daogukj.com/gopjchhj/)
-- [文旅靠擦边挣钱 别脏了青山绿水](http://www.movie.hkepx.cn/xiju/5337621.htm)
-- [敖瑞鹏工作室回应接中剧](http://www.daogukj.com/niwgdgqs/)
-- [小时候看不懂，长大后已是局中人](http://www.daogukj.com/nhoydtix/)
-- [母女火灾中坠楼事发5天当地仍无回应](http://www.movie.hkepx.cn/xiju/9013758.htm)
-- [日元偷袭，美元盘中跌破100且兑日元急挫超3%，美股SOX指数盘内涨超8%，大宗商品异动，发生了什么？](http://www.daogukj.com/8222516)
-- [5年期大额存单返场 部分利率破2%](http://www.daogukj.com/2198681)
-- [不是高温天就不会中暑？假的](http://www.daogukj.com/qjzpvrwa/)
-- [保时捷女销冠回应被AI合成不雅视频](http://www.movie.hkepx.cn/xiju/3667958.htm)
-- [《非霸凌不可吗》](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
-- [南充市委原书记古正举贪1.24亿获无期](http://www.movie.hkepx.cn/xiju/0423343.htm)
-- [女子多次遭家暴后杀夫逃亡20年](http://www.movie.hkepx.cn/xiju/6831166.htm)
-- [男子用私密视频勒索前女友50多次获刑](http://www.movie.hkepx.cn/xiju/7701717.htm)
-- [2034杯赛事精彩瞬间](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
-- [为什么高校行政人员的脾气普遍不好甚至态度恶劣？](http://www.movie.hkepx.cn/xiju/8472152.htm)
-- [消耗40亿token，我做了个AI军官监督我学习【B站AI创造公开赛】](http://www.daogukj.com/5336794)
-- [国内极具挑战性的五大玩命景区，你敢来挑战吗？](http://www.daogukj.com/6170092)
-- [大V：韩国危机远比股市要严重](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
-- [柯洁在王中王围棋争霸赛决赛中，从 1%胜率逆转夺冠，有多难？如何评价他本次比赛的表现？](http://www.daogukj.com/3387155)
-- [千万不要把自己的身体当做耗材](http://www.movie.hkepx.cn/xiju/5963440.htm)
-- [男子砸伤摊主后西瓜全买就能免责吗](http://www.daogukj.com/9693904)
-- [挑战从东北徒步到西藏( 十倍速1小时5分版）](http://www.movie.hkepx.cn/movie/9348798.htm)
-- [机器狼扛单兵火箭筒冲上滩头](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
-- [如何看待王虹在大学期间因为数学难度陡增，「felt a little discouraged」?](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
-- [我国基本养老保险覆盖范围继续扩大](http://www.movie.hkepx.cn/movie/1705456.htm)
-- [蛋糕配送途中损毁 母女放弃索赔](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
-- [孟子义八月好忙](http://www.movie.hkepx.cn/xiju/4301515.htm)
-- [李晟十日终焉领口带血](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
-- [代拍发的田曦薇生图](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
-- [最佳理财全家桶](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
-- [孟子义用了迪丽热巴音频](http://www.movie.hkepx.cn/xiju/7431738.htm)
-- [超60城优化公积金政策](http://www.daogukj.com/pmdpqyts/)
-- [游客进入青海黑独山禁游区拍照，工作人员称一个脚印十年难恢复，砾石层为何难恢复？景区该如何管住越界打卡？](http://www.movie.hkepx.cn/movie/5542629.htm)
+- [章若楠ins第一条百万赞](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
+- [“省气贴可让燃气表少走字”不实](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
+- [媒体人：特高课在行动 731阴魂不散](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
+- [机器狼扛单兵火箭筒冲上滩头](http://www.movie.hkepx.cn/movie/6531033.htm)
+- [中国最高薪本科专业易主](http://www.daogukj.com/spbreewj/)
+- [211大学生应聘暑假端盘子被留当家教](http://www.daogukj.com/gopjchhj/)
+- [取消午休4点下班你会同意吗](http://www.movie.hkepx.cn/xiju/5337621.htm)
+- [八一建军节限量版数字徽章将上线](http://www.daogukj.com/niwgdgqs/)
+- [《原神》7.0版本PV：「无神怜爱的雪国」](http://www.daogukj.com/nhoydtix/)
+- [长鑫上市，对合肥普通市民能有影响吗？](http://www.movie.hkepx.cn/xiju/9013758.htm)
+- [你们起过最爆笑的外号是什么](http://www.daogukj.com/8222516)
+- [孙珍妮胳膊瘦到只剩骨头了](http://www.daogukj.com/2198681)
+- [太初神宗的故事（合集）](http://www.daogukj.com/qjzpvrwa/)
+- [12306回应高铁为何会提前7分钟发车](http://www.movie.hkepx.cn/xiju/3667958.htm)
+- [李光洙起哄金宇彬申敏儿](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
+- [国家电网原董事长辛保安被查](http://www.movie.hkepx.cn/xiju/0423343.htm)
+- [《整改到胃》](http://www.movie.hkepx.cn/xiju/6831166.htm)
+- [肖战的腰还好吗](http://www.movie.hkepx.cn/xiju/7701717.htm)
+- [女孩大学毕业照顾渐冻症母亲三年](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
+- [《原神》至冬探索短片——雪国的冒险](http://www.movie.hkepx.cn/xiju/8472152.htm)
+- [古罗马离谱习俗——两千年前的古罗马，开放程度与市井智慧，完全颠覆现代人的认知。](http://www.daogukj.com/5336794)
+- [董宇辉称看了500遍大话西游 星爷震惊](http://www.daogukj.com/6170092)
+- [如何看待2026年7月米哈游《原神》7.0至冬预告：所有坎瑞亚人都是冰之女皇的后裔？](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
+- [如何评价柯洁夺冠后称「最近在琢磨别的几乎没花时间在围棋上，7月份下棋不到5小时，不知道为什么就赢了」？](http://www.daogukj.com/3387155)
+- [周星驰质疑董宇辉看大话西游500遍](http://www.movie.hkepx.cn/xiju/5963440.htm)
+- [A股放量上涨是反弹还是反转](http://www.daogukj.com/9693904)
+- [民宿老板快被这个暑期熬垮了](http://www.movie.hkepx.cn/movie/9348798.htm)
+- [连云港火灾丈夫曾喊「不要喷水」，火灾时高压水枪对人喷水，这会给人带来怎样的二次伤害？水蒸气会烫伤人吗？](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
+- [八一建军节之际致敬中国军人](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
+- [特斯拉否认「剥离或出售中国业务」，中国业务对其有多重要？怎样从商业角度解读？](http://www.movie.hkepx.cn/movie/1705456.htm)
+- [申惠善获青龙视后](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
+- [退役军人事务部向广大退役军人送祝福](http://www.movie.hkepx.cn/xiju/4301515.htm)
+- [汉口站北门未开致旅客误车被起诉](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
+- [游客进入青海黑独山禁游区拍照，工作人员称一个脚印十年难恢复，砾石层为何难恢复？景区该如何管住越界打卡？](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
+- [《原神》7.0版本「无神怜爱的雪国」前瞻特别节目](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
+- [小区 不具备铺设条件](http://www.movie.hkepx.cn/xiju/7431738.htm)
+- [下半年经济工作发力方向划重点](http://www.daogukj.com/pmdpqyts/)
+- [【家有神兽】三战第九集:我军特种部队和机器狗并肩作战，火力突袭贾布瓦机场](http://www.movie.hkepx.cn/movie/5542629.htm)
 
 </details>
 
 ## 原始来源
 
-- [抵抗者2026实机演示](https://b23.tv/BV1rW326hEKe)
+- [小时候看不懂，长大后已是局中人](https://b23.tv/BV1qh3W6bEqf)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d478a8adac4d8bc38eda -->
+<!-- content-fingerprint: 719d7123c6dca61b9fdb -->
