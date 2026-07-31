@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 抵抗者2026实机演示
+# 小时候看不懂，长大后已是局中人
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：7130675 · 分类：单机游戏 · 更新：2026-07-31T07:46:12+08:00
+> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：3265948 · 分类：影视剪辑 · 更新：2026-07-31T18:03:34+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“抵抗者2026实机演示”位列第 1 位，公开热度指标为 7130675，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“小时候看不懂，长大后已是局中人”位列第 1 位，公开热度指标为 3265948，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：在那黑暗岁月，我们早已习惯生离死别。 侵略者的铁蹄踏碎山河，每一寸土地燃烧。 我们是驰骋在林海雪原，不屈的抗联； 我们是隐谧在绝境的孤岛，永不消逝的电波； 我们是翻腾在运河的波涛，快意恩仇的尖刀； 我们是屹立在太行之巅，血肉筑起的长城。 拿起武器，我们是抵抗者！
+来源公开摘要显示：二十万粉庆贺！正巧用上了二十年这个意向，这几个月一直都在碰壁，还好一直有人私信鼓励我，获益良多也重新振作了精神，所以用这个视频表达感谢，素材也是应粉丝要求而做，希望二十年后，我还在大家身旁。观众朋友们看得开心哦！ 写一封信 将我的想法都记下 等老了慢慢看 简单的日子 正要感受好时光 全都拿来珍藏 人生的阶段 所有口味都品尝 是快乐或遗憾 不必去追赶 正在奔跑的时光 心安便是寻常
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
 
 ## 相关热点
 
-- [别对着陌生人的手机念数字](liu-shen-wu-zhu.md)
-- [欧足联决定抵制世界杯](qi-shang-ba-xia.md)
-- [美股收盘：微软创近18年最大单日涨幅](ba-mian-ling-long.md)
-- [彭水山体崩塌的 00 后网格员龚宝冬遗骸被找到，因组织群众转移未及时撤离遇难，他的行为让你有哪些感触？](jiu-niu-yi-mao.md)
+- [连云港火灾母女坠楼 3岁女童身亡](liu-shen-wu-zhu.md)
+- [台风](qi-shang-ba-xia.md)
+- [南充市委原书记古正举贪1.24亿获无期](ba-mian-ling-long.md)
+- [柯洁在王中王围棋争霸赛决赛中，从 1%胜率逆转夺冠，有多难？如何评价他本次比赛的表现？](jiu-niu-yi-mao.md)
 
 ## 站内推荐
 
-- [日本广岛现新物质 系原子弹爆炸形成](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [曾被视为“冷门”的学科缘何备受追捧](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [马斯克最新预言来了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [宋威龙 热巴姐你好像提前放扇子了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [白玉兰自己也在回味](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [最佳理财全家桶](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [小伙被椅子扶手卡头 朋友救助也被卡](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [卫健委回应原配申请销毁婚外胚胎](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [油价](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [2034杯赛事精彩瞬间](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [医生称多囊卵巢综合征名字害惨女性](http://www.movie.hkepx.cn/xiju/9473962.htm)
-- [男孩挡电梯门近2分钟被家长“制裁”](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
-- [“沙漠”的“沙”为什么不是石字旁的“砂”？](http://www.daogukj.com/9950285)
-- [女子被公公强奸丈夫称父亲喝醉了](http://www.daogukj.com/hdjwtczf/)
-- [我不想上班，我想去农村种地好吗？](http://www.movie.hkepx.cn/xiju/3930873.htm)
-- [【世界杯终局之战 续集】复仇者，冲锋！](http://www.daogukj.com/lahsyiok/)
-- [李小璐首度公开真实离婚时间](http://www.movie.hkepx.cn/movie/2808271.htm)
-- [小时候看不懂，长大后已是局中人](http://www.daogukj.com/pdxtjjps/)
-- [解放军两次警告日方不能自称海军](http://www.movie.hkepx.cn/movie/8646334.htm)
-- [《非霸凌不可吗》](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
-- [杨振宁遗孀翁帆赴新疆喀什看望老兵](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
-- [《蜘蛛侠：崭新之日》好看吗](http://www.daogukj.com/0662108)
-- [晋江喊话番茄](http://www.daogukj.com/ytojyrlp/)
-- [美股收盘：满屏都是两位数涨幅](http://www.movie.hkepx.cn/xiju/5031303.htm)
-- [曾舜晞吴老狗上线4分钟热度破亿](http://www.movie.hkepx.cn/movie/6436180.htm)
-- [孩子们，出了社会可没人惯着你](http://www.daogukj.com/3990167)
-- [媒体称三大运营商将于 7 月 31 日前全面取消网络代理渠道，释放了哪些行业信号？对消费者有什么影响？](http://www.movie.hkepx.cn/xiju/2312432.htm)
-- [宋威龙 热巴姐你好像提前放扇子了](http://www.movie.hkepx.cn/xiju/8661033.htm)
-- [中国“黄金大外环”要来了](http://www.daogukj.com/0078862)
-- [陈伟霆九门老九门出场对比](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
-- [你甚至可以看到植物打人](http://www.daogukj.com/4309889)
-- [男孩骑羊骑出了汗血宝马的感觉](http://www.daogukj.com/nprhrdaf/)
-- [曝BLG联系不到Bin](http://www.movie.hkepx.cn/movie/1442506.htm)
-- [豆包究竟见过多少人的糗事](http://www.daogukj.com/4057647)
-- [如何看待《年会不能停2！》点映排片已经被《蜘蛛侠》《八仙！》等影片压制到不足 0.1%，会选择撤档吗？](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
-- [化身Superman！摩托老哥解锁新技能](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
-- [deepseek能否用来翻译书？](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
-- [美股收盘：微软创近18年最大单日涨幅](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
-- [龚宝冬遇难 西南政法大学官网变黑白](http://www.movie.hkepx.cn/xiju/7985479.htm)
-- [马斯克最新预言来了](http://www.movie.hkepx.cn/movie/2019373.htm)
-- [曾被视为“冷门”的学科缘何备受追捧](http://www.daogukj.com/4851140)
-- [奇怪的玩具工厂 第五章 Part2，结局](http://www.daogukj.com/ssypiueg/)
-- [欧足联决定抵制世界杯](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
-- [苹果库克的最后一份财报亮相](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
-- [短暂停火后伊美再启战局](http://www.daogukj.com/lzxgwnjt/)
-- [60岁男子坚持广州深圳往返通勤14年](http://www.movie.hkepx.cn/xiju/4607012.htm)
-- [罕见龙卷风突袭，他3分钟内同时失去了父母和家当](http://www.movie.hkepx.cn/movie/8010450.htm)
-- [解放军喊话菲军机不要抵近否则遭拦截](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
-- [挑战从东北徒步到西藏( 十倍速1小时5分版）](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
-- [《灰境行者》全新预告丨PC测试定档9月](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
-- [手绘469张！还原EVA主题曲](http://www.movie.hkepx.cn/xiju/4057893.htm)
-- [歼15试飞遇险距甲板边缘5米刹停](http://www.daogukj.com/mgibxpfj/)
-- [洪水中锁死狮子该不该](http://www.movie.hkepx.cn/movie/3059200.htm)
-- [【独家】《将夜》第16集 永字八法【4月国创】](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
-- [女子做检查时身亡丈夫称麻醉师玩手机](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
-- [小米澎程N90 Max预售价29.99万元](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
-- [刘耀文瘦成这样](http://www.movie.hkepx.cn/xiju/2631994.htm)
-- [黑鲨官宣全面停止手机官方售后，其巅峰时期占据游戏手机 47% 市场份额，游戏手机是不是阶段性伪需求？](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
-- [保姆拐走婴儿 35 年为何仅获刑三年？这一判决是不是太轻了？](http://www.daogukj.com/qfedcfsy/)
-- [2026乒超联赛王楚钦/周启豪1-2林诗栋/赵钊彦，如何评价这场比赛？](http://www.daogukj.com/djjsqhar/)
+- [李晟十日终焉领口带血](http://www.movie.hkepx.cn/xiju/9473962.htm)
+- [男子穿拖鞋夜钓被黄辣丁扎穿鞋底](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
+- [西班牙北非飞地休达遭遇大规模移民涌入，负责人直言边境已「完全崩溃」，目前情况如何?](http://www.daogukj.com/9950285)
+- [连云港火灾坠楼女童身亡](http://www.daogukj.com/hdjwtczf/)
+- [小米澎程N90、N70两款SUV上市后是否会有车企跟进设计？](http://www.movie.hkepx.cn/xiju/3930873.htm)
+- [《灰境行者》全新预告丨PC测试定档9月](http://www.daogukj.com/lahsyiok/)
+- [代拍发的田曦薇生图](http://www.movie.hkepx.cn/movie/2808271.htm)
+- [抵抗者2026实机演示](http://www.daogukj.com/pdxtjjps/)
+- [孟子义用了迪丽热巴音频](http://www.movie.hkepx.cn/movie/8646334.htm)
+- [一条蛆的使命](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
+- [石华杰不再担任山东省委常委](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
+- [男子用私密视频勒索前女友50多次获刑](http://www.daogukj.com/0662108)
+- [男子砸伤摊主后西瓜全买就能免责吗](http://www.daogukj.com/ytojyrlp/)
+- [新人结婚将高铁作婚车排面拉满](http://www.movie.hkepx.cn/xiju/5031303.htm)
+- [我国基本养老保险覆盖范围继续扩大](http://www.movie.hkepx.cn/movie/6436180.htm)
+- [奇怪的玩具工厂 第五章 Part2，结局](http://www.daogukj.com/3990167)
+- [为什么高校行政人员的脾气普遍不好甚至态度恶劣？](http://www.movie.hkepx.cn/xiju/2312432.htm)
+- [油价](http://www.movie.hkepx.cn/xiju/8661033.htm)
+- [地球正在发烧 50°C高温来了](http://www.daogukj.com/0078862)
+- [C罗晒与16岁儿子肌肉合照](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
+- [孟子义八月好忙](http://www.daogukj.com/4309889)
+- [陈文清：深化扫黑除恶专项斗争](http://www.daogukj.com/nprhrdaf/)
+- [DeepSeekV4Flash正式版上线](http://www.movie.hkepx.cn/movie/1442506.htm)
+- [消防云梯气垫](http://www.daogukj.com/4057647)
+- [《基督山伯爵》这种纯爽文为什么能成为名著？](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
+- [来吧，互相伤害吧](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
+- [日元偷袭，美元盘中跌破100且兑日元急挫超3%，美股SOX指数盘内涨超8%，大宗商品异动，发生了什么？](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
+- [南充市委原书记古正举贪1.24亿获无期](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
+- [钧正平：99+1=？](http://www.movie.hkepx.cn/xiju/7985479.htm)
+- [卫健委回应原配申请销毁婚外胚胎](http://www.movie.hkepx.cn/movie/2019373.htm)
+- [小伙被椅子扶手卡头 朋友救助也被卡](http://www.daogukj.com/4851140)
+- [古罗马离谱习俗——两千年前的古罗马，开放程度与市井智慧，完全颠覆现代人的认知。](http://www.daogukj.com/ssypiueg/)
+- [台风](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
+- [张绍刚打断周深](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
+- [清华求真书院预科班部分学生被清退](http://www.daogukj.com/lzxgwnjt/)
+- [文旅靠擦边挣钱 别脏了青山绿水](http://www.movie.hkepx.cn/xiju/4607012.htm)
+- [《次子就是次子》](http://www.movie.hkepx.cn/movie/8010450.htm)
+- [取消午休4点下班你会同意吗](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
+- [中央宣传部授予王戟同志「时代楷模」称号，他的身上有怎样的故事？哪些精神值得学习？](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
+- [争夺蜜瓜的修行【绝区零生日会】](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
+- [【纪录片】地球·劫后重生 中配版08 美洲洪水](http://www.movie.hkepx.cn/xiju/4057893.htm)
+- [大V：韩国危机远比股市要严重](http://www.daogukj.com/mgibxpfj/)
+- [蛋糕配送途中损毁 母女放弃索赔](http://www.movie.hkepx.cn/movie/3059200.htm)
+- [为什么许多美剧都发生在缅因州?](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
+- [男子买错机票 7分钟后退票被扣2千多](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
+- [陆军某旅演练教官发实弹](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
+- [狗狗配种被骗主人喊话为狗讨公道](http://www.movie.hkepx.cn/xiju/2631994.htm)
+- [浙江一大爷用铲子斩断剧毒眼镜蛇，5 分钟后用手捡起蛇头，突然被咬中毒，蛇头断了为什么还能咬人？](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
+- [游客进入青海黑独山禁游区拍照，工作人员称一个脚印十年难恢复，砾石层为何难恢复？景区该如何管住越界打卡？](http://www.daogukj.com/qfedcfsy/)
+- [伊朗称击毁驻约旦美军基地 3 架 F-35，哪些信息值得关注？](http://www.daogukj.com/djjsqhar/)
 
 </details>
 
 ## 原始来源
 
-- [抵抗者2026实机演示](https://b23.tv/BV1rW326hEKe)
+- [小时候看不懂，长大后已是局中人](https://b23.tv/BV1qh3W6bEqf)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7342d8f91b581542cba3 -->
+<!-- content-fingerprint: 2695f02bc64ba085e00e -->
