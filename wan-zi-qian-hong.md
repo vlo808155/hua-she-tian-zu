@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 北斗卫星导航系统全面完成在轨升级
+# 向着世界一流军队迈进
 
-> 来源：今日头条热榜 · 排名：第 3 位 · 热度：13134990 · 更新：2026-08-01T08:13:26+08:00
+> 来源：今日头条热榜 · 排名：第 3 位 · 热度：11869150 · 更新：2026-08-01T16:55:59+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“北斗卫星导航系统全面完成在轨升级”位列第 3 位，公开热度指标为 13134990。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“向着世界一流军队迈进”位列第 3 位，公开热度指标为 11869150。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [马特·达蒙中国宣传《奥德赛》，谈及电影《长城》直言「好莱坞让张艺谋失望了」，怎样理解这一说法？](niao-yu-hua-xiang.md)
-- [《原神》7.0版本PV：「无神怜爱的雪国」](shan-qing-shui-xiu.md)
-- [篮网老板蔡崇信与妻子和平分手](feng-he-ri-li.md)
-- [周星驰质疑董宇辉看大话西游500遍](chun-nuan-hua-kai.md)
+- [字节系在移动互联网用户时长的占比升至 40.1%，正式超越腾讯系的 29.7%，你怎么看？](niao-yu-hua-xiang.md)
+- [【独家】《凡人修仙传之慕兰之战》第9集【总第185集】](shan-qing-shui-xiu.md)
+- [大盘鸡里有土豆 该报警吗](feng-he-ri-li.md)
+- [喜羊羊与灰太狼回应被指擦边](chun-nuan-hua-kai.md)
 
 ## 站内推荐
 
-- [6万非法移民登陆西班牙8万人口城市](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [机器狼扛单兵火箭筒冲上滩头](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [中国留学生在澳遭种族歧视者掐脖辱骂](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [为什么梦幻西游端游能活将近 19 年？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [好莱坞女星赞达亚 2026 年有 4 部电影上映，其中 3 部都是大片，她怎么崛起的？如何评价其演技？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [俄罗斯被曝首次打击美国防企业](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [亚洲糖王女儿现身胖东来](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [呼市49名被调整干部重获提拔任用](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [谢贤前女友Coco回应与张柏芝关系](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [广西梧州一公职人员称领导私联医生询问病情，警方已立案，这涉嫌侵犯隐私吗？院方可向第三方透露患者病情吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [篮网老板蔡崇信与妻子和平分手](http://www.play.hengshemaoyi.cn/kongbu/2243236.htm)
-- [房主任被停演3个月](http://www.movie.hkepx.cn/xiju/6258682.htm)
-- [挑战从东北徒步到西藏( 十倍速1小时5分版）](http://www.daogukj.com/4199190)
-- [这不是电影这是中国军人实弹训练](http://www.daogukj.com/ddksoogp/)
-- [如何评价凡人修仙传182集再做修改？](http://www.daogukj.com/1151921)
-- [成为蜘蛛侠的10年，荷兰弟对我说…【蛛联B合】](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
-- [你们起过最爆笑的外号是什么](http://www.daogukj.com/pclokhlt/)
-- [女子做支气管镜时身亡，丈夫称麻醉师全程玩手机，院方则称医生责任不大，卫健部门已介入，责任该如何认定？](http://www.daogukj.com/1912371)
-- [我们拍到了水下风暴](http://www.daogukj.com/1276372)
-- [《原神》7.0版本PV：「无神怜爱的雪国」](http://www.play.hengshemaoyi.cn/kongbu/3420758.htm)
-- [有一种安全感叫中国军人](http://www.movie.hkepx.cn/xiju/9275339.htm)
-- [《灰境行者》全新预告丨PC测试定档9月](http://www.play.hengshemaoyi.cn/kongbu/1292863.htm)
-- [婚外试管小三正面拍照挑衅患癌原配](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
-- [中国足球小将红队无缘2034杯决赛](http://www.play.hengshemaoyi.cn/xiju/0325633.htm)
-- [《次子就是次子》](http://www.daogukj.com/3321605)
-- [太初神宗的故事（合集）](http://www.movie.hkepx.cn/movie/8247920.htm)
-- [医生为救患癌母亲找药贩子买原料药](http://www.play.hengshemaoyi.cn/kongbu/8269947.htm)
-- [低价大流量卡将集体退场](http://www.daogukj.com/7559408)
-- [顾客因大盘鸡里有土豆报警](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
-- [怎么看 Anthropic 公布的 Claude 也发生了沙箱逃逸，真实入侵了三家组织的事？](http://www.daogukj.com/qygrqwfc/)
-- [台风白海豚已达17级](http://www.movie.hkepx.cn/movie/1898296.htm)
-- [美军一架F35战机在加州基地坠毁](http://www.movie.hkepx.cn/xiju/9208788.htm)
-- [蔡崇信离婚](http://www.play.hengshemaoyi.cn/kongbu/3841017.htm)
-- [为什么感觉对方忽冷忽热的](http://www.movie.hkepx.cn/movie/9300663.htm)
-- [😊什么样的结局才配得上这一路的颠沛流离……【一口气看完】](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
-- [男子确诊“社交癌” 15分钟手术治愈](http://www.daogukj.com/8278736)
-- [如果有人抱着机关枪坠高楼，垂直向下持续开枪，能避免摔死吗？](http://www.daogukj.com/8218886)
-- [建军节](http://www.daogukj.com/etwnkcjm/)
-- [男子喝酒出“绝汗”被隔壁桌医生救回](http://www.daogukj.com/jbysyguh/)
-- [拿西瓜连环砸人头 不是硬气是傻气](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
-- [陈天桥2.2亿“抄底”上海酒店](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
-- [辅助生殖漏洞让不忠者有可乘之机](http://www.daogukj.com/9528300)
-- [当你不小心进入了黑乌龟...](http://www.movie.hkepx.cn/movie/6435439.htm)
-- [不是！你说这是热血江湖？❤](http://www.movie.hkepx.cn/movie/4878992.htm)
-- [“省气贴可让燃气表少走字”不实](http://www.movie.hkepx.cn/xiju/8029656.htm)
-- [codex有哪些奇技淫巧？](http://www.daogukj.com/4914176)
-- [周星驰质疑董宇辉看大话西游500遍](http://www.movie.hkepx.cn/xiju/5605421.htm)
-- [32岁男子在香港一酒吧被围殴身亡](http://www.movie.hkepx.cn/xiju/8838856.htm)
-- [董宇辉称看了500遍大话西游 星爷震惊](http://www.movie.hkepx.cn/xiju/4562883.htm)
-- [6万非法移民登陆西班牙8万人口城市](http://www.play.hengshemaoyi.cn/xiju/9673613.htm)
-- [054B护卫舰首次亮相黄岩岛](http://www.daogukj.com/8978179)
-- [半夜醒来不要看时间](http://www.play.hengshemaoyi.cn/kongbu/9386523.htm)
-- [为什么梦幻西游端游能活将近 19 年？](http://www.movie.hkepx.cn/movie/8202567.htm)
-- [美股集体收涨 亚马逊涨超15%](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
-- [机器狼扛单兵火箭筒冲上滩头](http://www.movie.hkepx.cn/xiju/8258278.htm)
-- [宇树科技 IPO 时间定了，8 月 10 日开启新股申购，怎样看待其市场前景？](http://www.movie.hkepx.cn/movie/5226555.htm)
-- [含鸡鸭粪便的烟流向全国各地](http://www.daogukj.com/danezrrx/)
-- [6万非法移民登陆西班牙8万人口飞地](http://www.play.hengshemaoyi.cn/kongbu/5916498.htm)
-- [国盛证券被证监会立案](http://www.movie.hkepx.cn/xiju/2002414.htm)
-- [上海一顾客因大盘鸡里有土豆报警](http://www.movie.hkepx.cn/xiju/4878037.htm)
+- [大盘鸡里有土豆 该报警吗](http://www.play.hengshemaoyi.cn/kongbu/2243236.htm)
+- [陈瑶霍仙姑下线了](http://www.movie.hkepx.cn/xiju/6258682.htm)
+- [喜羊羊新作画面疑似擦边，美羊羊抬手捂住裙摆引发争议，是过度解读吗？面向少儿的动画须把握怎样的创作边界？](http://www.daogukj.com/4199190)
+- [jiejie EDG](http://www.daogukj.com/ddksoogp/)
+- [自己暂时没有开车需求，却不断被父母催着考驾照，有必要为了「以后总会用到」现在就学吗？](http://www.daogukj.com/1151921)
+- [遗忘之海×海绵宝宝联动PV——出发！蟹堡王分店！](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
+- [KSG 时差3](http://www.daogukj.com/pclokhlt/)
+- [三大运营商停止第三方互联网渠道号卡办理，低价大流量卡将集体退场，出于哪些考量？对普通消费者有什么影响？](http://www.daogukj.com/1912371)
+- [两个固排的诞生](http://www.daogukj.com/1276372)
+- [【独家】《凡人修仙传之慕兰之战》第9集【总第185集】](http://www.play.hengshemaoyi.cn/kongbu/3420758.htm)
+- [我还能找到更神秘的我的世界小知识吗？！答对这些题你也可以做科普了！](http://www.movie.hkepx.cn/xiju/9275339.htm)
+- [《原神》至冬交响音乐现场](http://www.play.hengshemaoyi.cn/kongbu/1292863.htm)
+- [全球股王再次易主](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
+- [国家电网坚决拥护党中央决定](http://www.play.hengshemaoyi.cn/xiju/0325633.htm)
+- [太初神宗的故事（合集）](http://www.daogukj.com/3321605)
+- [【纪录片】闪闪的儿科医生4 第10集 接棒！生命未完待续……](http://www.movie.hkepx.cn/movie/8247920.htm)
+- [解放军为何在此时位黄岩岛联合演训](http://www.play.hengshemaoyi.cn/kongbu/8269947.htm)
+- [快递员在箱上写“要不要送你床上”](http://www.daogukj.com/7559408)
+- [LV中国申请了1481件商标](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
+- [舰载机飞行员喊话外军：我只想战斗](http://www.daogukj.com/qygrqwfc/)
+- [五台山 雷击人](http://www.movie.hkepx.cn/movie/1898296.htm)
+- [福建舰入列后首次曝光海上画面](http://www.movie.hkepx.cn/xiju/9208788.htm)
+- [鲁比奥：中美之间任何冲突都是灾难](http://www.play.hengshemaoyi.cn/kongbu/3841017.htm)
+- [这样的外卖才配收我的打包费](http://www.movie.hkepx.cn/movie/9300663.htm)
+- [如何看待房主任因《姐姐当家 2》中不当言论，遭经纪公司禁演三个月？](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
+- [美军传来噩耗，国防部长成了健身卖药黑私教](http://www.daogukj.com/8278736)
+- [如何评价最新发布的人民军队宣传片《制胜》？有哪些值得关注的细节？](http://www.daogukj.com/8218886)
+- [花儿与少年8](http://www.daogukj.com/etwnkcjm/)
+- [低价大流量卡将集体退场](http://www.daogukj.com/jbysyguh/)
+- [肖战领衔主演《莫得闲》今日开播](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
+- [林心如晒照庆祝结婚十周年](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
+- [日赚600万后 县城零食批量翻车](http://www.daogukj.com/9528300)
+- [【合唱】千本樱（100000人）](http://www.movie.hkepx.cn/movie/6435439.htm)
+- [大 周 礼 时 代(15)](http://www.movie.hkepx.cn/movie/4878992.htm)
+- [【纪录片】地球·劫后重生 中配版08 美洲洪水](http://www.movie.hkepx.cn/xiju/8029656.htm)
+- [少年捐日军侵华罪证遭「销户」威胁，警方已立案并启动保护，这些发布死亡威胁的人该承担怎样的法律责任？](http://www.daogukj.com/4914176)
+- [喜羊羊与灰太狼回应被指擦边](http://www.movie.hkepx.cn/xiju/5605421.htm)
+- [光是有速度的，它的速度会降低吗？](http://www.movie.hkepx.cn/xiju/8838856.htm)
+- [女生老拉肚子发现吸管内壁全是污垢](http://www.movie.hkepx.cn/xiju/4562883.htm)
+- [俄罗斯被曝首次打击美国防企业](http://www.play.hengshemaoyi.cn/xiju/9673613.htm)
+- [婚外胚胎](http://www.daogukj.com/8978179)
+- [《原神》7.0版本PV：「无神怜爱的雪国」](http://www.play.hengshemaoyi.cn/kongbu/9386523.htm)
+- [谢贤前女友Coco回应与张柏芝关系](http://www.movie.hkepx.cn/movie/8202567.htm)
+- [未婚夫自缢 女方被判返还部分彩礼](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
+- [亚洲糖王女儿现身胖东来](http://www.movie.hkepx.cn/xiju/8258278.htm)
+- [战鹰的「熬鹰杯」举办到第三届了，这项比赛今年有什么亮点吗？](http://www.movie.hkepx.cn/movie/5226555.htm)
+- [五台山多人遭雷击：眼前一白就倒了](http://www.daogukj.com/danezrrx/)
+- [金戒掉高铁厕所 12306：不符寻找条件](http://www.play.hengshemaoyi.cn/kongbu/5916498.htm)
+- [吴宜泽：希望赵心童把冠军留在中国](http://www.movie.hkepx.cn/xiju/2002414.htm)
+- [如何看待2026年7月31日《原神》7.0版本主题曲《至冬》重新启用陈致逸「足迹」PV旧有旋律？](http://www.movie.hkepx.cn/xiju/4878037.htm)
 
 </details>
 
 ## 原始来源
 
-- [北斗卫星导航系统全面完成在轨升级](https://www.toutiao.com/article/7668603441899405864)
+- [向着世界一流军队迈进](https://www.toutiao.com/trending/7668520620052778502/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227668520620052778502%22%2C%22hot_board_impr_id%22%3A%22202608011655583DC355055526E6CB5099%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: be780edc5f415f34769a -->
+<!-- content-fingerprint: 36b691886bdd05441e28 -->
