@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何评价萨迪·辛克在《蜘蛛侠：崭新之日》饰演的琴·葛蕾？
+# 弟弟举报哥哥用自己高考身份读大学，亲兄弟互撕，哥哥从本科到博后被注销，这起兄弟反目的悲剧根源出在哪？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：287 万热度 · 分类：问答 · 更新：2026-08-02T07:43:34+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：3684 万热度 · 分类：问答 · 更新：2026-08-02T15:54:07+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价萨迪·辛克在《蜘蛛侠：崭新之日》饰演的琴·葛蕾？”位列第 1 位，公开热度指标为 287 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“弟弟举报哥哥用自己高考身份读大学，亲兄弟互撕，哥哥从本科到博后被注销，这起兄弟反目的悲剧根源出在哪？”位列第 1 位，公开热度指标为 3684 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：蜘蛛侠系列电影
+来源公开摘要显示：2017年，哥哥唐向东（化名）起诉弟弟唐向西（化名），主张双方存在口头借名买房约定，要求将房产过户至其名下，法院一审支持了唐向东的过户诉求。房产官司一审败诉当年年末，弟弟唐向西向湘潭大学寄出一封举报信，指控哥哥当年冒用他的高考录取身份就读本科。 “旧事”被一封举报信拽回日光之下？ 事情没有想象中那么简单。2018年1月，两兄弟签署一份协议，约定哥哥需向弟弟支付360万元房屋补偿款，当日先行转账160万元，剩余200万元出具了书面欠条。弟弟随后撤回房产案上诉，又向学校寄去第二封信——这次是检讨书，文中称举报不实，是“官司败诉后一时报复”。 但欠条上那200
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [⚡️宗 主 连 携 技⚡️](wu-gu-feng-deng.md)
-- [万人涌入西班牙飞地为何吓坏欧盟](liu-shen-wu-zhu.md)
-- [婚外胚胎案丈夫称患癌妻子是雷](qi-shang-ba-xia.md)
-- [专家提醒奥司他韦对新冠无效](ba-mian-ling-long.md)
+- [四大行5年期大额存单集体回归](liu-shen-wu-zhu.md)
+- [女孩截图假付款](qi-shang-ba-xia.md)
+- [直-20J亮剑黄岩岛](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [最高检、公安部联合发布涉已满 12 周岁未满 14 周岁未成年人严重暴力犯罪的新规，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [《原神》至冬交响音乐现场](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [【TF家族练习生】《突围II破局》EP06：我们把彼此留下来（上）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [父母眼中让人笑话的一生belike](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [杭州足管获“2034杯”亚军](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [华强北商户确认显卡全面封仓，价格大涨约 30%，封仓可能持续多久？价格还会上涨吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [老乡鸡五年五次冲击上市失败，其上市之路为何如此艰难？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [“连坐制”，一款如今人人都在玩的热门游戏](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [【TF家族练习生】《异常加载中》 MV](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [正宗大盘鸡到底有没有土豆？？【主播说三农】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【warma】我为1000亿奖金挑战天才作者谜题！](http://www.daogukj.com/7394302)
-- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [已婚男子与军嫂同居被当场抓获](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [最高检、公安部联合发布涉已满 12 周岁未满 14 周岁未成年人严重暴力犯罪的新规，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [餐馆211暑假工变家教把孩子上崩溃](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [“洪灾后广西道路现持枪男子”不实](http://www.daogukj.com/thgdlrxk/)
-- [周星驰质疑董宇辉看大话西游500遍](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [个贷新规](http://www.daogukj.com/qqvbmaen/)
-- [直观感受到什么是家道中落](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [婚外胚胎案丈夫称患癌妻子是雷](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [公交车从南沙大桥上冲出？谣言](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [全家频繁生病 揭开墙布全屋发霉](http://www.daogukj.com/6313812)
-- [我发现了一个诡异的论坛....](http://www.daogukj.com/wczbkkvt/)
-- [少年捐日军侵华罪证遭「销户」威胁，警方已立案并启动保护，这些发布死亡威胁的人该承担怎样的法律责任？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [郑钦文无缘多伦多站正赛](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [中国新型战机超视距猎杀](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [存储芯片利好来了](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [乌合之众：一个流传百年的心理学谎言](http://www.daogukj.com/7394302)
+- [【独家】《记忆管理局》第1集 在世界末日前回到过去吧【8月国创】](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [“大盘鸡里有土豆”何至于报警](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [华强北商户确认显卡全面封仓，价格大涨约 30%，封仓可能持续多久？价格还会上涨吗？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [李小璐回应“一手好牌打得稀巴烂”](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [网传成都三岔湖水干了 当地辟谣](http://www.daogukj.com/thgdlrxk/)
+- [毕业留美工作可能要先交10万美元](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [刘耀文的手被P没了](http://www.daogukj.com/qqvbmaen/)
+- [集中供冷真的来了](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [女孩截图假付款](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [洪灾后广西道路现持枪男子？谣言](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](http://www.daogukj.com/6313812)
+- [三大运营商新规被指变相涨价，或涉嫌违反《中华人民共和国反垄断法》，是这样吗？具体内容和影响有哪些？](http://www.daogukj.com/wczbkkvt/)
+- [张国伟说自己肯定是天才](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [TF四代青岛演唱会官宣](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [新一代通信网建设加快](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [代入房主任女儿视角真的好崩溃](http://www.movie.hkepx.cn/xiju/4060100.htm)
 - [⚡️宗 主 连 携 技⚡️](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [女子快递站恶意扔别人包裹还骂人](http://www.daogukj.com/jjlkzcvz/)
-- ["大狗？？老吴！！"](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [“不是吧？让一只羊来搞擦边”](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [只有真母单才懂这段吐槽有多真实](http://www.daogukj.com/drcaefzl/)
-- [林心如晒照纪念结婚十周年](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [三大运营商停止第三方互联网渠道号卡办理，低价大流量卡将集体退场，出于哪些考量？对普通消费者有什么影响？](http://www.daogukj.com/rrxeunix/)
-- [房价还能重新上涨吗](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [公职人员停车受阻暴力损坏地锁](http://www.daogukj.com/qekijaaa/)
-- [【合唱】千本樱（100000人） 【B萌应援】](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [致敬最可爱的人](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [针对综艺节目中情绪失控，脱口秀演员「房主任」发布视频道歉，你如何看待？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [8000米高峰雪崩 中国登山家仍失联](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [BLG 豪取五连胜，Bin 回归面临挑战，这对他职业生涯有何影响？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [一个小孩两天吃饭要花659元？家长投诉](http://www.daogukj.com/4880877)
-- [美以计划“猛烈轰炸”伊能源设施](http://www.daogukj.com/gyblgzpw/)
-- [丈夫出轨做试管亲友劝原配接受现实](http://www.daogukj.com/3742193)
-- [刚才发错了](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [多家大行重启 5 年期大额存单，利率最高 1.8%，20 万起存，释放什么信号？普通储户值得入手吗？](http://www.daogukj.com/yhmvbvtt/)
-- [莫斯科市中心爆炸已致3死21伤](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [《原神》7.0版本PV：「无神怜爱的雪国」](http://www.daogukj.com/4405323)
-- [【TF家族练习生】《突围II破局》EP06：我们把彼此留下来（上）](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [气象局称发生超强厄尔尼诺概率在增大](http://www.daogukj.com/ydbbqbuc/)
-- [一部老片为何17年后在中国卖了5000万](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [赵心童不敌威尔逊无缘决赛](http://www.daogukj.com/5927597)
-- [我们拍到了水下风暴](http://www.daogukj.com/3691526)
-- [曾舜晞说孟子义拍戏动过真感情](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [热身三连胜！国米点球4-2曼城](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [【独家】《凡人修仙传之慕兰之战》第9集【总第185集】](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [赵心童止步上海大师赛四强](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [老广「看不惯」的点都德每到暑假又火了，为什么本地和游客评价差异大？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [小伙辞职贷款百万开制冰厂月赚30万](http://www.daogukj.com/9555051)
-- [董路上台领奖面向观众脱帽致谢](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [一看就想睡的装修风格](http://www.daogukj.com/jjlkzcvz/)
+- [《找工作是你的谎言》](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [59岁陈小春称不敢退休](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [C罗结婚酒店当天仍可预订](http://www.daogukj.com/drcaefzl/)
+- [天才女友 AI片头](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [湖南衡阳一公职人员停车受阻，暴力踹坏他人车位上的地锁，多方回应将调解与调查，此事反映出哪些问题？](http://www.daogukj.com/rrxeunix/)
+- [明星 哭穷](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [“黑色黄金”价格打下来了](http://www.daogukj.com/qekijaaa/)
+- [如何评价哈工大自2026级开始取消统考研究生学业奖学金？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [2026暑期档票房突破70亿](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [如何看待房主任在二女儿生日宴诉苦被指愧疚式教育？大女儿说其当年坚持说是为了女儿，实则为自己，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [恶搞余承东视频被华为投诉下架](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [卫健委回应原配申请销毁婚外胚胎，称无相应职责销毁，且尚无证据表明医院存在违法违规行为，如何看待此事？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [这五家经开区被退出“国家队”](http://www.daogukj.com/4880877)
+- [林青霞现身施南生追思会](http://www.daogukj.com/gyblgzpw/)
+- [瑞幸员工对嘴喷奶油](http://www.daogukj.com/3742193)
+- [第5集丨“零号大坝开满了鲜花？”](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [陈小春称不敢退休](http://www.daogukj.com/yhmvbvtt/)
+- [我发现了一个诡异的论坛....](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [荷兰弟已计划交接新一任蜘蛛侠，曾夸《混沌少年时》欧文·库珀是不错人选，你觉得新生代演员谁来接棒最合适？](http://www.daogukj.com/4405323)
+- [“连坐制”，一款如今人人都在玩的热门游戏](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [天总曝一线明星一部戏收入仅一百多万](http://www.daogukj.com/ydbbqbuc/)
+- ["大狗？？老吴！！"](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [我们拍到了水下风暴](http://www.daogukj.com/5927597)
+- [如果我有每天一吨的可稳定供应的西葫芦炖茄子，可以发财吗？](http://www.daogukj.com/3691526)
+- [情侣是一种很诡异的亲密关系](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [多地小学老师为何改教初中](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [刚才发错了](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [家属未做尸检火化遗体 保险公司拒赔](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [海警在黄岩岛模拟拖离侵权船只](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [宋威龙新头像](http://www.daogukj.com/9555051)
+- [日本地震灾区呼吁不要再送千纸鹤](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价萨迪·辛克在《蜘蛛侠：崭新之日》饰演的琴·葛蕾？](https://www.zhihu.com/question/2066099618090312150)
+- [弟弟举报哥哥用自己高考身份读大学，亲兄弟互撕，哥哥从本科到博后被注销，这起兄弟反目的悲剧根源出在哪？](https://www.zhihu.com/question/2066897666827620550)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 39c76842768730f5d67b -->
+<!-- content-fingerprint: 489b173107aabcd55de5 -->
