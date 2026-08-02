@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 释小龙时隔30年再次探班周星驰
+# 胖东来直饮水被大量占用将被管控
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7521654 · 更新：2026-08-02T19:46:48+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7520590 · 更新：2026-08-02T23:46:55+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“释小龙时隔30年再次探班周星驰”位列第 3 位，公开热度指标为 7521654。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“胖东来直饮水被大量占用将被管控”位列第 3 位，公开热度指标为 7520590。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月2日，《功夫女足》官方账号发布视频，释小龙现身剧组探班，这是他时隔30年再次探班周星驰。1995年，7岁的释小龙凭借《笑林小子》走红，曾探班《回魂夜》并与周星驰留下合影。
+来源公开摘要显示：8月2日，胖东来发布《关于“不文明行为”的管理说明》，明确将“大量占用公共饮水及公用便民资源，私取私用”列为不文明行为。根据新规，后续若再出现类似大量囤水的情况，工作人员将按职责进行管控，并引导市民规范使用，确保资源回归服务路人及环卫工人的初衷。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [公积金10万亿账户迎来全面激活](chun-nuan-hua-kai.md)
-- [直-20J亮剑黄岩岛](qiu-gao-qi-shuang.md)
-- [为什么董宇辉能坚持看500多遍《大话西游》？真有人能同一部电影看 500 遍吗？](bing-tian-xue-di.md)
+- [胡一天演高中生被指违和](chun-nuan-hua-kai.md)
+- [胖东来将大量占用直饮水列为不文明行为](qiu-gao-qi-shuang.md)
+- [老乡鸡五年五次冲击上市失败，其上市之路为何如此艰难？](bing-tian-xue-di.md)
 - [【独家】《记忆管理局》第1集 在世界末日前回到过去吧【8月国创】](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
-- [汉堡“缩水”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [三个字让我爸做了一辈子饭](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [长沙一高层住宅火灾致4死2伤](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [华强北商户确认显卡全面封仓，价格大涨约 30%，封仓可能持续多久？价格还会上涨吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [【TF家族练习生】《突围II破局》EP06：我们把彼此留下来（上）](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [登山者王钟遇难 遗体被冲到千米之下](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [每天都要“喝两杯”的人后来怎样了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [最被低估的家禽](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [斯诺克上海大师赛特鲁姆普夺冠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [易烊千玺打码](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [华强北商户确认显卡全面封仓，价格大涨约 30%，封仓可能持续多久？价格还会上涨吗？](http://www.daogukj.com/2989641)
-- [美国为何总上演“临门收手”戏码](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [钱转给村干部医保却没交 当地称漏缴](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [荷兰弟已计划交接新一任蜘蛛侠，曾夸《混沌少年时》欧文·库珀是不错人选，你觉得新生代演员谁来接棒最合适？](http://www.daogukj.com/5775563)
-- [8月1日特朗普称同意取消军事打击伊朗，这次军事打击行动终于要结束了吗？](http://www.daogukj.com/1579567)
-- [易烊千玺打码](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [美军一架 F-35 隐形战机在加州坠毁，为何 F-35 近年事故频发？](http://www.daogukj.com/rvgjqsig/)
-- [东方甄选前CEO首播 热度超董宇辉](http://www.daogukj.com/vcxumdys/)
-- [中央政法委：依法严厉打击村霸乡霸](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [超10万亿住房公积金迎来全面激活](http://www.daogukj.com/4998351)
-- [开家煎饺店叫小荷才露](http://www.daogukj.com/puqecrgq/)
-- [【TF家族练习生】《突围II破局》EP06：我们把彼此留下来（上）](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [当你穿进老钱班31](http://www.daogukj.com/mbleegev/)
-- [【命运-冠位指定×上美影】简中版十周年专属PV——行迹](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [下周还能追科技股吗](http://www.daogukj.com/9378743)
-- [嘲讽张继科解说已解除合作关系](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [7月零跑交付超 10 万台，小鹏交付 3.8 万台，理想、小米、极氪超 3 万台，如何评价各家表现？](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [大衣哥朱之文cos迈克尔·杰克逊](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [南部战区这话很严厉 菲律宾听懂了吗](http://www.daogukj.com/4067994)
-- [王俊凯大麦一开2158张票](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [我们拍到了水下风暴](http://www.daogukj.com/0687577)
-- [华强买瓜，但摄影师是新手](http://www.daogukj.com/0028791)
-- [官方辟谣女子酒店退房搬空用品](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [张凌赫的妈妈公开了和家人的合照](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [青岛发生火灾浓烟滚滚 官方通报](http://www.daogukj.com/0384955)
-- [多地小学老师为何改教初中](http://www.daogukj.com/yjaakhwu/)
-- [便宜90%！美企偷偷换上中国大模型](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [租几颗上亿元的卫星，能拍到什么？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [汉堡“缩水”](http://www.daogukj.com/6760233)
-- [我发现了一个诡异的论坛....](http://www.daogukj.com/0471626)
-- [日本地震灾区呼吁不要再送千纸鹤](http://www.daogukj.com/znjtiiff/)
-- [⚡️宗 主 连 携 技⚡️](http://www.daogukj.com/dduwvxya/)
-- [韩国股市 38 天跌掉韩国一年 GDP，韩股「去杠杆」结束了吗？这场杠杆风暴给全球散户带来哪些警示？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [公职人员损坏地锁反转了吗](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [斯诺克上海大师赛特鲁姆普夺冠](http://www.daogukj.com/2989641)
+- [《找工作是你的谎言》](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [心动的信号6 背调](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [用这种杯子喝水的人“天塌了”](http://www.daogukj.com/5775563)
+- [句号采访不需要翻译](http://www.daogukj.com/1579567)
+- [为什么拖完地总有股腥臭味](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [闪送员女儿考上北大 平台：学费我们管](http://www.daogukj.com/rvgjqsig/)
+- [熊本灾区：求你们别寄千纸鹤来--我就是要寄](http://www.daogukj.com/vcxumdys/)
+- [华强买瓜，但摄影师是新手](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [一个爱侧睡的人轻轻的碎了](http://www.daogukj.com/4998351)
+- [一天一变 电脑价格飙升](http://www.daogukj.com/puqecrgq/)
+- [易烊千玺打码](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [7月零跑交付超 10 万台，小鹏交付 3.8 万台，理想、小米、极氪超 3 万台，如何评价各家表现？](http://www.daogukj.com/mbleegev/)
+- [江苏一小区试点矿井水集中供冷，不用空调室温25℃，年减碳50吨，这么好的事为何现在才落地？值得推广吗？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [2026年亚运会](http://www.daogukj.com/9378743)
+- [河南“三支一扶”考试查实作弊](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [超10万亿住房公积金迎来全面激活](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [小孩哥淡然回复：坐公交就能走出大山](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [银行 午休](http://www.daogukj.com/4067994)
+- [刚才发错了](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [人生错换37年两女子最新发声](http://www.daogukj.com/0687577)
+- [西班牙休达「偷渡潮」致 67 人丧命，约 5 万人被遣返，反映出欧洲移民政策哪些困境？](http://www.daogukj.com/0028791)
+- [【独家】牧神记 第94集 厉天行与皇帝](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [面对「好好读书走出大山」的评论，小孩回应「坐公交车就可以出去了」，这算不算一种很智慧的态度？](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [研究称微胖反而更长寿](http://www.daogukj.com/0384955)
+- [8月1日特朗普称同意取消军事打击伊朗，这次军事打击行动终于要结束了吗？](http://www.daogukj.com/yjaakhwu/)
+- [美军机险些被韩军击落暴露啥问题](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [詹姆斯：我还保留着自己新秀球星卡](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [登山者王钟遇难 遗体被冲到千米之下](http://www.daogukj.com/6760233)
+- [湖南衡阳一公职人员停车受阻，暴力踹坏他人车位上的地锁，多方回应将调解与调查，此事反映出哪些问题？](http://www.daogukj.com/0471626)
+- [难听](http://www.daogukj.com/znjtiiff/)
+- [日本被曝大规模干预汇市，美国也同日出手，这意味着什么？](http://www.daogukj.com/dduwvxya/)
+- [如何看待张继科跨界参加健身跑赛事，遭解说员调侃「不如回家上综艺」，赛事组委会及解说员公开道歉？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
+- [为什么王虹研究数学，网上铺天盖地的却是研究她的人，而不是她的研究理论呢？](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
 - [遗忘之海 x 海绵宝宝联动 实机演示](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
-- [《四驱兄弟》骗了我20年，直到我把真车改成了四驱车](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [库里签约李宁 轮不到美国政客来反对](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [刚才发错了](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [为什么影视剧的审讯环节里经常有犯人问警察要烟抽，警察给了烟后他们就交代案情的桥段？](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [谁会花10万美元买特朗普帖文抢先看](http://www.daogukj.com/jmwlrqbo/)
-- [五十年后，数学家和物理学家会否是最后一群还坚持使用黑板进行教学和学术讨论的人？](http://www.daogukj.com/7834239)
-- [利润最高涨700倍 半导体产业全线爆发](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [如何评价鸿蒙智行尚界 Z7/Z7T 累计交付突破 20000 台？](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [【最闪暖的一集】闪暖七周年CG首曝 | 8月5日更新](http://www.movie.hkepx.cn/movie/1344966.htm)
+- [上海申花主帅宣布辞职](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [为什么影视剧的审讯环节里经常有犯人问警察要烟抽，警察给了烟后他们就交代案情的桥段？](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [《九门》开播带火赵丽颖版尹新月](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [28年前的八仙到底在讲什么？一口气看完童年神剧《东游记》](http://www.daogukj.com/jmwlrqbo/)
+- [蔡徐坤亲吻粉丝手背](http://www.daogukj.com/7834239)
+- [网友吐槽天才女友女主四败爱因斯坦](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [近120万辆特斯拉汽车遭调查](http://www.movie.hkepx.cn/movie/2182682.htm)
 - [【独家】《记忆管理局》第1集 在世界末日前回到过去吧【8月国创】](http://www.daogukj.com/5450676)
-- [用这种杯子喝水的人“天塌了”](http://www.movie.hkepx.cn/xiju/5833368.htm)
-- [集中供冷真的来了](http://www.daogukj.com/3022115)
-- [老乡鸡五年五次冲击上市失败，其上市之路为何如此艰难？](http://www.daogukj.com/9730014)
-- [辱骂捐赠日军罪证少年者被传唤](http://www.daogukj.com/vgdwnerp/)
-- [近视600度是眼球风险临界值](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [官方回应青岛大火](http://www.daogukj.com/pmvtaymm/)
+- [两架消防直升机在希腊相撞](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [中国预警机独立指挥空中战场](http://www.daogukj.com/3022115)
+- [专访《功夫女足》联合导演林子聪](http://www.daogukj.com/9730014)
+- [官方辟谣女子酒店退房搬空用品](http://www.daogukj.com/vgdwnerp/)
+- [如何评价鸿蒙智行尚界 Z7/Z7T 累计交付突破 20000 台？](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [孙颖莎因伤退赛](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
 ## 原始来源
 
-- [释小龙时隔30年再次探班周星驰](https://www.baidu.com/s?wd=%E9%87%8A%E5%B0%8F%E9%BE%99%E6%97%B6%E9%9A%9430%E5%B9%B4%E5%86%8D%E6%AC%A1%E6%8E%A2%E7%8F%AD%E5%91%A8%E6%98%9F%E9%A9%B0&sa=fyb_news&rsv_dl=fyb_news)
+- [胖东来直饮水被大量占用将被管控](https://www.baidu.com/s?wd=%E8%83%96%E4%B8%9C%E6%9D%A5%E7%9B%B4%E9%A5%AE%E6%B0%B4%E8%A2%AB%E5%A4%A7%E9%87%8F%E5%8D%A0%E7%94%A8%E5%B0%86%E8%A2%AB%E7%AE%A1%E6%8E%A7&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 50633fff47f1dfd55111 -->
+<!-- content-fingerprint: f7531c05d4d72fd55750 -->
