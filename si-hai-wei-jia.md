@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 小米澎程白车身解密全网首发
+# 沈腾新片《欢迎来龙餐馆》空降，极限定档 8 月 11 日全国上映，战争美食喜剧题材，对此你有何期待？
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：947478 · 分类：汽车生活 · 更新：2026-08-05T20:28:38+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：638 万热度 · 分类：问答 · 更新：2026-08-06T02:09:52+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“小米澎程白车身解密全网首发”位列第 1 位，公开热度指标为 947478，榜单分类为“汽车生活”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“沈腾新片《欢迎来龙餐馆》空降，极限定档 8 月 11 日全国上映，战争美食喜剧题材，对此你有何期待？”位列第 1 位，公开热度指标为 638 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：从小米澎程N90的车身结构，看小米如何造好大7座SUV
+来源公开摘要显示：首部战争美食喜剧大片《欢迎来龙餐馆》定档8月11日正式上映，8月8日-10日14:00-21:00超前点映。《欢迎来龙餐馆》由《我不是药神》导演文牧野执导，由IMAX特制拍摄，宁浩监制，文牧野、郎群力、钟伟编剧，沈腾领衔主演，蒋奇明、奥马尔·谢里夫主演，李治廷特别出演。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `汽车生活`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [河南试行周五半天+周末+年假模式](wu-gu-feng-deng.md)
-- [这一秒过火全员be](liu-shen-wu-zhu.md)
-- [中方公布5项对美反制措施](qi-shang-ba-xia.md)
-- [为啥卸载软件要叫「残忍卸载」，付一百是「小额支付」，领一毛红包却是「大额补贴」？这是什么文字套路？](ba-mian-ling-long.md)
+- [柯洁VS党毅飞（不可能的逆转）](wu-gu-feng-deng.md)
+- [华为发布新款折叠电脑售价24999元起](liu-shen-wu-zhu.md)
+- [李亚鹏向地铁吐血女孩捐99999元](qi-shang-ba-xia.md)
+- [泰国为什么越来越危险](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [《雾海之下》首曝PV｜贪吃无罪，撤离万岁！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [赢出定义，我即定义｜烽火职业联赛夏季赛宣传片](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [自制短剧《全民围棋：我觉醒了金铲铲业余玩家》第一集](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [曼玉火山主题SPA日](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [8月份返校的高三生](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [梁文锋会不会成为中国AI里程碑人物？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [段永平减持了泡泡玛特，前几天刚说十年内不卖，如何评价他的操作？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [如何看待郭帆表示《流浪地球3》不会走《流浪地球1》的半爆米花风格?](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [如何看待国家这一次的扫黑除恶专项行动？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [华夏出版社标注「书籍内容禁用于 AI 训练」，这种标注实际约束力有多大？能作为维权依据吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么必须有残疾证才能证明是残疾人？](http://www.daogukj.com/7394302)
-- [回到家饭菜已上桌 掌勺的是放假的娃](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [演唱会音乐总监回应周杰伦私生子传闻](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [《雾海之下》首曝PV｜贪吃无罪，撤离万岁！](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [数万蟾蜍宝宝过马路 市民接力守护](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [有图≠真相 汛期5大谣言套路曝光](http://www.daogukj.com/thgdlrxk/)
-- [尊界V800/V680上市1小时大定2115台](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [TheShy力挺Meiko](http://www.daogukj.com/qqvbmaen/)
-- [长鑫拒绝苹果压价](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [中方公布5项对美反制措施](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [“新疆喀什8.5级地震”系谣言](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [给南京大屠杀改名？30万亡灵不答应](http://www.daogukj.com/6313812)
-- [完蛋！我被男同学包围了](http://www.daogukj.com/wczbkkvt/)
-- [美国 7 月囤 20 万吨精炼铜，美国为啥热衷抢铜？会对全球产业链产生什么影响？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [假结婚证做出真胚胎 法律为何管不了](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [余承东称手机将大规模涨价](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [余承东：手机可能都要大规模涨价](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [河南试行周五半天+周末+年假模式](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [山体滑坡前村里9户19人全部转移](http://www.daogukj.com/jjlkzcvz/)
-- [MG07 深度试驾 年轻人的第一辆轿跑](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [未成年人“偷开”汽车致2死3伤](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [Meiko力竭了](http://www.daogukj.com/drcaefzl/)
-- [玩具公司签67亿元算力大单](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [沈腾新片《欢迎来龙餐馆》空降，极限定档 8 月 11 日全国上映，战争美食喜剧题材，对此你有何期待？](http://www.daogukj.com/rrxeunix/)
-- [高会 TFBOYS联名鞋](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [丈夫称已销毁胚胎妻子不知情](http://www.daogukj.com/qekijaaa/)
-- [如何评价文章《那一夜，腾讯因为没有文档文化无法蒸馏》?](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [如何看待国家这一次的扫黑除恶专项行动？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [女子山姆 40 元披萨吃出 108 元剪刀，可能是哪个环节出了问题？反映了哪些质量管理问题？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [成年人的体面是把请客说得很自然](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [中国烹协撤销烹饪大师等全部称号，暂未考虑重设荣誉，此举背后有哪些原因？对餐饮业有何影响？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [周杰伦晒打网球图 配文：照打](http://www.daogukj.com/4880877)
-- [嘲讽周星驰无儿女没朋友 李修贤道歉](http://www.daogukj.com/gyblgzpw/)
-- [苹果要求长鑫降价反遭涨价](http://www.daogukj.com/3742193)
-- [阿根廷中国行或取消 韩乔生发声](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [瓜子水饺究竟威胁了美国什么](http://www.daogukj.com/yhmvbvtt/)
-- [「展翅翱翔的探索之心」——《少女前线2：追放》伊格蕾塔角色PV公开](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [为什么感觉韩剧最近几年越来越少出「爆款」了？](http://www.daogukj.com/4405323)
-- [自制短剧《全民围棋：我觉醒了金铲铲业余玩家》第一集](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [怪不得淋雨后要洗澡换衣服](http://www.daogukj.com/ydbbqbuc/)
-- [SUV腾空后挂树上 起飞瞬间被拍下](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [反制美国！中方公布5项措施](http://www.daogukj.com/5927597)
-- [大家还想看我搬空什么店](http://www.daogukj.com/3691526)
-- [特朗普所乘直升机遭遇飞行安全事件](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [华为发布新款折叠电脑售价24999元起](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [央视曝光午夜色情直播间乱象](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [梁文锋会不会成为中国AI里程碑人物？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [印度女子卖15岁女儿因少收到钱报假警](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [官方通报赛格商场坠亡事件](http://www.daogukj.com/9555051)
-- [中国“五箭齐发”打在美国哪些痛处](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [长鑫拒绝苹果压价，要求内存采购价不低于三星和 SK 海力士，是否意味议价权彻底反转？可能有哪些影响？](http://www.daogukj.com/7394302)
+- [完蛋！我被男同学包围了](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [孩子们，出了社会老大来惯着你](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [梁文锋会不会成为中国AI里程碑人物？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [可杰 top](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [《雾海之下》首曝PV｜贪吃无罪，撤离万岁！](http://www.daogukj.com/thgdlrxk/)
+- [女儿考上一本出轨父亲拒付学费](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [妻子举报高管丈夫涉嫌重婚案进展](http://www.daogukj.com/qqvbmaen/)
+- [台风](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [李亚鹏向地铁吐血女孩捐99999元](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [茉莉奶白被茉莉和奶白背刺了](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [非遗文化博大精深，非遗文化燃起来了#万物皆可跳梦的翅膀＃梦的翅膀受了伤](http://www.daogukj.com/6313812)
+- [怎么看 OpenAI 提到下一代Harness将脱离 PC，两三个月后现在的Codex工作方式会淘汰？](http://www.daogukj.com/wczbkkvt/)
+- [被妻子举报丈夫与情人一审获刑1年](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [卜冠今吓到我了](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [跟着大国交通看山河中国](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [厕 所 大 师](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [柯洁VS党毅飞（不可能的逆转）](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [柳周cp爆火后参加毛雪汪地球超新鲜](http://www.daogukj.com/jjlkzcvz/)
+- [辽宁海城酸菜坑清理致 4 农户死亡，为何会酸菜坑会引发窒息和中毒？应如何做好防护？](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [《最讨厌复联の一集》](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [男子误点广告买保险退保时20万被盗刷](http://www.daogukj.com/drcaefzl/)
+- [海南一编制教师岗出现高分断档考生](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [嘲讽周星驰无儿女没朋友 李修贤道歉](http://www.daogukj.com/rrxeunix/)
+- [新疆疏附县发生8.5级地震系谣言](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [女子旅游错把丧葬品当纪念品买下](http://www.daogukj.com/qekijaaa/)
+- [多国运回存在美国的黄金](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [“中国游”持续带火“中国购”](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [“新疆喀什8.5级地震”系谣言](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [四预警齐发！双台风影响多个海域](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [员工用代码17小时删光公司89TB数据](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [当我被外星人取代](http://www.daogukj.com/4880877)
+- [婚外胚胎案妻子住址遭恶意曝光](http://www.daogukj.com/gyblgzpw/)
+- [梅姨真实姓名首曝光](http://www.daogukj.com/3742193)
+- [《别接我，我改！》](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [宝妈回应打疫苗护士被指不专业](http://www.daogukj.com/yhmvbvtt/)
+- [日本《防卫白皮书》将中国列为「最大战略挑战」，中方已向日方严正交涉，日本此举会对东亚局势有哪些影响？](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [余承东：鸿蒙智行至今保持零燃烧事故](http://www.daogukj.com/4405323)
+- [如何看待郭帆表示《流浪地球3》不会走《流浪地球1》的半爆米花风格?](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [反制美国！中方公布5项措施](http://www.daogukj.com/ydbbqbuc/)
+- [欢迎来到研究生的世界](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [大家还想看我搬空什么店](http://www.daogukj.com/5927597)
+- [如何评价文章《那一夜，腾讯因为没有文档文化无法蒸馏》?](http://www.daogukj.com/3691526)
+- [成年人的体面是把请客说得很自然](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [取一滴帝王血 做中国最贵的泥](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [看完7月新番，我走火入魔！浑身燥热！【泛式】](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [你常吃的兰州拉面要改名了](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [乌鸦一次带走四块饼干智商绝了](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [王艺迪逆转伊藤美诚 狂轰11-1](http://www.daogukj.com/9555051)
+- [老祖宗怎么可以聪明成这样](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [小米澎程白车身解密全网首发](https://b23.tv/BV1dT386uEBV)
+- [沈腾新片《欢迎来龙餐馆》空降，极限定档 8 月 11 日全国上映，战争美食喜剧题材，对此你有何期待？](https://www.zhihu.com/question/2068277179704664546)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c262833f7c36aa583288 -->
+<!-- content-fingerprint: 6aeed0c79b7c53ed0d6c -->
