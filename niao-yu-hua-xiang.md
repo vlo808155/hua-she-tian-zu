@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 恐怖电影《痴迷》中国内地票房突破 1 亿，已成影史最赚钱的电影之一，如何评价这一成绩？
+# 大领导来视察，直属领导把我的功劳说成自己的，我该当场补充还是闭嘴？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：153 万热度 · 分类：问答 · 更新：2026-08-05T04:58:04+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：360 万热度 · 分类：问答 · 更新：2026-08-05T14:15:17+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“恐怖电影《痴迷》中国内地票房突破 1 亿，已成影史最赚钱的电影之一，如何评价这一成绩？”位列第 3 位，公开热度指标为 153 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“大领导来视察，直属领导把我的功劳说成自己的，我该当场补充还是闭嘴？”位列第 3 位，公开热度指标为 360 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7 月 24 日中国内地上映， 8 月 3 日内地票房破亿，全球票房破 4.93 亿美元，制作成本仅仅 75 万美元，成为影史最赚钱的电影之一
+来源公开摘要显示：咱干活还算认真，领导交代的事基本都能按时完成。跟直属领导关系不冷不热，没有特别近，但也没什么矛盾。 上周发生了一件事，让我特别纠结。 事情的经过是这样的： 大领导来我们部门视察，问到一个项目的情况。这个项目是我牵头做的，前前后后忙了两个月，数据、方案、执行全是跟下来的。直属领导在汇报的时候，大领导问“这个方案是谁想的”，他接话说：“这个是我带着团队一起梳理的，整体方向我们讨论过很多轮。” 他说的“团队”，其实就是我。但他在大领导面前没有提我的名字。我当时站在旁边，想开口补充一句“这个项目是我在负责”，但话到嘴边又咽回去了。 我怕自己一开口，显得在抢直属领
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《最讨厌复联の一集》](shan-qing-shui-xiu.md)
-- [小偷叫3辆货拉拉拖走价值20万摩托车](feng-he-ri-li.md)
-- [比特币冷钱包被曝漏洞，超 1.1 亿美元资产被盗，看似最安全的「离线存储」为什么也会被偷？](chun-nuan-hua-kai.md)
-- [大家还想看我搬空什么店](qiu-gao-qi-shuang.md)
+- [完蛋！我被男同学包围了](shan-qing-shui-xiu.md)
+- [员工用代码17小时删光公司89TB数据](feng-he-ri-li.md)
+- [为什么领导很少请假](chun-nuan-hua-kai.md)
+- [护士戴手链做美甲为婴儿打针被停职](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [上海维也纳酒店客房遍布床虱，酒店反问为何不自行检查，卫生监督所称将立案处罚，谁的责任？床虱有哪些风险？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [曾沛慈方发声明](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [林青霞发文悼念葛兰](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [兰蔻在华首家旗舰店已被搬空](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [婚外胚胎案妻子称丈夫报警](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [广东一事业单位笔试第一考生被第二名花钱劝弃考，教育局已开展核查，反映了哪些教育管理问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [京东外卖推出 AI 头盔，能语音接单、规划路线、解析备注，对骑手安全和效率有提升吗？会成为外卖标配吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [被审视的“网红”钟美美](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [医生喊停“无效养生”晒背](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [乌军阵亡高达125万是真的吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [44岁爸爸被女儿激将考上985研究生](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [5元2瓶都卖不动 含糖碳酸饮料遇冷](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [小偷叫3辆货拉拉拖走价值20万摩托车](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [内娱新四大名著](http://www.daogukj.com/8743466)
-- [还来！！！！！！！！！！！](http://www.daogukj.com/6087099)
-- [死刑改死缓被害人家属十年后才知晓](http://www.daogukj.com/8759192)
-- [卫星互联网低轨23组卫星发射成功](http://www.daogukj.com/nzlnmzmb/)
-- [8月需重点关注哪些极端天气](http://www.daogukj.com/6882941)
-- [蝴蝶振翅小伙2年成功增重30斤](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [38岁男演员在线求职万岁山NPC岗位](http://www.daogukj.com/9154473)
-- [“不存在能主动使出黑闪的咒术师，除非他是...”](http://www.daogukj.com/4411404)
-- [马斯克又悄悄做出一个独角兽](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [上了年纪后的一些无意识行为](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [歼-20 部队将「飞行二大队 20 分钟覆灭耻辱记」永久悬挂，这体现了怎样的军事管理和训练理念？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [完蛋！我被男同学包围了](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [“江西球王”单场轰101分](http://www.daogukj.com/aztauuey/)
-- [女子举报法院执行局长骚扰索贿，官方通报通话录音确系本人，已停职，如何看待此事？](http://www.daogukj.com/7343685)
-- [香港传奇影星葛兰去世](http://www.daogukj.com/dhbposmt/)
-- [「精神小伙」一篇《致我十年未见的妈妈》获赞 200 万，看完这篇文章你有哪些感触？](http://www.daogukj.com/1538095)
-- [开学三件套涨价 等等看的人失算了](http://www.daogukj.com/uznikqxj/)
-- [疑似梁文锋早期微博被扒](http://www.daogukj.com/5158126)
-- [婚外胚胎案妻子称丈夫报警](http://www.daogukj.com/3616935)
-- [中国买美国大豆释放何信号](http://www.daogukj.com/pfvjuanz/)
-- [大连湾海底隧道能看到鲨鱼不实](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [20多名中国乘客被泰航无理由拒载](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [女孩8岁独居床头放菜刀现考上一本](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [光模块](http://www.daogukj.com/asaygxgb/)
-- [申通快递被立案调查](http://www.daogukj.com/zxvfwrkb/)
-- [热搜上“仙桃电梯20秒”监控流出，炸出多少毁三观的成年巨婴](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [大连湾海底隧道能看到鲨鱼系谣言](http://www.daogukj.com/7717389)
-- [宜宾地震](http://www.daogukj.com/9746581)
-- [⚡️宗 主 连 携 技⚡️](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [兰蔻在华首家旗舰店已被搬空](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [孙浩自曝被迫假唱社死名场面](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [世事纷繁，难有一直顺遂，但总有人会递给你一束花。](http://www.daogukj.com/7650204)
-- [歼-16南海上空“训转战”画面公开](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [玩了《英雄联盟》经典模式发现提莫从远古时代到现在技能组从未变化，他的技能有这么优秀吗？](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [女孩独游南太行失联8天](http://www.daogukj.com/0995452)
-- [当十岁的妹妹有了自己的微信](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [《蜘蛛侠：崭新之日》全球开画票房9.27亿美元，仅次于《复仇者联盟4》居影史第二，如何评价这一成绩？](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [解放军怎么打航母](http://www.daogukj.com/fivnrrsp/)
-- [曾沛慈方发声明](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [姆巴佩、哈兰德之后，谁最有希望成为下一代“球王”候选人？](http://www.daogukj.com/hldbetht/)
-- [桂林师范学院招聘被指萝卜岗，考生称音乐教师面试仅 5 分钟，学校回应称招聘合规，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [想不通，太逆天，25 位名人整形手术前后的对比：过去与现在](http://www.daogukj.com/phqakpps/)
-- [几十块入手世界级顶尖好物——居家用品篇](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [【半佛】小米澎程，让行业睡不着了？](http://www.daogukj.com/adpyviat/)
-- [我国服务进出口总额37797.5亿元](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [俄最大物流巨轮遭乌击沉意味什么](http://www.daogukj.com/1571628)
-- [哈尔滨中央大街已成中央大河](http://www.daogukj.com/9492876)
+- [男子健身2年从90斤涨到120斤](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [如何看待国家这一次的扫黑除恶专项行动？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [员工用代码17小时删光公司89TB数据](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [为什么大多数年轻人都很迷茫？](http://www.daogukj.com/8743466)
+- [孙俪晒女儿化的妆](http://www.daogukj.com/6087099)
+- [【非遗】AE特效——战斗鸡](http://www.daogukj.com/8759192)
+- [8月重点关注这些极端天气](http://www.daogukj.com/nzlnmzmb/)
+- [创新药凭什么成中国新名片](http://www.daogukj.com/6882941)
+- [为什么糖尿病老人四肢越来越细](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [如果把新概念英语四册书全部背熟并吃透，那可以无障碍与英语母语者交流吗？](http://www.daogukj.com/9154473)
+- [TF五代首次公式照](http://www.daogukj.com/4411404)
+- [为什么感觉韩剧最近几年越来越少出「爆款」了？](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [老人举手机拍照被广告连环弹窗](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [十年之后，再筑新馆](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [女生预约参观北大没成功后考上北大](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [SpaceX 首份财报出炉，第二季度营收达到 78 亿，同比增长92% ，有哪些亮点值得关注？](http://www.daogukj.com/aztauuey/)
+- [二手车迎来补贴扶持](http://www.daogukj.com/7343685)
+- [有些善意当时没有声音，但总有一天，你会听到它的回响。](http://www.daogukj.com/dhbposmt/)
+- [叠纸客服回应玩家请愿恢复敖尹](http://www.daogukj.com/1538095)
+- [中国首批高快速迎到期免费潮](http://www.daogukj.com/uznikqxj/)
+- [鸿蒙智行回应“竹知了”争议](http://www.daogukj.com/5158126)
+- [乌军阵亡高达125万是真的吗](http://www.daogukj.com/3616935)
+- [顾客结账把钱扔地上服务员找零扔回，老板：双方没任何交流，服务员是我儿子，他没做错](http://www.daogukj.com/pfvjuanz/)
+- [如何看待2026年8月美债正式突破40万亿美元大关？压垮美债的最后一根稻草会是什么？](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [男子长红斑掉皮屑5年查出皮肤癌](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [如何看待奇瑞集团成为中国首个单月出口突破 20 万辆的车企？它的全球化布局有哪些可复制的经验？](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [梁文峰会不会成为中国AI里程碑人物？](http://www.daogukj.com/asaygxgb/)
+- [游客睡自己车里被酒店收150元住宿费](http://www.daogukj.com/zxvfwrkb/)
+- [《哪吒》之后为何又是《八仙！》](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [8月12日地球将失去引力7秒？谣言](http://www.daogukj.com/7717389)
+- [鸿蒙智行回应「竹知了」事件，称投诉针对的是具体侵权内容，从未要求下架「竹知了」商品，哪些信息值得关注？](http://www.daogukj.com/9746581)
+- [刘浩存最美的一次亮相](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [医生喊停“无效养生”晒背](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [抱冬瓜睡觉的第一批受害者出现了](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [5层楼高SpaceX火箭残骸今天撞月球](http://www.daogukj.com/7650204)
+- [【短的发布会】纯平地板？百变空间？全网热议的9系旗舰竟是五菱扬光Pro！](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [当我梦到了一段很锈湖的音乐。](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [什么东西大学应该学习却没有人教？](http://www.daogukj.com/0995452)
+- [全国新冠感染人数仍将持续增加，核酸检测阳性率突破 20.3%，后续走势如何？该如何防护？](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [台湾一富商被杀害 34岁前员工落网](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [中国人能飞](http://www.daogukj.com/fivnrrsp/)
+- [京东外卖推出 AI 头盔，能语音接单、规划路线、解析备注，对骑手安全和效率有提升吗？会成为外卖标配吗？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [柯洁VS党毅飞（不可能的逆转）](http://www.daogukj.com/hldbetht/)
+- [这是哑巴还是啥子？「谁是伪人？！」](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [90后飞手找到失联4天男孩](http://www.daogukj.com/phqakpps/)
+- [8月份返校的高三生](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [新台风鲸鱼生成 路径公布](http://www.daogukj.com/adpyviat/)
+- [“十五五”开局之年各省份经济半年报](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [3.23亿老人成各地政府的香饽饽了吗](http://www.daogukj.com/1571628)
+- [《凡人修仙传》动画被很多人不满，它会就此走向下坡路吗？](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [恐怖电影《痴迷》中国内地票房突破 1 亿，已成影史最赚钱的电影之一，如何评价这一成绩？](https://www.zhihu.com/question/2067544727931417556)
+- [大领导来视察，直属领导把我的功劳说成自己的，我该当场补充还是闭嘴？](https://www.zhihu.com/question/2065724478156547318)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 47fb22be940c6ed02d2d -->
+<!-- content-fingerprint: 93665c2f19a141be7a23 -->
