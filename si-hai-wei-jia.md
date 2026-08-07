@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 人大教授被曝主持国家社科基金重点项目，6年花35万考证莫言家世，研究有意义吗？纳税人的钱该不该这样花？
+# 网传南航一航班提供饮料为西梅汁，致乘客大排长队上厕所，是真的吗？如何评价这一事件？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：1829 万热度 · 分类：问答 · 更新：2026-08-06T16:04:08+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：588 万热度 · 分类：问答 · 更新：2026-08-07T09:43:47+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“人大教授被曝主持国家社科基金重点项目，6年花35万考证莫言家世，研究有意义吗？纳税人的钱该不该这样花？”位列第 1 位，公开热度指标为 1829 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“网传南航一航班提供饮料为西梅汁，致乘客大排长队上厕所，是真的吗？如何评价这一事件？”位列第 1 位，公开热度指标为 588 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日有网友发现，中国人民大学2016年立项了一个国家社会科学基金重点项目——“莫言家世考证”，立项经费高达35万元，2022年一季度经专家鉴定，结项等级还被评为优秀（最高结项评级）。 人大教授6年花35万考证莫言家世，国家社科基金重点项目评为优秀
+来源公开摘要显示：[图片]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [欢迎来到研究生的世界](wu-gu-feng-deng.md)
-- [婚外胚胎案妻子得知胚胎销毁双手颤抖](liu-shen-wu-zhu.md)
-- [工作其实是很养人的](qi-shang-ba-xia.md)
-- [伊朗总统：最高领袖决策过程遭人利用](ba-mian-ling-long.md)
+- [《死》死亡是什么？](wu-gu-feng-deng.md)
+- [女子开一天一夜空调后二氧化碳中毒](liu-shen-wu-zhu.md)
+- [粉笔公告自曝决策失误](qi-shang-ba-xia.md)
+- [美宣布对多晶硅加征关税](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [如何看待 DeepSeek 8月6日公告称即将大幅度涨价？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [网传吃20个饺子，等于吃下6到7个馒头，是真的吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [你说偷吃零食被发现会死是吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [《漫画群星：大集结》首曝PV——「终章」将至，热血重燃。](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [四川一小熊猫遇车祸口鼻流血去世](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [如何看待梁文锋旗下幻方量化多只产品收益转负，单月跌幅超 20%？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [《封神演义》中，为什么最后反而是姜子牙自己没被封神？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [立秋为什么要「贴秋膘」？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [如何评价动画《BanG Dream! YUME∞MITA》第8集？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [我最爱吃铜锅涮肉啦！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [看完7月新番，我走火入魔！浑身燥热！【泛式】](http://www.daogukj.com/7394302)
+- [如何看待新筹建的新疆外国语学院？](http://www.daogukj.com/7394302)
 - [【独家】《将夜》第17集 痛其不通【4月国创】](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [陕西柞水泥石流1死2失联](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [如何看待 DeepSeek 8月6日公告称即将大幅度涨价？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [日本女演员捐款300万日元被骂脏钱](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [事关医保 这些谣言千万别信](http://www.daogukj.com/thgdlrxk/)
-- [银行午休1.5小时 留个窗口行不行](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [曝侯明昊违反交规被约谈](http://www.daogukj.com/qqvbmaen/)
-- [双休](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [工作其实是很养人的](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [武汉辟谣进口药医保不能报销等传言](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [生活中最阴的概念神实力排行（2）](http://www.daogukj.com/6313812)
-- [速通第一VS绿袍尊者](http://www.daogukj.com/wczbkkvt/)
-- [河南推出带薪错峰休假新政，鼓励试行「周五半天+周末+年假」短途度假模式，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [大白兔奶糖的包装纸火了](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [6图看我国海洋经济稳步增长](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [妈妈偷改女儿高考志愿](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [欢迎来到研究生的世界](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [以色列加速与日本合作有何目的](http://www.daogukj.com/jjlkzcvz/)
-- [“这照片是你吗”](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [BBA降价也卖不动](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [上海 床虱](http://www.daogukj.com/drcaefzl/)
-- [立秋后养生核心是什么](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [《英雄联盟》中国队正式确认缺席 2026 名古屋亚运会，对此你有什么想说的？](http://www.daogukj.com/rrxeunix/)
-- [律师称梅姨若满75岁或免死刑](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [中央考核巡查组当场质问：这么干不行](http://www.daogukj.com/qekijaaa/)
-- [哥哥升入高三后离奇去世，这所无人毕业的高中到底藏了什么？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [知识产权强国建设驶入“快车道”](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [韩国因极端高温持续进入「国家灾难状态」，目前已致 16 死，今年当地气候算反常吗？哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [曝张一鸣下死命令：不依赖AI蒸馏技术](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [儿时的玩伴和小学时的同学一个考上985另一个上了大专，以后他们还适合再继续交往做好兄弟吗？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [网红全程直播“荒岛改造”被查处](http://www.daogukj.com/4880877)
-- [郑国霖回应去景区上班被保安拦下](http://www.daogukj.com/gyblgzpw/)
-- [女子用漏洞0元买了3千台电器](http://www.daogukj.com/3742193)
-- [周 处 除 三 害 现实版](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [余承东发布会上误将24999元念成2499元，客观来看MateBook Fold这个定价合理吗？](http://www.daogukj.com/yhmvbvtt/)
-- [大家还想看我搬空什么店](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [抓小三，但超燃上海话](http://www.daogukj.com/4405323)
-- [你说偷吃零食被发现会死是吗？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [田曦薇连续16部铁刘海剧](http://www.daogukj.com/ydbbqbuc/)
-- [饮料旺季不旺 可乐、冰红茶为啥不火了](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [母子在“天津之眼”海河边游玩时溺亡](http://www.daogukj.com/5927597)
-- [老师：逼疯我，就你这题足以…【小学生作业】](http://www.daogukj.com/3691526)
-- [苏泊尔 擦边](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [日本地震遇难女子与婚纱一同下葬](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [《雾海之下》首曝PV｜贪吃无罪，撤离万岁！](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [母子俩在“天津之眼”附近落水溺亡](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [我国首次证实「胶球」存在，对物理研究有什么影响？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [张雅琪的性格](http://www.daogukj.com/9555051)
-- [刺棠 郭虎](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [63岁关之琳否认与27岁模特恋情](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [如何看待梁文锋旗下幻方量化多只产品收益转负，单月跌幅超 20%？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [胚胎案女儿最初怕妈妈辛苦选跟父亲](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [《别接我，我改！》](http://www.daogukj.com/thgdlrxk/)
+- [我对二手烟就丁禹兮这个态度](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [港股开盘：智谱高开超3%](http://www.daogukj.com/qqvbmaen/)
+- [立秋](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [粉笔公告自曝决策失误](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [外网热议Mina参加西村力签售](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [保安从业手册！超好玩儿的奇幻喜剧，上映20年创意依然脑洞大开](http://www.daogukj.com/6313812)
+- [三战全胜，国足U17 2:1勒沃库森U17，赵松源替补登场1分钟即取得一球一助攻，如何评价这场比赛？](http://www.daogukj.com/wczbkkvt/)
+- [眼镜店老板副业做的AI视频火到海外](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [韩国足协7场比赛性贿赂20名裁判](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [买火车票新增新生预约功能](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [热血高校](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [《死》死亡是什么？](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [中餐厅赞助品牌隐藏张雅琪单人视频](http://www.daogukj.com/jjlkzcvz/)
+- [小米徐洁云就「孩 Go」言论回应，称有用户宠物名叫「孩 Go」，如何评价其这一解释？](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [《凡应》EP02测试全新PV——与巨兽彼此依存，和鸣共生！](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [47岁妈妈突然产女 26岁女儿：很震惊](http://www.daogukj.com/drcaefzl/)
+- [西村力粉丝提崔雪莉引争议](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [夫妻花式晒证展示门当户对](http://www.daogukj.com/rrxeunix/)
+- [深圳地面沉降致车辆损坏系谣言](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [内娱第一人 戚薇开放形象AI授权](http://www.daogukj.com/qekijaaa/)
+- [职场新人需要主动拉近和上司的距离吗？在工作中，如何与上司打交道？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [我国编制完成新版全月地质图](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [“深圳地面沉降致车辆损坏”不实](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [华东要吹“白海豚牌空调外机”了](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [立秋后北方要先凉快了](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [逆天！1.9元套餐收60元服务费，老板要起诉勇哥并报警！【网络狠人111】](http://www.daogukj.com/4880877)
+- [辛芷蕾要回去做上班儿的大人了](http://www.daogukj.com/gyblgzpw/)
+- [央视网评银行午休](http://www.daogukj.com/3742193)
+- [第三集 |🐧赛伊德：“雷斯也变成女孩了？！”🐧](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [樊振东说有幸能在球队历史留下一页](http://www.daogukj.com/yhmvbvtt/)
+- [中际旭创、新易盛、天孚通信集体回应美国光模块禁令，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [如何评价《一人之下》第771(825）话？](http://www.daogukj.com/4405323)
+- [立秋为什么要「贴秋膘」？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [台风白海豚强度反复横跳](http://www.daogukj.com/ydbbqbuc/)
+- [你可能不认识我，但是你绝对听过他的歌【网络奇人#1】](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [离谱！狗子被催五万网贷](http://www.daogukj.com/5927597)
+- [《蜘蛛侠：崭新之日》大爆，前三部导演乔恩·瓦茨遭网暴「永远别再执导蜘蛛侠了」，客观来说前三部质量如何？](http://www.daogukj.com/3691526)
+- [苍兰诀](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [5个天才高中生做的高中生活游戏](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [欢迎来到研究生的世界](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [立秋有哪些习俗](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [申聪回应梅姨真名：正义永不缺席](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [今日立秋 养生千万避开六大误区](http://www.daogukj.com/9555051)
+- [粉笔公告](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [人大教授被曝主持国家社科基金重点项目，6年花35万考证莫言家世，研究有意义吗？纳税人的钱该不该这样花？](https://www.zhihu.com/question/2068364859402450214)
+- [网传南航一航班提供饮料为西梅汁，致乘客大排长队上厕所，是真的吗？如何评价这一事件？](https://www.zhihu.com/question/2068358710498254999)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2224a871808807ef5392 -->
+<!-- content-fingerprint: 7c5ea798b5a2fe0edd7e -->
