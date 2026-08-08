@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 台风天一家四口到海边 男孩被浪卷走
+# 台风白海豚闭眼意味着什么
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7713483 · 更新：2026-08-08T16:22:50+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7714534 · 更新：2026-08-08T18:05:10+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“台风天一家四口到海边 男孩被浪卷走”位列第 1 位，公开热度指标为 7713483。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“台风白海豚闭眼意味着什么”位列第 1 位，公开热度指标为 7714534。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月7日，受台风“白海豚”影响，浙江温岭石塘海边巨浪翻涌，一家四口走在海边堤坝上，凶猛的浪头瞬间将其中9岁的男孩卷入海中。目前搜救工作仍在进行中。
+来源公开摘要显示：8日，白海豚已闭眼登上热搜，据中央气象台，台风“白海豚”结构已逐渐松散，眼区已闭。很多人看见风眼消失，就觉得台风“熄火”了。这其实是一个很大的认知误区。台风能量不再集中在狭小核心区，向外扩散，7级、10级大风圈持续扩张，上千公里螺旋雨带全面铺开。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [费大厨塌房了吗](qi-shang-ba-xia.md)
-- [郑丽文：台湾从来没有“独立”过](ba-mian-ling-long.md)
+- [台风白海豚](qi-shang-ba-xia.md)
+- [金饰克价一夜涨回1300元](ba-mian-ling-long.md)
 - [超强厄尔尼诺正在形成，或为 150 年来最强，对我国有哪些影响？](jiu-niu-yi-mao.md)
 - [【独家】《凡人修仙传之慕兰之战》第10集【总第186集】](shi-quan-shi-mei.md)
 
 ## 站内推荐
 
-- [新疆女孩在天津偶遇支教老师哭红眼](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [戚薇谈把脸交给AI](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [牛群和施拉普纳33年后重逢](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [河南回应带薪错峰休假通知引争议，文章相关表述不够准确，程序审签不规范，待修改后予以印发，如何看待此事？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [2026WTT横滨冠军赛男单四分之一决赛，松岛辉空4比3逆转张禹珍，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [河南重大刑事案嫌疑人落网](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [两个淡人谈恋爱是极其美味的](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [孙红雷艾特错王玉雯](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [酒店回应车内过夜被收150元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [8 月 7 日现货黄金日内涨幅扩大至 3%，升至6月17日以来最高水平，如何解读此轮上涨？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【剧情】昭阳公主（2026）18【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.play.hengshemaoyi.cn/xiju/3146772.htm)
-- [台风白海豚闭眼意味着什么](http://www.play.hengshemaoyi.cn/xiju/7712592.htm)
-- [这就是跟老人的有效沟通](http://www.play.hengshemaoyi.cn/xiju/2648727.htm)
-- [全网首发！藏宝图/宝藏箱全部点位来啦！记得先领口令联动红！](http://www.daogukj.com/xohurmmj/)
-- [博主：俄军现在专打乌要害](http://www.play.hengshemaoyi.cn/kongbu/8850864.htm)
-- [小夜灯 性早熟](http://www.daogukj.com/kzzeqcwk/)
-- [傅园慧成为浙江大学老师](http://www.daogukj.com/umwjgpeo/)
-- [上半年34.63亿人次出游](http://www.daogukj.com/8310676)
-- [台风白海豚或携极端暴雨重创多省市](http://www.movie.hkepx.cn/xiju/9976192.htm)
-- [《八仙 ！》《年会不能停！2》 等电影片名中频繁出现感叹号，为什么会出现这一现象？这算是符号滥用吗？](http://www.play.hengshemaoyi.cn/xiju/4325686.htm)
+- [在洛杉矶喝200%糖蜜雪冰城，吃全球最古早麦当劳，有不胖的风险吗](http://www.play.hengshemaoyi.cn/xiju/3146772.htm)
+- [今天真要给一个泡面“道歉”吗……](http://www.play.hengshemaoyi.cn/xiju/7712592.htm)
+- [披荆斩棘2026确定名单](http://www.play.hengshemaoyi.cn/xiju/2648727.htm)
+- [《青春期土豆幻想物语》](http://www.daogukj.com/xohurmmj/)
+- [梁家辉：到内地拍戏不是北上是回归](http://www.play.hengshemaoyi.cn/kongbu/8850864.htm)
+- [西村力演唱会的状态](http://www.daogukj.com/kzzeqcwk/)
+- [台风白海豚或重创多省市](http://www.daogukj.com/umwjgpeo/)
+- [2026我们的家园幸福美丽西藏](http://www.daogukj.com/8310676)
+- [谢欣曾为张一鸣梁汝波上级，因飞书调整被降两级，如何看待他的职业路径？面对类似公司战略调整普通人能做啥？](http://www.movie.hkepx.cn/xiju/9976192.htm)
+- [改画哪有不疯的！（第26期）](http://www.play.hengshemaoyi.cn/xiju/4325686.htm)
 - [峰哥实名举报汪海林偷税漏税](http://www.daogukj.com/ufrbapxl/)
 - [这些燃气使用“偏方”千万别信](http://www.play.hengshemaoyi.cn/xiju/6851192.htm)
-- [牛群和施拉普纳33年后重逢](http://www.movie.hkepx.cn/movie/8079085.htm)
-- [如何评价《凡人修仙传》第 186 集？](http://www.movie.hkepx.cn/movie/5234433.htm)
-- [泰国初中生饮弹自尽前开了26枪](http://www.play.hengshemaoyi.cn/xiju/9843728.htm)
-- [金饰克价一夜涨回1300元](http://www.movie.hkepx.cn/xiju/6033500.htm)
-- [茂盛游乐园](http://www.movie.hkepx.cn/xiju/9081129.htm)
-- [在洛杉矶喝200%糖蜜雪冰城，吃全球最古早麦当劳，有不胖的风险吗](http://www.movie.hkepx.cn/movie/5517559.htm)
-- [青春没有售价！面包车？ 直达拉萨！！](http://www.play.hengshemaoyi.cn/kongbu/7660682.htm)
-- [冠军的无痛登山包](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
-- [时停/欧拉！达摩空条承太郎皮肤，三形态白金之星打穿峡谷！自制联动皮肤特效！](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
-- [14 岁男生带病跑步心脏骤停后成一级伤残，校内 AED 未启用，这起事故中校方是否失责？](http://www.daogukj.com/zzeaeilt/)
-- [河南回应带薪错峰休假通知引争议，文章相关表述不够准确，程序审签不规范，待修改后予以印发，如何看待此事？](http://www.movie.hkepx.cn/xiju/1559845.htm)
-- [这种水别再喝了 已被列为2A类致癌物](http://www.daogukj.com/zaijvjby/)
-- [台风白海豚将于9日晚到10日上午登陆，或将在浙江停留20多个小时，可以做好哪些应对？你那边天气如何？](http://www.play.hengshemaoyi.cn/xiju/6065498.htm)
-- [专家预判白海豚登陆前略有加强](http://www.movie.hkepx.cn/xiju/0592083.htm)
+- [孙红雷艾特错王玉雯](http://www.movie.hkepx.cn/movie/8079085.htm)
+- [杨梅](http://www.movie.hkepx.cn/movie/5234433.htm)
+- [男童模仿奥特曼从高处跳下致骨折](http://www.play.hengshemaoyi.cn/xiju/9843728.htm)
+- [全网首发！藏宝图/宝藏箱全部点位来啦！记得先领口令联动红！](http://www.movie.hkepx.cn/xiju/6033500.htm)
+- [《死》死亡是什么？](http://www.movie.hkepx.cn/xiju/9081129.htm)
+- [36岁男演员成景区NPC后人气爆棚](http://www.movie.hkepx.cn/movie/5517559.htm)
+- [女主硬加吻戏短剧已下架](http://www.play.hengshemaoyi.cn/kongbu/7660682.htm)
+- [影石LunaUltra和大Pocket4P全面对比](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
+- [台风白海豚将于9日晚到10日上午登陆，或将在浙江停留20多个小时，可以做好哪些应对？你那边天气如何？](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
+- [游客称睡私家车被酒店收150元过夜费，酒店回应费用涉及停车、使用厨具及衣物清洗等，如何看待此事？](http://www.daogukj.com/zzeaeilt/)
+- [酒店回应车内过夜被收150元](http://www.movie.hkepx.cn/xiju/1559845.htm)
+- [滑铲全向移动？自动吸附瞄准！原神射击玩法太爽了吧！](http://www.daogukj.com/zaijvjby/)
+- [海鲜忘车里4天打开门满车都是蛆](http://www.play.hengshemaoyi.cn/xiju/6065498.htm)
+- [用Token还是词元事关科技话语权](http://www.movie.hkepx.cn/xiju/0592083.htm)
 - [外贸成绩单里的中国机遇2.0](http://www.play.hengshemaoyi.cn/kongbu/3190158.htm)
-- [郑丽文：台湾从来没有“独立”过](http://www.movie.hkepx.cn/xiju/8058403.htm)
+- [金饰克价一夜涨回1300元](http://www.movie.hkepx.cn/xiju/8058403.htm)
 - [佛山一中学招聘前 13 名考生均被淘汰，后 5 名反进体检，教育局已成立调查组，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/0407134.htm)
-- [金价新一轮上行窗口开启了吗](http://www.play.hengshemaoyi.cn/xiju/3569500.htm)
-- [《楚门的世界》中，妻子既然不爱楚门为什么反复提及要与楚门生一个孩子？](http://www.daogukj.com/tymyjwla/)
-- [《异环》残虹角色短片丨灵魂的颜色](http://www.play.hengshemaoyi.cn/kongbu/4739008.htm)
+- [俄罗斯一地仓库遭袭 800人被疏散](http://www.play.hengshemaoyi.cn/xiju/3569500.htm)
+- [青春没有售价！面包车？ 直达拉萨！！](http://www.daogukj.com/tymyjwla/)
+- [峰哥 汪海林](http://www.play.hengshemaoyi.cn/kongbu/4739008.htm)
 - [白海豚将正面袭击贯穿浙江](http://www.daogukj.com/9650038)
-- [张本智和说面对国乒年轻选手压力消失了](http://www.movie.hkepx.cn/xiju/4399837.htm)
-- [谁来管管电动车远光灯](http://www.daogukj.com/bodikkcn/)
-- [富婆带资进组给自己硬加60多场吻戏](http://www.play.hengshemaoyi.cn/kongbu/0936287.htm)
-- [包文婧：二胎很难一碗水端平](http://www.play.hengshemaoyi.cn/kongbu/7557381.htm)
-- [陈思诚零点晒照为佟丽娅庆生](http://www.daogukj.com/6136718)
-- [四大会计事务所的研究报告集体陷入「AI 幻觉」，对咨询行业的公信力会造成怎样的冲击？暴露了什么问题？](http://www.play.hengshemaoyi.cn/xiju/2359694.htm)
-- [儿子陪躺平老爹体验外卖员火了](http://www.play.hengshemaoyi.cn/kongbu/4505915.htm)
-- [聪明猫在一起久了也会有一些共同点……](http://www.movie.hkepx.cn/movie/9172563.htm)
+- [王楚钦出席市运会开幕式](http://www.movie.hkepx.cn/xiju/4399837.htm)
+- [时停/欧拉！达摩空条承太郎皮肤，三形态白金之星打穿峡谷！自制联动皮肤特效！](http://www.daogukj.com/bodikkcn/)
+- [白海豚逼停多个机场航班](http://www.play.hengshemaoyi.cn/kongbu/0936287.htm)
+- [苹果AI](http://www.play.hengshemaoyi.cn/kongbu/7557381.htm)
+- [名创优品一次性内裤 颜面尽失](http://www.daogukj.com/6136718)
+- [如何评价 2026 年 8 月 8 日开启超前点映的文牧野执导、沈腾领衔主演的电影《欢迎来龙餐馆》？](http://www.play.hengshemaoyi.cn/xiju/2359694.htm)
+- [14 岁男生带病跑步心脏骤停后成一级伤残，校内 AED 未启用，这起事故中校方是否失责？](http://www.play.hengshemaoyi.cn/kongbu/4505915.htm)
+- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.movie.hkepx.cn/movie/9172563.htm)
 - [网传《披荆斩棘2026》名单](http://www.daogukj.com/psrubjka/)
-- [怪兽中 出了一个奥特曼的卧底](http://www.movie.hkepx.cn/xiju/8460312.htm)
-- [多个明星演唱会取消](http://www.movie.hkepx.cn/xiju/3343717.htm)
-- [网络谣言的3种典型“伪装套路”](http://www.daogukj.com/qlmhijex/)
-- [披荆斩棘2026确定名单](http://www.movie.hkepx.cn/movie/5118780.htm)
-- [戚薇谈把脸交给AI](http://www.movie.hkepx.cn/movie/0327094.htm)
-- [滑铲全向移动？自动吸附瞄准！原神射击玩法太爽了吧！](http://www.play.hengshemaoyi.cn/kongbu/5250449.htm)
-- [家里的旧光盘，为什么播不出来了？](http://www.movie.hkepx.cn/movie/7815976.htm)
-- [小心这种手机壳正在偷拍你的隐私](http://www.movie.hkepx.cn/xiju/2004158.htm)
+- [汪海林回应被举报偷逃税](http://www.movie.hkepx.cn/xiju/8460312.htm)
+- [小夜灯 性早熟](http://www.movie.hkepx.cn/xiju/3343717.htm)
+- [朋友称佟丽娅与陈思诚是新型离婚关系](http://www.daogukj.com/qlmhijex/)
+- [教练失手女子被踏板砸中：当场砸出血](http://www.movie.hkepx.cn/movie/5118780.htm)
+- [两个淡人谈恋爱是极其美味的](http://www.movie.hkepx.cn/movie/0327094.htm)
+- [聪明猫在一起久了也会有一些共同点……](http://www.play.hengshemaoyi.cn/kongbu/5250449.htm)
+- [14岁男孩因家长放纵确诊糖尿病](http://www.movie.hkepx.cn/movie/7815976.htm)
+- [儿子陪躺平老爹体验外卖员火了](http://www.movie.hkepx.cn/xiju/2004158.htm)
 
 </details>
 
 ## 原始来源
 
-- [台风天一家四口到海边 男孩被浪卷走](https://www.baidu.com/s?wd=%E5%8F%B0%E9%A3%8E%E5%A4%A9%E4%B8%80%E5%AE%B6%E5%9B%9B%E5%8F%A3%E5%88%B0%E6%B5%B7%E8%BE%B9+%E7%94%B7%E5%AD%A9%E8%A2%AB%E6%B5%AA%E5%8D%B7%E8%B5%B0&sa=fyb_news&rsv_dl=fyb_news)
+- [台风白海豚闭眼意味着什么](https://www.baidu.com/s?wd=%E5%8F%B0%E9%A3%8E%E7%99%BD%E6%B5%B7%E8%B1%9A%E9%97%AD%E7%9C%BC%E6%84%8F%E5%91%B3%E7%9D%80%E4%BB%80%E4%B9%88&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a591c0f2fedfea8f9c11 -->
+<!-- content-fingerprint: 4f68240ee9e0e51f3baf -->
