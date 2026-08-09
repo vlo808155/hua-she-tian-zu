@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待当前物价运行态势
+# 如何看待日本一医院错把患者脑部当肿瘤切除？
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7619485 · 更新：2026-08-10T01:18:34+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：186 万热度 · 分类：问答 · 更新：2026-08-10T03:20:57+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“如何看待当前物价运行态势”位列第 2 位，公开热度指标为 7619485。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待日本一医院错把患者脑部当肿瘤切除？”位列第 2 位，公开热度指标为 186 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：国家统计局9日发布最新物价数据，如何看待当前物价运行态势？专家表示：我国经济韧性强，民生商品供给充足，在充分发挥各项存量和增量政策效能、加大逆周期调节力度背景下，内需潜力有望进一步释放，预计下半年物价运行将延续CPI温和上涨、PPI涨势趋稳的向好态势。
+来源公开摘要显示：8月7日，日本京都大学医学部附属医院当天召开记者会承认发生重大医疗事故，该院在实施脑肿瘤开颅手术时错将患者部分健康的脑部切除，导致患者脑干受损。 据报道，这名50余岁女性患者所患脑肿瘤为良性，主治医师有超过20年从业经验。在手术进行过程中，主治医师先切除了被认为是肿瘤部位的一小部分作为样本，对样本的两次检查均显示该部位不是肿瘤，但主治医师仍然认定该部位就是肿瘤并将其切除。术后检查显示，患者的脑肿瘤完好无损，但她的脑干受到损伤。 患者手术前能够正常生活，但目前四肢无法动弹且无法自主呼吸，正在依靠人工呼吸机维持生命体征，恢复的前景很不明朗。京都大学医学部附属
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [中国制造硬核瞬间](shi-quan-shi-mei.md)
-- [Chinamaxxing全球出圈！是啥意思](bai-fa-bai-zhong.md)
-- [危险暴雨来了：白海豚提前登陆浙江玉环，将深入南方内陆并去北方](qian-jun-wan-ma.md)
-- [“开学三件套”全线暴涨](wan-zi-qian-hong.md)
+- [四代同框](shi-quan-shi-mei.md)
+- [如何看待当前物价运行态势](bai-fa-bai-zhong.md)
+- [中国制造硬核瞬间](qian-jun-wan-ma.md)
+- [Chinamaxxing全球出圈！是啥意思](wan-zi-qian-hong.md)
 
 ## 站内推荐
 
-- [白海豚对华东华北影响会大于巴威](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [评分8.7！我们奥特曼有救啦！提欧奥特曼开播吐槽！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [【2026LPL第三赛段】8月9日 IG vs LNG](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [江西警方通报：一男子酒驾致7人受伤](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [如何看待“现在查 RTX 5090 价格已经变成了一种恐怖片题材”这个梗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [史上最难！只有一块黑曜石该如何通关？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [怪兽中 出了一个奥特曼的卧底](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [三年之期已到，恭迎世一上归位！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [去这里旅游的人都失踪了，所谓旅游胜地的背后竟然是...](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [飞宁波航班颠簸超1小时备降杭州](http://www.movie.hkepx.cn/movie/4879804.htm)
-- [大V：日称解放军有8架歼35是自欺欺人](http://www.movie.hkepx.cn/movie/5294565.htm)
-- [独闯南太行的失联女生最后轨迹已确认](http://www.movie.hkepx.cn/xiju/8234213.htm)
-- [张本智和说和妹妹同时夺冠意义重大](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
-- [200多位院士专家为一人齐聚哈工程](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
-- [人鱼](http://www.movie.hkepx.cn/xiju/2272650.htm)
-- [【独家】牧神记 第95集 皇帝“驾崩”](http://www.movie.hkepx.cn/movie/5183558.htm)
-- [追风女记者抱杆抵抗强风](http://www.daogukj.com/qcalvqip/)
-- [180斤记者报道台风 抱电线杆才站稳](http://www.daogukj.com/qsfzwgun/)
-- [评分8.7！我们奥特曼有救啦！提欧奥特曼开播吐槽！](http://www.daogukj.com/broiawjw/)
-- [婴儿被子蒙头快窒息时小猫扒醒宝妈](http://www.movie.hkepx.cn/xiju/2682801.htm)
-- [在洛杉矶喝200%糖蜜雪冰城，吃全球最古早麦当劳，有不胖的风险吗](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
-- [Chinamaxxing全球出圈！是啥意思](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
+- [上海地铁停运](http://www.movie.hkepx.cn/movie/4879804.htm)
+- [上海交大绝杀清华闯进AUBL总决赛](http://www.movie.hkepx.cn/movie/5294565.htm)
+- [沈腾 影帝](http://www.movie.hkepx.cn/xiju/8234213.htm)
+- [如何看待美军林肯号航母爆出物资短缺，环境恶劣、飞行甲板磨出洞等情况？](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
+- [😨"后室里的乌鲁鲁"😰](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
+- [女演员朱锐自称破产失业](http://www.movie.hkepx.cn/xiju/2272650.htm)
+- [“开学三件套”全线暴涨](http://www.movie.hkepx.cn/movie/5183558.htm)
+- [“那些只打高端局的神级串烧”](http://www.daogukj.com/qcalvqip/)
+- [某数码博主算出上半年国内手机销量TOP30，苹果包揽前三华为领跑国产，数据可靠吗？哪些信息值得关注？](http://www.daogukj.com/qsfzwgun/)
+- [怪兽中 出了一个奥特曼的卧底](http://www.daogukj.com/broiawjw/)
+- [【TF家族练习生】《突围II破局》EP07：破局（下）](http://www.movie.hkepx.cn/xiju/2682801.htm)
+- [儿子去世孙子不捧骨灰盒被查出非亲生](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
+- [如何看待当前物价运行态势](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
 - [台风白海豚正式登陆](http://www.movie.hkepx.cn/xiju/8343373.htm)
-- [王从天降](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
-- [发烧梗](http://www.daogukj.com/8483541)
+- [「抱冬瓜睡觉降温」走红，有人尝试，结果半夜瓜炸了，好端端的冬瓜为什么会爆裂？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
+- [母亲看自闭症孩子独自玩耍情绪失控](http://www.daogukj.com/8483541)
 - [百花奖](http://www.daogukj.com/qxxcgldr/)
-- [司机瞥见竹子晃动紧急停车躲过滑坡](http://www.daogukj.com/9209363)
-- [单依纯演唱会让全国网友认识浐灞](http://www.movie.hkepx.cn/xiju/3158244.htm)
-- [【2026LPL第三赛段】8月9日 IG vs LNG](http://www.daogukj.com/cyhwfhva/)
-- [印度女子出轨被撞破在院子内遭毒打](http://www.daogukj.com/tfhkqorv/)
-- [四代同框](http://www.movie.hkepx.cn/xiju/7580051.htm)
-- [网民AI造谣“西平灭门案”被行拘](http://www.daogukj.com/knzztlfc/)
-- [婴儿快窒息时被小猫救下宝妈发声](http://www.movie.hkepx.cn/movie/0847264.htm)
-- [浙江省甬江发生2026年第1号洪水](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
-- [多名游客下海遇险 多方逆行救人](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
-- [印女子出轨被撞破与情夫一起遭毒打](http://www.movie.hkepx.cn/movie/1751427.htm)
-- [“那些只打高端局的神级串烧”](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
-- [三年之期已到，恭迎世一上归位！](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
-- [国产磁悬浮5.3秒飙到时速800公里](http://www.movie.hkepx.cn/movie/1023624.htm)
-- [妈妈，你不能单挑大棕熊，坐坦克打枪吧！？！](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
-- [😨"后室里的乌鲁鲁"😰](http://www.daogukj.com/7693477)
-- [哈哈哈哈哈哈哈！！！](http://www.movie.hkepx.cn/xiju/2826252.htm)
-- [以军士兵把枪口对准中国记者](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
-- [危险暴雨来了：白海豚提前登陆浙江玉环，将深入南方内陆并去北方](http://www.daogukj.com/1461847)
-- [美以男子在菲律宾机场大打出手](http://www.movie.hkepx.cn/xiju/0818230.htm)
-- [羊群过马路 牧羊犬见有车飞奔而来](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
-- [不打游戏这件事害惨了我](http://www.daogukj.com/xoshfaqj/)
-- [母亲看自闭症孩子独自玩耍情绪失控](http://www.movie.hkepx.cn/xiju/4934568.htm)
-- [女演员朱锐自曝破产失业耗尽积蓄](http://www.daogukj.com/wiudnclj/)
-- [在贵州按猪遇见羡慕的婚礼](http://www.movie.hkepx.cn/movie/0173822.htm)
-- [最会过马路的小狗出现了](http://www.daogukj.com/4402502)
-- [流星雨“极大雨”要来了](http://www.movie.hkepx.cn/xiju/3001134.htm)
-- [上海地铁](http://www.daogukj.com/wkrcfluq/)
-- [香港刷新1884年以来最高气温纪录](http://www.movie.hkepx.cn/movie/6354712.htm)
-- [沈腾 影帝](http://www.movie.hkepx.cn/xiju/8131821.htm)
-- [上门女婿出轨女邻居多年被判重婚罪](http://www.daogukj.com/4751279)
-- [【TF家族练习生】《突围II破局》EP07：破局（下）](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
-- [麦当劳也出自助餐？四种炸鸡不限量畅吃，45分钟从头吃到尾！](http://www.daogukj.com/6772234)
-- [女演员朱锐自称破产失业](http://www.movie.hkepx.cn/movie/1847830.htm)
+- [白海豚已减弱为强热带风暴](http://www.daogukj.com/9209363)
+- [原字节跳动机器人一号位加入小米](http://www.movie.hkepx.cn/xiju/3158244.htm)
+- [三年之期已到，恭迎世一上归位！](http://www.daogukj.com/cyhwfhva/)
+- [上海地铁明天4条线路全线停运](http://www.daogukj.com/tfhkqorv/)
+- [伊朗最高领袖与总统会谈](http://www.movie.hkepx.cn/xiju/7580051.htm)
+- [台风登陆现场：狂风怒扫雨水横飞](http://www.daogukj.com/knzztlfc/)
+- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](http://www.movie.hkepx.cn/movie/0847264.htm)
+- [江西警方通报：一男子酒驾致7人受伤](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
+- [浙江省甬江发生2026年第1号洪水](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
+- [台湾记者直面白海豚紧抓杆不敢松手](http://www.movie.hkepx.cn/movie/1751427.htm)
+- [2026WTT横滨冠军赛，张本智和4比1吴晙诚卫冕成功，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
+- [女演员朱锐自曝破产失业耗尽积蓄](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
+- [宇树科技上市后或冲刺1000亿估值](http://www.movie.hkepx.cn/movie/1023624.htm)
+- [张凌赫还原谢征名台词](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
+- [龙餐馆 奥斯卡](http://www.daogukj.com/7693477)
+- [天蚕土豆新书【神通者】到底如何？](http://www.movie.hkepx.cn/xiju/2826252.htm)
+- [菲媒证实网红雅典娜被害，网传该案仍有部分电诈犯未归案，目前案件的真实进展如何？](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
+- [中国制造硬核瞬间](http://www.daogukj.com/1461847)
+- [如何看待 2026 年 8 月 8 日，史诗级电影《奥德赛》的点映上座率高达 57.3% 左右？](http://www.movie.hkepx.cn/xiju/0818230.htm)
+- [鲁迅连个长篇都没有，可是为什么一提到中国现当代文学的TOP1，就都想到了他？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
+- [穿8850元MiuMiu鞋脚被染黑 官方回应](http://www.daogukj.com/xoshfaqj/)
+- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.movie.hkepx.cn/xiju/4934568.htm)
+- [【同人动画】致以辉煌的人 【奥特曼光之创想季】](http://www.daogukj.com/wiudnclj/)
+- [新能源充电站一辆SUV突然起火爆燃](http://www.movie.hkepx.cn/movie/0173822.htm)
+- [网民AI造谣“西平灭门案”被行拘](http://www.daogukj.com/4402502)
+- [大V：日称解放军有8架歼35是自欺欺人](http://www.movie.hkepx.cn/xiju/3001134.htm)
+- [WTT横滨赛：张本智和夺得男单冠军](http://www.daogukj.com/wkrcfluq/)
+- [朱一龙鼻子怎么了](http://www.movie.hkepx.cn/movie/6354712.htm)
+- [女子被狗舔脚后被判定狂犬病三级暴露，因脚趾甲沟炎存在皮肤破损，反映出什么认知误区？哪些情况要及时就医？](http://www.movie.hkepx.cn/xiju/8131821.htm)
+- [2026WTT横滨冠军赛，张本智和4:2击败松岛辉空，挺进决赛，如何评价这场比赛？](http://www.daogukj.com/4751279)
+- [白海豚对华东华北影响会大于巴威](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
+- [15部短剧作品获颁百花奖五项荣誉](http://www.daogukj.com/6772234)
+- [张本智和说和妹妹同时夺冠意义重大](http://www.movie.hkepx.cn/movie/1847830.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待当前物价运行态势](https://www.baidu.com/s?wd=%E5%A6%82%E4%BD%95%E7%9C%8B%E5%BE%85%E5%BD%93%E5%89%8D%E7%89%A9%E4%BB%B7%E8%BF%90%E8%A1%8C%E6%80%81%E5%8A%BF&sa=fyb_news&rsv_dl=fyb_news)
+- [如何看待日本一医院错把患者脑部当肿瘤切除？](https://www.zhihu.com/question/2069354305589620880)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a0e2621686e709ef2503 -->
+<!-- content-fingerprint: 247d69502a40a5514d9d -->
