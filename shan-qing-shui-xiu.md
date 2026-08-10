@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# CF出新作，居然是3A单机？深度对话《穿越火线：潜伏》首席创意官【视频播客EP.64】
+# 2026和平精英刺激之夜完整高清回放
 
-> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：752888 · 分类：乐评盘点 · 更新：2026-08-10T18:02:04+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：3314240 · 分类：网络游戏 · 更新：2026-08-10T22:33:21+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“CF出新作，居然是3A单机？深度对话《穿越火线：潜伏》首席创意官【视频播客EP.64】”位列第 3 位，公开热度指标为 752888，榜单分类为“乐评盘点”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“2026和平精英刺激之夜完整高清回放”位列第 3 位，公开热度指标为 3314240，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：欢迎回到“核电波”！今年6月《穿越火线：潜伏》首爆，面对这款CF世界观下的第三人称潜行射击大作，我们和很多玩家一样第一反应是“啊”？上周我们找到了游戏的首席创意官 Taylor，想和他聊聊这到底是一款什么样的游戏？ 本期主播：Nadya / Ryoma 本期嘉宾：智能路障 /《穿越火线：潜伏》首席创意官 Taylor
+来源公开摘要显示：和平精英和每一位玩家，一起一路生长，从一局游戏，长成了现在这样一个越来越大的和平宇宙。刺激不重样，越打越年轻！又一年，让刺激大秀一场。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `乐评盘点`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `网络游戏`
 
 ## 相关热点
 
-- [独闯南太行失联14天的女子已找到](feng-he-ri-li.md)
-- [原来90后这么小众](chun-nuan-hua-kai.md)
-- [独闯南太行失联女子遗体已找到](qiu-gao-qi-shuang.md)
-- [如何看待钟睒睒称电商平台把城市的很多零售商都「杀」光了，并呼吁限制其能力？电商平台究竟带来了哪些影响？](bing-tian-xue-di.md)
+- [白海豚突然大拐弯 走出罕见路线](feng-he-ri-li.md)
+- [卫诗雅百花奖最佳女主](chun-nuan-hua-kai.md)
+- [易烊千玺金鸡百花双料影帝](qiu-gao-qi-shuang.md)
+- [于东来回应关闭胖东来生活广场店，因早年租约失误造成租户租金失衡，门店盈利上亿仍闭店，如何看待他的选择？](bing-tian-xue-di.md)
 
 ## 站内推荐
 
 - [《人民の少爷》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [2026和平精英刺激之夜完整高清回放](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [母亲下水救女双双遇险 市民合力施救](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [《欢迎来龙餐馆》为啥不叫《欢迎来到龙餐馆》？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [如何评价《绝区零》3.1版本拍照活动「咔嚓！焦点对决！」？大家都拍出了哪些有意思的照片？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [山海兽医 第三集](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [王宝强首次入围百花奖却以0票收场](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [喜剧人 拿奖难](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [印度为何突然在经济上对华开绿灯](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [演员秦焰去世 曾出演《狂飙》](http://www.movie.hkepx.cn/xiju/9107169.htm)
-- [如何看待钟睒睒称电商平台把城市的很多零售商都「杀」光了，并呼吁限制其能力？电商平台究竟带来了哪些影响？](http://www.daogukj.com/2118100)
-- [杨紫琼《流浪地球 3》剧照首度曝光，从中能看出哪些信息？](http://www.daogukj.com/4008344)
-- [勇士将 26-27 赛季视为过渡季，放弃引援将如何影响球队？](http://www.play.hengshemaoyi.cn/kongbu/7615028.htm)
-- [上海武康大楼真成“船”了](http://www.play.hengshemaoyi.cn/xiju/6049463.htm)
-- [王从天降](http://www.play.hengshemaoyi.cn/xiju/3011019.htm)
-- [不打游戏这件事害惨了我](http://www.daogukj.com/hszupmxe/)
-- [偶像来了 重启回归](http://www.daogukj.com/4064184)
-- [苏州河水抢排翻泄至黄浦江](http://www.movie.hkepx.cn/xiju/6900043.htm)
-- [发烧梗](http://www.movie.hkepx.cn/movie/5643633.htm)
-- [67岁农户听信AI喷农药致150亩地一夜枯萎，老人听AI翻车的事层出不穷，有啥办法能帮助他们辨别吗？](http://www.daogukj.com/9009599)
+- [公安部通报：抓获犯罪嫌疑人8200余名](http://www.movie.hkepx.cn/xiju/9107169.htm)
+- [于东来回应关闭胖东来生活广场店，因早年租约失误造成租户租金失衡，门店盈利上亿仍闭店，如何看待他的选择？](http://www.daogukj.com/2118100)
+- [独闯南太行失联女子遗体已找到](http://www.daogukj.com/4008344)
+- [《哪吒之魔童闹海》获百花奖最佳影片](http://www.play.hengshemaoyi.cn/kongbu/7615028.htm)
+- [实拍哥伦比亚地震：房屋边晃边塌](http://www.play.hengshemaoyi.cn/xiju/6049463.htm)
+- [作为U17国足核心球员，17岁的赵松源能不能在如今的北京国安踢主力？](http://www.play.hengshemaoyi.cn/xiju/3011019.htm)
+- [前勇士传奇主教练唐尼尔森去世，如何评价他的执教生涯，他跟库里有哪些渊源？](http://www.daogukj.com/hszupmxe/)
+- [韩信为什么连让他钻裤裆的恶霸都委以重任，但是却拿百钱羞辱让他吃大半年白饭的亭长呢？](http://www.daogukj.com/4064184)
+- [杨幂百花奖24票](http://www.movie.hkepx.cn/xiju/6900043.htm)
+- [易烊千玺、卫诗雅分封影帝、影后，如何评价第 38届大众电影百花奖获奖名单？](http://www.movie.hkepx.cn/movie/5643633.htm)
+- [《欢迎来龙餐馆》为啥不叫《欢迎来到龙餐馆》？](http://www.daogukj.com/9009599)
 - [武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？](http://www.daogukj.com/xuhetnch/)
-- [《欢迎来龙餐馆》为啥不叫《欢迎来到龙餐馆》？](http://www.movie.hkepx.cn/movie/3450692.htm)
-- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](http://www.play.hengshemaoyi.cn/xiju/7219122.htm)
-- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](http://www.play.hengshemaoyi.cn/xiju/0509769.htm)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.daogukj.com/5496477)
-- [钟睒睒：必须限制电商平台权力](http://www.play.hengshemaoyi.cn/kongbu/6052650.htm)
-- [弗洛伊德的理论那么扯淡为什么他又那么出名？](http://www.play.hengshemaoyi.cn/kongbu/3792780.htm)
-- [A股“股王”大跌](http://www.play.hengshemaoyi.cn/kongbu/9692275.htm)
-- [连胜越高，对局反而简单了，这都是我努力的结果](http://www.play.hengshemaoyi.cn/kongbu/4655475.htm)
-- [假如全球所有人同时获得三个选项：立刻变成祖国人、十分钟后变成超人、十五分钟后变成曼哈顿博士，怎么选？](http://www.daogukj.com/6439972)
-- [无锡降雨量冲至全国第一](http://www.movie.hkepx.cn/movie/8714906.htm)
-- [中国一重原副总经理陆文俊获刑15年](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
-- [沈腾龙餐馆口碑大爆 出品方一字涨停](http://www.movie.hkepx.cn/movie/8757141.htm)
-- [史上最难！只有一块黑曜石该如何通关？](http://www.daogukj.com/eagjoiap/)
-- [10年后发现喜被里红鸡蛋2个仍完好](http://www.play.hengshemaoyi.cn/xiju/9146558.htm)
-- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/kmomqrid/)
-- [谢婷婷晒照怀念谢贤](http://www.play.hengshemaoyi.cn/xiju/3904561.htm)
-- [101岁老人叫82岁儿子吃饭](http://www.daogukj.com/mxxhzzoj/)
-- [硬盘、内存价格还会降回去吗？](http://www.daogukj.com/3878784)
-- [只是一个低脂的校园采访而已](http://www.daogukj.com/zkpqzjjl/)
-- [台风“白海豚”移入江西](http://www.movie.hkepx.cn/xiju/2484261.htm)
-- [百花奖闭幕式节目单正式揭晓](http://www.movie.hkepx.cn/xiju/8693395.htm)
-- [立秋后突然就不热了](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
-- [😨"后室里的乌鲁鲁"😰](http://www.play.hengshemaoyi.cn/kongbu/5541435.htm)
-- [龙餐馆](http://www.daogukj.com/6739669)
-- [“上海女子在台风中坠楼”不实](http://www.movie.hkepx.cn/movie/9062101.htm)
-- [母亲下水救女双双遇险 市民合力施救](http://www.play.hengshemaoyi.cn/kongbu/4956160.htm)
-- [演员秦焰去世](http://www.movie.hkepx.cn/movie/9855909.htm)
-- [台风天居民窗户上惊现海鲜：已吃掉](http://www.play.hengshemaoyi.cn/xiju/2496022.htm)
-- [多位大疆员工离职后创业成功](http://www.play.hengshemaoyi.cn/kongbu/7048086.htm)
-- [四代同框](http://www.daogukj.com/0803688)
-- [武契奇：欧洲已处于大战边缘](http://www.play.hengshemaoyi.cn/xiju/9996924.htm)
-- [周深演唱会被台下激光笔照射](http://www.daogukj.com/ebzzkofo/)
-- [“还不如不放假”](http://www.daogukj.com/1982276)
-- [校园爸临](http://www.daogukj.com/5145711)
-- [多地高分生扎堆填报「3+4」中本贯通，为什么会这样？中本贯通有哪些优势？](http://www.daogukj.com/9197192)
-- [寿司郎误将已付款顾客当逃单报警](http://www.daogukj.com/ngmslwod/)
-- [自学五天做出来的神人游戏](http://www.daogukj.com/8361807)
-- [伊朗最高领袖与总统会谈](http://www.daogukj.com/vyqctkoa/)
+- [喜剧人 拿奖难](http://www.movie.hkepx.cn/movie/3450692.htm)
+- [易烊千玺获百花奖最佳男主角](http://www.play.hengshemaoyi.cn/xiju/7219122.htm)
+- [小孩哥脱口而出解放军是全球最帅的人](http://www.play.hengshemaoyi.cn/xiju/0509769.htm)
+- [刘晓庆75岁状态](http://www.daogukj.com/5496477)
+- [至此，昆明迎来了最权威的落地签。。。](http://www.play.hengshemaoyi.cn/kongbu/6052650.htm)
+- [KPL](http://www.play.hengshemaoyi.cn/kongbu/3792780.htm)
+- [百花奖获奖全名单](http://www.play.hengshemaoyi.cn/kongbu/9692275.htm)
+- [如果你只能传送一次1KB的数据到三年前的自己面前，你会传什么？](http://www.play.hengshemaoyi.cn/kongbu/4655475.htm)
+- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](http://www.daogukj.com/6439972)
+- [百余名菲律宾公民在中国被依法处理](http://www.movie.hkepx.cn/movie/8714906.htm)
+- [郑丽文说台湾从来不是一个国家](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
+- [硬盘、内存价格还会降回去吗？](http://www.movie.hkepx.cn/movie/8757141.htm)
+- [【萌黄一槽】神秘面具男[百战]全技能爆料！以诡谲的手段穿梭虚实！](http://www.daogukj.com/eagjoiap/)
+- [母亲救溺水女儿 两人均被海浪卷走](http://www.play.hengshemaoyi.cn/xiju/9146558.htm)
+- [山海兽医 第三集](http://www.daogukj.com/kmomqrid/)
+- [不打游戏这件事害惨了我](http://www.play.hengshemaoyi.cn/xiju/3904561.htm)
+- [5万元以下小车销量暴跌55%](http://www.daogukj.com/mxxhzzoj/)
+- [泰国旅游 失联](http://www.daogukj.com/3878784)
+- [杨紫琼《流浪地球 3》剧照首度曝光，从中能看出哪些信息？](http://www.daogukj.com/zkpqzjjl/)
+- [ai漫剧顶流已经出了8季了](http://www.movie.hkepx.cn/xiju/2484261.htm)
+- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.movie.hkepx.cn/xiju/8693395.htm)
+- [王骁获百花奖最佳男配角](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
+- [电影《奥德赛》中，奥德修斯为什么不想回家？](http://www.play.hengshemaoyi.cn/kongbu/5541435.htm)
+- [大理百元豪车租赁乱象调查：186元租的保时捷是重大事故车，游客拒买高价保险遭敲诈【探照灯计划】](http://www.daogukj.com/6739669)
+- [演员秦焰去世，享年 72 岁，曾出演《狂飙》《庆余年第二季》等多部剧集，你对他塑造的角色有哪些记忆？](http://www.movie.hkepx.cn/movie/9062101.htm)
+- [王宝强首次入围百花奖却以0票收场](http://www.play.hengshemaoyi.cn/kongbu/4956160.htm)
+- [易烊千玺百花奖最佳男主](http://www.movie.hkepx.cn/movie/9855909.htm)
+- [多地高分生扎堆填报「3+4」中本贯通，为什么会这样？中本贯通有哪些优势？](http://www.play.hengshemaoyi.cn/xiju/2496022.htm)
+- [【网络热门AI鉴定】全网刷屏的Kimi K3，真的那么强？](http://www.play.hengshemaoyi.cn/kongbu/7048086.htm)
+- [第一次见有人撸台风羊毛](http://www.daogukj.com/0803688)
+- [刘耀文票数](http://www.play.hengshemaoyi.cn/xiju/9996924.htm)
+- [假面骑士祥子 01.沉默的骑士](http://www.daogukj.com/ebzzkofo/)
+- [台风「白海豚」疯狂倒水，上海内涝严重，地铁多条线路停运，你的出行和生活受影响了吗？今天有居家办公吗？](http://www.daogukj.com/1982276)
+- [弗洛伊德的理论那么扯淡为什么他又那么出名？](http://www.daogukj.com/5145711)
+- [越南女子杀子骗保被执行无期徒刑](http://www.daogukj.com/9197192)
+- [发烧梗](http://www.daogukj.com/ngmslwod/)
+- [王健林现在怎么样了? 万达什么情况?](http://www.daogukj.com/8361807)
+- [胖东来为何宁愿关店也不妥协](http://www.daogukj.com/vyqctkoa/)
 
 </details>
 
 ## 原始来源
 
-- [CF出新作，居然是3A单机？深度对话《穿越火线：潜伏》首席创意官【视频播客EP.64】](https://b23.tv/BV1PvuQ6CEwK)
+- [2026和平精英刺激之夜完整高清回放](https://b23.tv/BV1ffuU6bEHj)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f6b6b8609d63aab216ad -->
+<!-- content-fingerprint: 68d579fd693541420050 -->

@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 原来90后这么小众
+# 卫诗雅百花奖最佳女主
 
-> 来源：微博热搜 · 排名：第 4 位 · 热度：1304533 · 分类：幽默 · 更新：2026-08-10T18:02:04+08:00
+> 来源：微博热搜 · 排名：第 4 位 · 热度：3756392 · 分类：电影 · 更新：2026-08-10T22:33:21+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“原来90后这么小众”位列第 4 位，公开热度指标为 1304533，榜单分类为“幽默”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“卫诗雅百花奖最佳女主”位列第 4 位，公开热度指标为 3756392，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `幽默`
+`微博热搜` `实时热搜` `热点资讯` `电影`
 
 ## 相关热点
 
-- [独闯南太行失联女子遗体已找到](qiu-gao-qi-shuang.md)
-- [如何看待钟睒睒称电商平台把城市的很多零售商都「杀」光了，并呼吁限制其能力？电商平台究竟带来了哪些影响？](bing-tian-xue-di.md)
-- [山海兽医 第三集](ri-xin-yue-yi.md)
-- [白海豚突然大拐弯 走出罕见路线](hua-she-tian-zu.md)
+- [易烊千玺金鸡百花双料影帝](qiu-gao-qi-shuang.md)
+- [于东来回应关闭胖东来生活广场店，因早年租约失误造成租户租金失衡，门店盈利上亿仍闭店，如何看待他的选择？](bing-tian-xue-di.md)
+- [史上最难！只有一块黑曜石该如何通关？](ri-xin-yue-yi.md)
+- [外交部：百余名菲律宾公民被依法处理](hua-she-tian-zu.md)
 
 ## 站内推荐
 
-- [演员秦焰去世](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [百花奖好多高定](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [四代同框](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [沈腾龙餐馆口碑大爆 出品方一字涨停](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [宇树 中签堪比中彩票](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [易烊千玺百花奖最佳男主](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [百花奖获奖名单](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [第一次见有人撸台风羊毛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [硬盘、内存价格还会降回去吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [哈哈哈哈哈哈哈！！！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【TF家族练习生】《TLOG》15：《异常加载中》MV拍摄花絮](http://www.daogukj.com/5181500)
-- [网友发帖吐槽医院梯控员工作太闲，医院梯控员真的「工作清闲」吗？如何看待当事员工称自己因该帖已被开除？](http://www.movie.hkepx.cn/xiju/9773016.htm)
-- [王从天降](http://www.movie.hkepx.cn/movie/9124846.htm)
-- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](http://www.play.hengshemaoyi.cn/xiju/4142978.htm)
-- [经销商证实雪佛兰暂停在华新车销售](http://www.play.hengshemaoyi.cn/xiju/0655686.htm)
-- [伊朗最高领袖与总统会谈](http://www.play.hengshemaoyi.cn/xiju/4307291.htm)
-- [谢婷婷晒照怀念谢贤](http://www.play.hengshemaoyi.cn/xiju/0421275.htm)
-- [“还不如不放假”](http://www.movie.hkepx.cn/movie/7032351.htm)
-- [😨"后室里的乌鲁鲁"😰](http://www.movie.hkepx.cn/xiju/0470498.htm)
-- [10年后发现喜被里红鸡蛋2个仍完好](http://www.daogukj.com/5003678)
-- [这届大学新生快买不起电脑了](http://www.movie.hkepx.cn/xiju/1214971.htm)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.movie.hkepx.cn/movie/5140365.htm)
-- [上海武康大楼真成“船”了](http://www.play.hengshemaoyi.cn/kongbu/1740172.htm)
-- [校园爸临](http://www.movie.hkepx.cn/xiju/1939268.htm)
-- [相声演员李晓龙因病去世 年仅38岁](http://www.movie.hkepx.cn/xiju/1565528.htm)
-- [中国6G何以加速跑](http://www.play.hengshemaoyi.cn/xiju/8958260.htm)
-- [独闯南太行失联14天的女子已找到](http://www.daogukj.com/1297973)
-- [假如你是一个顶尖电竞俱乐部管理人，在俱乐部有 4 个明星选手的前提下，你还会招募 Bin 选手吗？](http://www.play.hengshemaoyi.cn/xiju/1614198.htm)
-- [“上海女子在台风中坠楼”不实](http://www.play.hengshemaoyi.cn/kongbu/3697199.htm)
-- [如何评价《绝区零》3.1版本拍照活动「咔嚓！焦点对决！」？大家都拍出了哪些有意思的照片？](http://www.play.hengshemaoyi.cn/kongbu/9480927.htm)
-- [第一批用AI租房的受益者出现了](http://www.play.hengshemaoyi.cn/kongbu/9159403.htm)
-- [母亲下水救女双双遇险 市民合力施救](http://www.movie.hkepx.cn/xiju/9578437.htm)
-- [数名男子捞起大鱼就跑 公园已报警](http://www.movie.hkepx.cn/movie/5485462.htm)
-- [寿司郎误将已付款顾客当逃单报警](http://www.movie.hkepx.cn/movie/1456536.htm)
-- [女孩南太行失联14天后遗体被找到](http://www.daogukj.com/ncqbcdrz/)
-- [无锡降雨量冲至全国第一](http://www.movie.hkepx.cn/movie/0472879.htm)
-- [演员秦焰去世](http://www.movie.hkepx.cn/movie/7091494.htm)
-- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.play.hengshemaoyi.cn/kongbu/1321852.htm)
-- [白海豚突然大拐弯](http://www.play.hengshemaoyi.cn/xiju/0473745.htm)
-- [Ning爆料Bin彻底不打了](http://www.daogukj.com/8366630)
-- [女子瘫痪10年重新站起称爱是奇迹](http://www.daogukj.com/1791640)
-- [《欢迎来龙餐馆》为啥不叫《欢迎来到龙餐馆》？](http://www.daogukj.com/0959409)
-- [独闯南太行失联女子遗体已找到](http://www.movie.hkepx.cn/xiju/6735619.htm)
-- [中国一重原副总经理陆文俊获刑15年](http://www.movie.hkepx.cn/movie/1843823.htm)
-- [偶像来了 重启回归](http://www.play.hengshemaoyi.cn/kongbu/6218798.htm)
-- [杨紫琼《流浪地球 3》剧照首度曝光，从中能看出哪些信息？](http://www.movie.hkepx.cn/xiju/6634995.htm)
-- [2026和平精英刺激之夜完整高清回放](http://www.movie.hkepx.cn/movie/5717100.htm)
-- [同济大学取消教师长期聘任，科研教职岗位面临更大的压力，为什么行政工作相对更简单反而没有这种不稳定性？](http://www.daogukj.com/8131900)
-- [假如全球所有人同时获得三个选项：立刻变成祖国人、十分钟后变成超人、十五分钟后变成曼哈顿博士，怎么选？](http://www.daogukj.com/3231701)
-- [钟睒睒：必须限制电商平台权力](http://www.movie.hkepx.cn/xiju/8755184.htm)
-- [胚胎案妻子最新回应暂不离婚](http://www.play.hengshemaoyi.cn/xiju/1179352.htm)
-- [泰国被接机女生疑遭带走](http://www.play.hengshemaoyi.cn/kongbu/9212242.htm)
-- [网传数据显示广东人吃肉量是山西的4倍以上，是真是假？](http://www.play.hengshemaoyi.cn/xiju/2201204.htm)
-- [深圳APEC峰会倒计时100天](http://www.play.hengshemaoyi.cn/xiju/4252949.htm)
-- [蔡磊：晚期像反复溺水 狂躁绝望](http://www.play.hengshemaoyi.cn/xiju/1307876.htm)
-- [广岛长崎的昨日未必不会是日本的明天](http://www.play.hengshemaoyi.cn/xiju/7645141.htm)
-- [大瓶啤酒为何卖疯了](http://www.daogukj.com/asszxyma/)
-- [连胜越高，对局反而简单了，这都是我努力的结果](http://www.daogukj.com/4395997)
-- [百花奖闭幕式节目单正式揭晓](http://www.play.hengshemaoyi.cn/xiju/4312574.htm)
-- [孙女用AI把奶奶P进《西游记》](http://www.play.hengshemaoyi.cn/xiju/9872690.htm)
+- [伯克希尔Q2净利润256.67亿美元，时隔3年首次净买入股票，现金储备降至3655亿美元，如何解读？](http://www.daogukj.com/5181500)
+- [AppleWatch产品线重大调整](http://www.movie.hkepx.cn/xiju/9773016.htm)
+- [作为U17国足核心球员，17岁的赵松源能不能在如今的北京国安踢主力？](http://www.movie.hkepx.cn/movie/9124846.htm)
+- [小孩哥脱口而出解放军是全球最帅的人](http://www.play.hengshemaoyi.cn/xiju/4142978.htm)
+- [大鹏获百花奖最佳导演](http://www.play.hengshemaoyi.cn/xiju/0655686.htm)
+- [胖东来为何宁愿关店也不妥协](http://www.play.hengshemaoyi.cn/xiju/4307291.htm)
+- [不打游戏这件事害惨了我](http://www.play.hengshemaoyi.cn/xiju/0421275.htm)
+- [台风「白海豚」疯狂倒水，上海内涝严重，地铁多条线路停运，你的出行和生活受影响了吗？今天有居家办公吗？](http://www.movie.hkepx.cn/movie/7032351.htm)
+- [电影《奥德赛》中，奥德修斯为什么不想回家？](http://www.movie.hkepx.cn/xiju/0470498.htm)
+- [母亲救溺水女儿 两人均被海浪卷走](http://www.daogukj.com/5003678)
+- [哥伦比亚发生7.5级地震](http://www.movie.hkepx.cn/xiju/1214971.htm)
+- [刘晓庆75岁状态](http://www.movie.hkepx.cn/movie/5140365.htm)
+- [实拍哥伦比亚地震：房屋边晃边塌](http://www.play.hengshemaoyi.cn/kongbu/1740172.htm)
+- [弗洛伊德的理论那么扯淡为什么他又那么出名？](http://www.movie.hkepx.cn/xiju/1939268.htm)
+- [卫诗雅获百花奖最佳女主角](http://www.movie.hkepx.cn/xiju/1565528.htm)
+- [我国民营企业创新动能持续增强](http://www.play.hengshemaoyi.cn/xiju/8958260.htm)
+- [白海豚突然大拐弯 走出罕见路线](http://www.daogukj.com/1297973)
+- [塞尔维亚为何支持乌克兰加入欧盟](http://www.play.hengshemaoyi.cn/xiju/1614198.htm)
+- [演员秦焰去世，享年 72 岁，曾出演《狂飙》《庆余年第二季》等多部剧集，你对他塑造的角色有哪些记忆？](http://www.play.hengshemaoyi.cn/kongbu/3697199.htm)
+- [印度为何突然在经济上对华开绿灯](http://www.play.hengshemaoyi.cn/kongbu/9480927.htm)
+- [男单前10国乒仅剩王楚钦、林诗栋](http://www.play.hengshemaoyi.cn/kongbu/9159403.htm)
+- [王宝强首次入围百花奖却以0票收场](http://www.movie.hkepx.cn/xiju/9578437.htm)
+- [原来这才是金项链的正确戴法](http://www.movie.hkepx.cn/movie/5485462.htm)
+- [发烧梗](http://www.movie.hkepx.cn/movie/1456536.htm)
+- [白海豚突然大拐弯](http://www.daogukj.com/ncqbcdrz/)
+- [百余名菲律宾公民在中国被依法处理](http://www.movie.hkepx.cn/movie/0472879.htm)
+- [易烊千玺百花奖最佳男主](http://www.movie.hkepx.cn/movie/7091494.htm)
+- [刘耀文看到易烊千玺拿影帝的反应](http://www.play.hengshemaoyi.cn/kongbu/1321852.htm)
+- [王宝强0票](http://www.play.hengshemaoyi.cn/xiju/0473745.htm)
+- [相声演员李晓龙因病去世 年仅38岁](http://www.daogukj.com/8366630)
+- [四代同框](http://www.daogukj.com/1791640)
+- [喜剧人 拿奖难](http://www.daogukj.com/0959409)
+- [易烊千玺金鸡百花双料影帝](http://www.movie.hkepx.cn/xiju/6735619.htm)
+- [郑丽文说台湾从来不是一个国家](http://www.movie.hkepx.cn/movie/1843823.htm)
+- [韩信为什么连让他钻裤裆的恶霸都委以重任，但是却拿百钱羞辱让他吃大半年白饭的亭长呢？](http://www.play.hengshemaoyi.cn/kongbu/6218798.htm)
+- [独闯南太行失联女子遗体已找到](http://www.movie.hkepx.cn/xiju/6634995.htm)
+- [山海兽医 第三集](http://www.movie.hkepx.cn/movie/5717100.htm)
+- [河南22岁女孩南太行山失联，手机最后信号不在山林，现已确认遇难，遗体在悬崖被找到，有哪些信息值得关注？](http://www.daogukj.com/8131900)
+- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](http://www.daogukj.com/3231701)
+- [至此，昆明迎来了最权威的落地签。。。](http://www.movie.hkepx.cn/xiju/8755184.htm)
+- [萨日娜获百花奖最佳女配角](http://www.play.hengshemaoyi.cn/xiju/1179352.htm)
+- [自学五天做出来的神人游戏](http://www.play.hengshemaoyi.cn/kongbu/9212242.htm)
+- [沈腾新片《欢迎来龙餐馆》点映口碑爆棚，如何评价沈腾此番演技？喜剧演员要打破观众的固有印象难度在哪？](http://www.play.hengshemaoyi.cn/xiju/2201204.htm)
+- [深圳向世界展示中国开放活力](http://www.play.hengshemaoyi.cn/xiju/4252949.htm)
+- [“温州一建筑被台风吹塌”不实](http://www.play.hengshemaoyi.cn/xiju/1307876.htm)
+- [台湾不是国家不存在“国格”](http://www.play.hengshemaoyi.cn/xiju/7645141.htm)
+- [打骂乡村兽医的后果？？？](http://www.daogukj.com/asszxyma/)
+- [如果你只能传送一次1KB的数据到三年前的自己面前，你会传什么？](http://www.daogukj.com/4395997)
+- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.play.hengshemaoyi.cn/xiju/4312574.htm)
+- [王骁萨日娜分获百花奖最佳男女配角](http://www.play.hengshemaoyi.cn/xiju/9872690.htm)
 
 </details>
 
 ## 原始来源
 
-- [原来90后这么小众](https://s.weibo.com/weibo?q=%E5%8E%9F%E6%9D%A590%E5%90%8E%E8%BF%99%E4%B9%88%E5%B0%8F%E4%BC%97)
+- [卫诗雅百花奖最佳女主](https://s.weibo.com/weibo?q=%E5%8D%AB%E8%AF%97%E9%9B%85%E7%99%BE%E8%8A%B1%E5%A5%96%E6%9C%80%E4%BD%B3%E5%A5%B3%E4%B8%BB)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4d0075a268a6449b634e -->
+<!-- content-fingerprint: 78321b7fc1286b3d7637 -->
