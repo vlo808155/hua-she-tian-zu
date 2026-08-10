@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待日本一医院错把患者脑部当肿瘤切除？
+# 武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：156 万热度 · 分类：问答 · 更新：2026-08-10T06:58:47+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：490 万热度 · 分类：问答 · 更新：2026-08-10T13:07:04+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待日本一医院错把患者脑部当肿瘤切除？”位列第 3 位，公开热度指标为 156 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？”位列第 3 位，公开热度指标为 490 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月7日，日本京都大学医学部附属医院当天召开记者会承认发生重大医疗事故，该院在实施脑肿瘤开颅手术时错将患者部分健康的脑部切除，导致患者脑干受损。 据报道，这名50余岁女性患者所患脑肿瘤为良性，主治医师有超过20年从业经验。在手术进行过程中，主治医师先切除了被认为是肿瘤部位的一小部分作为样本，对样本的两次检查均显示该部位不是肿瘤，但主治医师仍然认定该部位就是肿瘤并将其切除。术后检查显示，患者的脑肿瘤完好无损，但她的脑干受到损伤。 患者手术前能够正常生活，但目前四肢无法动弹且无法自主呼吸，正在依靠人工呼吸机维持生命体征，恢复的前景很不明朗。京都大学医学部附属
+来源公开摘要显示：武汉市公安局武昌区分局8月10日通报，8月9日晚9时35分，接群众报警称辖区一人行天桥上有人发生肢体冲突。该局立即派民警赶赴现场处置。经查，金某（男，45岁，街道城管协管员 ）在巡查时与摊主黄某某（女，44岁 ）、任某某（男，45岁 ）因摆摊问题发生口角，黄某某、任某某殴打金某，致其面部受伤。随后，金某同事严某（男，39岁）、郭某（男，40岁） 闻讯赶来，3人对黄某某、任某某进行殴打。目前，金某、严某、郭某因涉嫌故意伤害，已被警方依法刑事拘留。案件正在进一步办理中。 街道城管协管员与摊主发生冲突？武汉警方：3人被刑拘
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [发烧梗](shan-qing-shui-xiu.md)
-- [“开学三件套”全线暴涨](feng-he-ri-li.md)
-- [沈腾 影帝](chun-nuan-hua-kai.md)
-- [伊朗最高领袖与总统会谈](qiu-gao-qi-shuang.md)
+- [四代同框](shan-qing-shui-xiu.md)
+- [赵心童有望月底登顶世界第一](feng-he-ri-li.md)
+- [贺涵 能来接我吗](chun-nuan-hua-kai.md)
+- [上海谁家三文鱼吹窗户上了](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [如何看待美军林肯号航母爆出物资短缺，环境恶劣、飞行甲板磨出洞等情况？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [台风「白海豚」在浙江台州玉环沿海登陆，中心附近最大风力 14 级，你那边现在情况如何？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [在贵州按猪遇见羡慕的婚礼](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [在东方明珠玩100人躲猫猫！奖金10万元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [哈哈哈哈哈哈哈！！！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [传销犯变身「国学大师」创办如是书院暴力管教孩子，浙江开启调查，这个书院为啥能横行多年？反映出哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [为什么程序员大多都拥抱AI，而音乐人却抗拒并隔离AI音乐池？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [67岁农户听信AI喷农药致150亩地一夜枯萎，老人听AI翻车的事层出不穷，有啥办法能帮助他们辨别吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [上海音乐家协会新增无弦吉他考级，无弦吉他算乐器吗？这个等级含金量高吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [怎么挑选眼镜框](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [【同人动画】致以辉煌的人 【奥特曼光之创想季】](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [“开学三件套”全线暴涨](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [上海交大绝杀清华闯进AUBL总决赛](http://www.daogukj.com/8743466)
-- [女子被狗舔脚后被判定狂犬病三级暴露，因脚趾甲沟炎存在皮肤破损，反映出什么认知误区？哪些情况要及时就医？](http://www.daogukj.com/6087099)
-- [穿8850元MiuMiu鞋脚被染黑 官方回应](http://www.daogukj.com/8759192)
-- [中国制造硬核瞬间](http://www.daogukj.com/nzlnmzmb/)
-- [如何看待当前物价运行态势](http://www.daogukj.com/6882941)
-- [妈妈，你不能单挑大棕熊，坐坦克打枪吧！？！](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [[我的世界怪物学院] 逗逗小乐魂](http://www.daogukj.com/9154473)
-- [如何看待 2026 年 8 月 8 日，史诗级电影《奥德赛》的点映上座率高达 57.3% 左右？](http://www.daogukj.com/4411404)
-- [原字节跳动机器人一号位加入小米](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [去这里旅游的人都失踪了，所谓旅游胜地的背后竟然是...](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [女演员朱锐自称破产失业](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [以军士兵把枪口对准中国记者](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [180斤记者报道台风 抱电线杆才站稳](http://www.daogukj.com/aztauuey/)
-- [上门女婿出轨女邻居多年被判重婚罪](http://www.daogukj.com/7343685)
-- [一车载筒状构件与桥体剐蹭后滚落](http://www.daogukj.com/dhbposmt/)
-- [新能源充电站一辆SUV突然起火爆燃](http://www.daogukj.com/1538095)
-- [台风白海豚在浙江玉环沿海登陆](http://www.daogukj.com/uznikqxj/)
-- [《明日方舟：终末地》梨诺EP - Mirairo Rider](http://www.daogukj.com/5158126)
-- [哈哈哈哈哈哈哈！！！](http://www.daogukj.com/3616935)
-- [浙江省甬江发生2026年第1号洪水](http://www.daogukj.com/pfvjuanz/)
-- [儿子去世孙子不捧骨灰盒被查出非亲生](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [《穿越三国，复活五虎北伐》第一季1-10集大合集！【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [最会过马路的小狗出现了](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [今年第16号台风琵鹭生成](http://www.daogukj.com/asaygxgb/)
-- [马斯克凭什么建全球最大的芯片厂](http://www.daogukj.com/zxvfwrkb/)
-- [89岁钟南山每周健身3次](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](http://www.daogukj.com/7717389)
-- [南航回应深圳飞无锡航班起飞时遭雷击](http://www.daogukj.com/9746581)
-- [周星驰母亲现身香港路演现场](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [雪佛兰正式停售中国市场，如何评价这个汽车品牌在华的21年？](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [80多岁外婆门打不开直接翻院墙出门](http://www.daogukj.com/7650204)
-- [存款市场罕见两极分化](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [鉴定3个孩子非亲生奶奶仍想接手抚养](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [香港刷新1884年以来最高气温纪录](http://www.daogukj.com/0995452)
-- [危险暴雨来了：白海豚提前登陆浙江玉环，将深入南方内陆并去北方](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [大V：日称解放军有8架歼35是自欺欺人](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [2026WTT横滨冠军赛，张本智和4比1吴晙诚卫冕成功，如何评价这场比赛？](http://www.daogukj.com/fivnrrsp/)
-- [台风「白海豚」在浙江台州玉环沿海登陆，中心附近最大风力 14 级，你那边现在情况如何？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [龙餐馆 奥斯卡](http://www.daogukj.com/hldbetht/)
-- [杭州交警建议明早提前一小时出门](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [你会去电影院看沈腾主演的新电影《欢迎来龙餐馆》吗？票房能破50亿吗?](http://www.daogukj.com/phqakpps/)
-- [如何看待“现在查 RTX 5090 价格已经变成了一种恐怖片题材”这个梗？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [鲁迅连个长篇都没有，可是为什么一提到中国现当代文学的TOP1，就都想到了他？](http://www.daogukj.com/adpyviat/)
-- [Chinamaxxing全球出圈！是啥意思](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [张本智和说和妹妹同时夺冠意义重大](http://www.daogukj.com/1571628)
-- [白海豚 居家办公](http://www.daogukj.com/9492876)
+- [5万小车卖不动 微型代步车集体遇冷](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [受台风「白海豚」影响，8 月 10 日上海地铁多条线路停运，你早高峰出行受影响了吗？今天有居家办公吗？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [赵心童有望月底登顶世界第一](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [麦当劳也出自助餐？四种炸鸡不限量畅吃，45分钟从头吃到尾！](http://www.daogukj.com/8743466)
+- [小沈阳加盟《披荆斩棘》](http://www.daogukj.com/6087099)
+- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.daogukj.com/8759192)
+- [从热词迭代读懂鲜活中国](http://www.daogukj.com/nzlnmzmb/)
+- [这些中国风热词上新了](http://www.daogukj.com/6882941)
+- [现在国家建立了不少职业技术大学，这寓意着何种风向标？](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [网传数据显示广东人吃肉量是山西的4倍以上，是真是假？](http://www.daogukj.com/9154473)
+- [台退将：大陆耐心有限终将不统而统](http://www.daogukj.com/4411404)
+- [😨"后室里的乌鲁鲁"😰](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [多地中小银行下调存款利率，国有四大行重启大额存单，存款市场为何两极分化？](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [武汉通报天桥打人事件](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [5万元以下微型代步车集体遇冷](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [当我给朋友推荐中式糕点](http://www.daogukj.com/aztauuey/)
+- [孟子义这个背](http://www.daogukj.com/7343685)
+- [这是”轨道炮“陷阱！](http://www.daogukj.com/dhbposmt/)
+- [疑似高智adhd在评论区泄露天才经验](http://www.daogukj.com/1538095)
+- [上海一下沉式广场遭雨水倒灌](http://www.daogukj.com/uznikqxj/)
+- [「白海豚」减弱为热带风暴，范围覆盖整个华东，浙皖等地局地有特大暴雨，目前情况如何？你那边雨势怎么样？](http://www.daogukj.com/5158126)
+- [上海音乐家协会新增无弦吉他考级，无弦吉他算乐器吗？这个等级含金量高吗？](http://www.daogukj.com/3616935)
+- [黄山大量游客滞留风雨里等数小时](http://www.daogukj.com/pfvjuanz/)
+- [“上海女子在台风中坠楼”不实](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [横滨女队三人围剿也没能阻挡张本美和夺冠，你怎么看?](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [评分8.7！我们奥特曼有救啦！提欧奥特曼开播吐槽！](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [[我的世界怪物学院] 逗逗小乐魂](http://www.daogukj.com/asaygxgb/)
+- [专家：A股二次探底是大概率事件](http://www.daogukj.com/zxvfwrkb/)
+- [荷兰弟赞达亚好吓人的点赞量](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [网友发帖吐槽医院梯控员工作太闲，医院梯控员真的「工作清闲」吗？如何看待当事员工称自己因该帖已被开除？](http://www.daogukj.com/7717389)
+- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.daogukj.com/9746581)
+- [武汉天桥摊主 先动手](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [上海地铁4条线路全线停运](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [易烊千玺走红毯前吃什么了](http://www.daogukj.com/7650204)
+- [乘客讲述可乐爆瓶击伤空乘眼部](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [钱塘江江滩现“巨型羽毛”](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/0995452)
+- [如何看待钟睒睒称电商平台把城市的很多零售商都「杀」光了，并呼吁限制其能力？电商平台究竟带来了哪些影响？](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [iPhone18Pro发布会时间](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [伊朗最高领袖与总统会谈](http://www.daogukj.com/fivnrrsp/)
+- [为什么程序员大多都拥抱AI，而音乐人却抗拒并隔离AI音乐池？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [4.2平卫生间补漏注胶花1.55万](http://www.daogukj.com/hldbetht/)
+- [演员表演期间裙摆着火 景区回应](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [律师谈贾冰私人饭局被偷拍](http://www.daogukj.com/phqakpps/)
+- [第二代490牛发动机完成百发卫星任务](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [蔡磊妻子谈人真正要算的账是什么](http://www.daogukj.com/adpyviat/)
+- [暑期档票房超85亿爆燃千亿级市场](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [暑期档电影再次迎来“神仙打架”](http://www.daogukj.com/1571628)
+- [沈腾 拿影帝](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [如何看待日本一医院错把患者脑部当肿瘤切除？](https://www.zhihu.com/question/2069354305589620880)
+- [武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？](https://www.zhihu.com/question/2070076932834550346)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3a03b08636b74d4a83e6 -->
+<!-- content-fingerprint: 703425cfe2c3b288fb94 -->
