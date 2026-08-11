@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 胖东来公布2起侵犯员工人格尊严案例
+# 陈俊生150万年薪让罗子君买8万的鞋
 
-> 来源：微博热搜 · 排名：第 2 位 · 热度：851569 · 分类：民生新闻 · 更新：2026-08-11T13:42:00+08:00
+> 来源：微博热搜 · 排名：第 2 位 · 热度：856913 · 分类：剧集 · 更新：2026-08-11T14:39:04+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“胖东来公布2起侵犯员工人格尊严案例”位列第 2 位，公开热度指标为 851569，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“陈俊生150万年薪让罗子君买8万的鞋”位列第 2 位，公开热度指标为 856913，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`微博热搜` `实时热搜` `热点资讯` `剧集`
 
 ## 相关热点
 
-- [解放军特种兵部署台海一线](ba-mian-ling-long.md)
+- [美媒：特朗普上月秘密乘运输机回国](ba-mian-ling-long.md)
 - [山东菏泽古沉船一件元青花杯被曝下落不明，举报者称其曾出现在央视画面中，却未移交给博物馆，具体情况如何？](jiu-niu-yi-mao.md)
-- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](shi-quan-shi-mei.md)
+- [2026和平精英刺激之夜完整高清回放](shi-quan-shi-mei.md)
 - [从一笔账单看60万亿消费KPI的底气](bai-fa-bai-zhong.md)
 
 ## 站内推荐
 
 - [建议大家装修不要太大众](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [李嘉诚又要套现了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [Jennie堵鼻子](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [张本兄妹同时包揽 WTT 横滨冠军赛单打冠军，会对国乒的霸主地位有影响吗？国乒到底怎么了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [为什么那么多年轻人得了尿毒症？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [胖东来公布2起侵犯员工人格尊严案例](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [马薇薇回应消失5年](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [委内瑞拉强震死亡人数上升至6301人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [易烊千玺连续四届提名百花奖，终凭《小小的我》刘春和一角成 00 后首位百花影帝，如何评价他的表演？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [陈俊生150万年薪让罗子君买8万的鞋](http://www.play.hengshemaoyi.cn/kongbu/5645462.htm)
+- [百花影帝影后历年票数](http://www.play.hengshemaoyi.cn/kongbu/5645462.htm)
 - [岳云鹏瘦了20斤](http://www.movie.hkepx.cn/movie/8293092.htm)
-- [男子瞒着妻子5年给父母转账50万](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
-- [女子被拐关地下室被虐8年](http://www.daogukj.com/8375241)
-- [解放军特种兵部署台海一线](http://www.daogukj.com/iaraacys/)
-- [上海暴雨中男子俯身在水里徒手排涝](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
-- [苹果液态玻璃图标大改](http://www.daogukj.com/jkwmzbpc/)
+- [苏泊尔 好好卖锅别搞擦边](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
+- [韩网友因张元英说中文愤怒](http://www.daogukj.com/8375241)
+- [美媒：特朗普上月秘密乘运输机回国](http://www.daogukj.com/iaraacys/)
+- [陈雪凝疑似生孩子了](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
+- [白鹿黑丝御姐黑西装](http://www.daogukj.com/jkwmzbpc/)
 - [黄金](http://www.play.hengshemaoyi.cn/kongbu/9710980.htm)
-- [阿维塔高管称不认为和华为的合作模式是「必要项」，阿维塔具备差异化的能力，如何看待这一表态？](http://www.movie.hkepx.cn/xiju/9588893.htm)
+- [俄少年当面许愿想读军校 普京回应](http://www.movie.hkepx.cn/xiju/9588893.htm)
 - [从一笔账单看60万亿消费KPI的底气](http://www.movie.hkepx.cn/movie/8778310.htm)
-- [“两广人的家具belike：”【Monody-混响】【两广家具の小曲】](http://www.movie.hkepx.cn/movie/6076618.htm)
-- [淀粉：碳基压缩科技](http://www.daogukj.com/dpkkzqnv/)
-- [父亲发现儿子吸笑气报警](http://www.movie.hkepx.cn/movie/1651889.htm)
-- [C罗年薪19亿足坛断档第一](http://www.daogukj.com/9130223)
+- [《英文最差の一集》](http://www.movie.hkepx.cn/movie/6076618.htm)
+- [跑步一分钟5块，上不封顶，第147期，广东深圳13岁小姑娘速度耐力惊艳](http://www.daogukj.com/dpkkzqnv/)
+- [太好了是双强！面瘫战神×呆萌话痨并肩第一战，配合快准狠，死局竟成了热血开局！！](http://www.movie.hkepx.cn/movie/1651889.htm)
+- [真正的顶级友谊这种分寸感](http://www.daogukj.com/9130223)
 - [因儿子说「大不了送外卖」，爸爸三伏天带他送外卖，竟意外修复父子关系，这一实践式教育怎么样？值得效仿吗？](http://www.movie.hkepx.cn/xiju/5806124.htm)
 - [带张伟丽姐自律的一天！](http://www.daogukj.com/fkjhvpfb/)
-- [王健林现在怎么样了? 万达什么情况?](http://www.play.hengshemaoyi.cn/kongbu/6838815.htm)
-- [夫妻结婚40年都AA制 丈夫在家装监控](http://www.movie.hkepx.cn/xiju/2953910.htm)
-- [警方介入调查独闯南太行女子死因](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
-- [美媒：特朗普上月秘密乘运输机回国](http://www.movie.hkepx.cn/movie/7538444.htm)
+- [不看后悔！海绵宝宝主题汉堡店 这装修下血本了](http://www.play.hengshemaoyi.cn/kongbu/6838815.htm)
+- [淀粉：碳基压缩科技](http://www.movie.hkepx.cn/xiju/2953910.htm)
+- [年轻人穿西装跳目瑙纵歌为何火了](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
+- [广州为何盯上一台炒菜机器人](http://www.movie.hkepx.cn/movie/7538444.htm)
 - [央视首次曝光 055 遵义舰演习遭潜艇伏击「击沉」，这一操作的意图是什么？算暴露055的短板吗？](http://www.movie.hkepx.cn/movie/4849813.htm)
 - [约饭拿不准谁请客 点菜都在看眼色](http://www.movie.hkepx.cn/xiju/0772096.htm)
-- [费大厨撤下「全国小炒肉大王」 宣传，上菜口号更换为 「精选黑猪肉、专业大厨炒」，此举带来的影响有多大？](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
-- [伊朗总统之子反思伊朗国际形象](http://www.movie.hkepx.cn/movie/2588691.htm)
-- [Jennie堵鼻子](http://www.play.hengshemaoyi.cn/kongbu/0673260.htm)
-- [跑步一分钟5块，上不封顶，第147期，广东深圳13岁小姑娘速度耐力惊艳](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
+- [如何评价《欢迎来龙餐馆》这部电影？](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
+- [猫耳声刻2026阵容](http://www.movie.hkepx.cn/movie/2588691.htm)
+- [马薇薇回应消失5年](http://www.play.hengshemaoyi.cn/kongbu/0673260.htm)
+- [放假前夕](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
 - [伊朗更强硬的强硬派来了](http://www.movie.hkepx.cn/movie/5784282.htm)
-- [台风「白海豚」深入内陆，湖北宜昌进战时状态，河南、安徽、山东迎来特大暴雨，你那目前情况咋样？雨有多大？](http://www.movie.hkepx.cn/movie/3182879.htm)
+- [阿维塔高管称不认为和华为的合作模式是「必要项」，阿维塔具备差异化的能力，如何看待这一表态？](http://www.movie.hkepx.cn/movie/3182879.htm)
 - [阿维塔 华为](http://www.daogukj.com/3766509)
 - [山东菏泽古沉船一件元青花杯被曝下落不明，举报者称其曾出现在央视画面中，却未移交给博物馆，具体情况如何？](http://www.play.hengshemaoyi.cn/xiju/6973597.htm)
-- [《崩坏：星穹铁道》阿哈时刻：「真珠」](http://www.play.hengshemaoyi.cn/xiju/0738996.htm)
-- [俄空袭策略改变让乌军“破防”](http://www.daogukj.com/ctquznvn/)
-- [女子连用美白面霜确诊“激素脸”](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
-- [超级偶像，闪亮登场！✨💜](http://www.movie.hkepx.cn/xiju/5105551.htm)
-- [易烊千玺、卫诗雅分封影帝、影后，《哪吒 2》获最佳影片，如何评价第 38 届大众电影百花奖获奖名单？](http://www.daogukj.com/8216748)
+- [超级偶像，闪亮登场！✨💜](http://www.play.hengshemaoyi.cn/xiju/0738996.htm)
+- [分析人士：金银价格已处于阶段性底部](http://www.daogukj.com/ctquznvn/)
+- [爱跑步的人vs爱举铁的人 谁更长寿](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
+- [《英雄联盟》怀旧服老英雄与现版本单挑仅一人胜出，巨大强度差异是如何造成的？](http://www.movie.hkepx.cn/xiju/5105551.htm)
+- [媒体评女孩独闯南太行遇难](http://www.daogukj.com/8216748)
 - [因为给我买车买房没提前跟我弟说，我弟把我全家都拉黑了快7年了，父子都不愿低头，怎么破冰？](http://www.movie.hkepx.cn/xiju/8980675.htm)
-- [王凯百花奖唯一独唱表演](http://www.movie.hkepx.cn/xiju/6567869.htm)
-- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/njgxlzmh/)
-- [为什么那么多年轻人得了尿毒症？](http://www.movie.hkepx.cn/xiju/5238935.htm)
-- [真正的顶级友谊这种分寸感](http://www.movie.hkepx.cn/xiju/5524746.htm)
-- [委内瑞拉强震死亡人数上升至6301人](http://www.play.hengshemaoyi.cn/kongbu/1255416.htm)
-- [白鹿黑丝御姐黑西装](http://www.movie.hkepx.cn/movie/0643495.htm)
-- [豆包否认推荐酒店抽取 12% 佣金，称仅在订单成交后收取渠道服务费，字节在打哪些商业算盘？](http://www.daogukj.com/4160069)
-- [在墨西哥，你甚至可以和神父摔角?!](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
-- [爱跑步的人vs爱举铁的人 谁更长寿](http://www.movie.hkepx.cn/movie/5891565.htm)
-- [连线亲历哥伦比亚地震华人](http://www.movie.hkepx.cn/movie/7078938.htm)
+- [日本大量网帖否认核爆](http://www.movie.hkepx.cn/xiju/6567869.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.daogukj.com/njgxlzmh/)
+- [易烊千玺连续四届提名百花奖，终凭《小小的我》刘春和一角成 00 后首位百花影帝，如何评价他的表演？](http://www.movie.hkepx.cn/xiju/5238935.htm)
+- [7月销量前十仅一款燃油车](http://www.movie.hkepx.cn/xiju/5524746.htm)
+- [伊朗警告乌克兰不赔偿就动手](http://www.play.hengshemaoyi.cn/kongbu/1255416.htm)
+- [中国车把日本车打成了奢侈品](http://www.movie.hkepx.cn/movie/0643495.htm)
+- [台风「白海豚」深入内陆，湖北宜昌进战时状态，河南、安徽、山东迎来特大暴雨，你那目前情况咋样？雨有多大？](http://www.daogukj.com/4160069)
+- [张本兄妹同时包揽 WTT 横滨冠军赛单打冠军，会对国乒的霸主地位有影响吗？国乒到底怎么了？](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
+- [父亲发现儿子吸笑气报警](http://www.movie.hkepx.cn/movie/5891565.htm)
+- [台风“白海豚”带来的风雨影响将持续](http://www.movie.hkepx.cn/movie/7078938.htm)
 - [少年不满分手抱女友跳河后独自逃离](http://www.daogukj.com/mqfndzhh/)
 - [这些假期安全雷区要避开](http://www.play.hengshemaoyi.cn/xiju/6747952.htm)
-- [台风过后六十多亩茭白田一夜变池塘](http://www.daogukj.com/1314318)
+- [易烊千玺仅差华表奖大满贯](http://www.daogukj.com/1314318)
 - [《人民の少爷》](http://www.daogukj.com/8186889)
 
 </details>
 
 ## 原始来源
 
-- [胖东来公布2起侵犯员工人格尊严案例](https://s.weibo.com/weibo?q=%E8%83%96%E4%B8%9C%E6%9D%A5%E5%85%AC%E5%B8%832%E8%B5%B7%E4%BE%B5%E7%8A%AF%E5%91%98%E5%B7%A5%E4%BA%BA%E6%A0%BC%E5%B0%8A%E4%B8%A5%E6%A1%88%E4%BE%8B)
+- [陈俊生150万年薪让罗子君买8万的鞋](https://s.weibo.com/weibo?q=%E9%99%88%E4%BF%8A%E7%94%9F150%E4%B8%87%E5%B9%B4%E8%96%AA%E8%AE%A9%E7%BD%97%E5%AD%90%E5%90%9B%E4%B9%B08%E4%B8%87%E7%9A%84%E9%9E%8B)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4d3f4efcbd276e8ccd7d -->
+<!-- content-fingerprint: 35e8310f215730f6a9d3 -->
