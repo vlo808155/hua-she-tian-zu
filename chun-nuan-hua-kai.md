@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 以后救市别求沈腾王宝强了
+# 易烊千玺工作室编辑加了刘春和
 
-> 来源：微博热搜 · 排名：第 4 位 · 热度：736798 · 分类：电影 · 更新：2026-08-11T07:46:12+08:00
+> 来源：微博热搜 · 排名：第 4 位 · 热度：836302 · 分类：电影 · 更新：2026-08-11T08:51:37+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“以后救市别求沈腾王宝强了”位列第 4 位，公开热度指标为 736798，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“易烊千玺工作室编辑加了刘春和”位列第 4 位，公开热度指标为 836302，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [百花奖获奖全名单](qiu-gao-qi-shuang.md)
-- [科学史上有哪些令人惋惜的遗憾？](bing-tian-xue-di.md)
-- [史上最难！只有一块黑曜石该如何通关？](ri-xin-yue-yi.md)
+- [李嘉诚又要售卖海外资产](qiu-gao-qi-shuang.md)
+- [为什么那么多年轻人得了尿毒症？](bing-tian-xue-di.md)
+- [当星际战士降临，被邪神腐化的世界会如何发展？](ri-xin-yue-yi.md)
 - [第一次见有人撸台风羊毛](hua-she-tian-zu.md)
 
 ## 站内推荐
 
-- [王宝强0票](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [旅游发朋友圈为什么要带定位](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [母子三人想去郴州结果到了彬州](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [适度的「懒」对身体是不是一种保护机制？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [地球一次自转需要23小时56分钟，剩下的4分钟去哪儿了呢？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [疑山西一医院实习护士晒患者隐私照](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [陈思诚在家里气哭了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [ksg流浪夏季赛不打了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [现货黄金涨破4400美元/盎司](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [博主谈卫诗雅凭什么拿百花影后](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [短剧演员王译磊谈参加百花奖感受](http://www.daogukj.com/5181500)
-- [哥伦比亚发生7.5级地震](http://www.movie.hkepx.cn/xiju/9773016.htm)
-- [何赛飞感慨容颜老去](http://www.movie.hkepx.cn/movie/9124846.htm)
-- [原来这才是金项链的正确戴法](http://www.play.hengshemaoyi.cn/xiju/4142978.htm)
-- [白海豚突然大拐弯](http://www.play.hengshemaoyi.cn/xiju/0655686.htm)
-- [山东一中学让新生填家长职务和车价，校方称用于贫困补助甄别，学校该不该收集这类信息？你遇到过类似情况吗？](http://www.play.hengshemaoyi.cn/xiju/4307291.htm)
-- [【萌黄一槽】神秘面具男[百战]全技能爆料！以诡谲的手段穿梭虚实！](http://www.play.hengshemaoyi.cn/xiju/0421275.htm)
-- [如果你只能传送一次1KB的数据到三年前的自己面前，你会传什么？](http://www.movie.hkepx.cn/movie/7032351.htm)
-- [国务院免去罗文国家市监总局局长职务](http://www.movie.hkepx.cn/xiju/0470498.htm)
-- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.daogukj.com/5003678)
-- [泰国 电诈园区](http://www.movie.hkepx.cn/xiju/1214971.htm)
-- [刘晓庆75岁状态](http://www.movie.hkepx.cn/movie/5140365.htm)
-- [外交部批驳印方：藏南地区是中国领土](http://www.play.hengshemaoyi.cn/kongbu/1740172.htm)
-- [中国足球几十年都没有冲出亚洲，不是不努力，是不是中国人的体质不适合踢足球？](http://www.movie.hkepx.cn/xiju/1939268.htm)
-- [王宝强首次入围百花奖却以0票收场](http://www.movie.hkepx.cn/xiju/1565528.htm)
+- [王宝强是之前连金扫帚奖都去现场的人](http://www.daogukj.com/5181500)
+- [哥伦比亚因地震进入国家灾难状态](http://www.movie.hkepx.cn/xiju/9773016.htm)
+- [晚年独居女性如何面对老去的寂寞](http://www.movie.hkepx.cn/movie/9124846.htm)
+- [外交部批驳印方：藏南地区是中国领土](http://www.play.hengshemaoyi.cn/xiju/4142978.htm)
+- [卫诗雅获百花奖最佳女主角](http://www.play.hengshemaoyi.cn/xiju/0655686.htm)
+- [王宝强0票落选百花奖最佳男主角](http://www.play.hengshemaoyi.cn/xiju/4307291.htm)
+- [大理百元豪车租赁乱象调查：186元租的保时捷是重大事故车，游客拒买高价保险遭敲诈【探照灯计划】](http://www.play.hengshemaoyi.cn/xiju/0421275.htm)
+- [秦焰：一个配角的四十年](http://www.movie.hkepx.cn/movie/7032351.htm)
+- [泰国 电诈园区](http://www.movie.hkepx.cn/xiju/0470498.htm)
+- [一句话给老登的心理防线干穿了，顺便剪成了艺术](http://www.daogukj.com/5003678)
+- [高铁双人座被免票儿童挤成3人座](http://www.movie.hkepx.cn/xiju/1214971.htm)
+- [易烊千玺回应最年轻双料影帝](http://www.movie.hkepx.cn/movie/5140365.htm)
+- [山海兽医 第三集](http://www.play.hengshemaoyi.cn/kongbu/1740172.htm)
+- [如何评价电视剧《重器》](http://www.movie.hkepx.cn/xiju/1939268.htm)
+- [曾年销超76万的神车要退场了](http://www.movie.hkepx.cn/xiju/1565528.htm)
 - [我国民营企业创新动能持续增强](http://www.play.hengshemaoyi.cn/xiju/8958260.htm)
-- [豆包回应“推荐酒店抽取12%佣金”](http://www.daogukj.com/1297973)
-- [竟然不是高叶](http://www.play.hengshemaoyi.cn/xiju/1614198.htm)
-- [伯克希尔Q2净利润256.67亿美元，时隔3年首次净买入股票，现金储备降至3655亿美元，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/3697199.htm)
-- [胡锡进警惕AI消灭行业剥夺饭碗](http://www.play.hengshemaoyi.cn/kongbu/9480927.htm)
-- [一百年前拍电影，没特效没替身没电脑，到底咋拍的？](http://www.play.hengshemaoyi.cn/kongbu/9159403.htm)
-- [哥伦比亚因地震进入国家灾难状态](http://www.movie.hkepx.cn/xiju/9578437.htm)
-- [百余名菲律宾公民在中国被依法处理](http://www.movie.hkepx.cn/movie/5485462.htm)
-- [假面骑士祥子 01.沉默的骑士](http://www.movie.hkepx.cn/movie/1456536.htm)
-- [王宝强0票落选百花奖最佳男主角](http://www.daogukj.com/ncqbcdrz/)
-- [外交部：藏南地区是中国领土](http://www.movie.hkepx.cn/movie/0472879.htm)
-- [王宝强0票](http://www.movie.hkepx.cn/movie/7091494.htm)
-- [赵丽颖百花奖首提即中](http://www.play.hengshemaoyi.cn/kongbu/1321852.htm)
-- [百万粉丝女网红姜小柔因车祸去世](http://www.play.hengshemaoyi.cn/xiju/0473745.htm)
-- [iPhone18Pro等7款新品彻底泄密](http://www.daogukj.com/8366630)
-- [为什么《人民的名义》中唯独没有介绍侯亮平和钟小艾的家庭背景？是因为他们是正面人物要考虑影响吗？](http://www.daogukj.com/1791640)
-- [Angelababy85花首位百花奖](http://www.daogukj.com/0959409)
-- [百花奖获奖全名单](http://www.movie.hkepx.cn/xiju/6735619.htm)
-- [宋佳马丽落泪祝贺萨日娜获奖](http://www.movie.hkepx.cn/movie/1843823.htm)
-- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](http://www.play.hengshemaoyi.cn/kongbu/6218798.htm)
-- [河南平顶山一貌似张雪峰的烧烤哥在网上火了，你有哪些感慨和触动？](http://www.movie.hkepx.cn/xiju/6634995.htm)
-- [白海豚大拐弯：江浙沪多地特大暴雨破纪录，北方暴雨启动或有三个重点](http://www.movie.hkepx.cn/movie/5717100.htm)
+- [王宝强首次入围百花奖却以0票收场](http://www.daogukj.com/1297973)
+- [医生问诊27岁女子妈妈在旁不停打断](http://www.play.hengshemaoyi.cn/xiju/1614198.htm)
+- [为什么立秋以后天气一下子就凉快起来了，这里有什么说法吗？](http://www.play.hengshemaoyi.cn/kongbu/3697199.htm)
+- [乌对俄本土发动致命袭击致13死78伤](http://www.play.hengshemaoyi.cn/kongbu/9480927.htm)
+- [新三国里还有哪些知名度较低的逆天情节？](http://www.play.hengshemaoyi.cn/kongbu/9159403.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.movie.hkepx.cn/xiju/9578437.htm)
+- [国乒男单上半区失守](http://www.movie.hkepx.cn/movie/5485462.htm)
+- [如何看待《哪吒之魔童闹海》斩获第 38 届大众电影百花奖最佳影片，成为百花奖历史上首部动画最佳影片？](http://www.movie.hkepx.cn/movie/1456536.htm)
+- [百花奖获奖名单](http://www.daogukj.com/ncqbcdrz/)
+- [多地公安机关打掉1000多个犯罪团伙](http://www.movie.hkepx.cn/movie/0472879.htm)
+- [疑山西一医院实习护士晒患者隐私照](http://www.movie.hkepx.cn/movie/7091494.htm)
+- [Angelababy85花首位百花奖](http://www.play.hengshemaoyi.cn/kongbu/1321852.htm)
+- [白海豚突然大拐弯](http://www.play.hengshemaoyi.cn/xiju/0473745.htm)
+- [母子三人想去郴州结果到了彬州](http://www.daogukj.com/8366630)
+- [印度为何突然在经济上对华开绿灯](http://www.daogukj.com/1791640)
+- [商场负一层遭积水倒灌 展厅车漂走](http://www.daogukj.com/0959409)
+- [李嘉诚又要售卖海外资产](http://www.movie.hkepx.cn/xiju/6735619.htm)
+- [《乱》Celestial Decay｜侯景之乱](http://www.movie.hkepx.cn/movie/1843823.htm)
+- [山东菏泽古沉船一件元青花杯被曝下落不明，举报者称其曾出现在央视画面中，却未移交给博物馆，具体情况如何？](http://www.play.hengshemaoyi.cn/kongbu/6218798.htm)
+- [台风天别被路上水面骗了](http://www.movie.hkepx.cn/xiju/6634995.htm)
+- [在墨西哥，你甚至可以和神父摔角?!](http://www.movie.hkepx.cn/movie/5717100.htm)
 - [于东来回应关闭胖东来生活广场店，因早年租约失误造成租户租金失衡，门店盈利上亿仍闭店，如何看待他的选择？](http://www.daogukj.com/8131900)
-- [河南22岁女孩南太行山失联，手机最后信号不在山林，现已确认遇难，遗体在悬崖被找到，有哪些信息值得关注？](http://www.daogukj.com/3231701)
-- [同济大学取消教师长期聘任，科研教职岗位面临更大的压力，为什么行政工作相对更简单反而没有这种不稳定性？](http://www.movie.hkepx.cn/xiju/8755184.htm)
-- [《穿越三国，复活五虎北伐》第一季1-10集大合集！【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1179352.htm)
-- [赛博家居？我把客厅升级成了智能机械空间！](http://www.play.hengshemaoyi.cn/kongbu/9212242.htm)
-- [淀粉：碳基压缩科技](http://www.play.hengshemaoyi.cn/xiju/2201204.htm)
+- [央视首次曝光 055 遵义舰演习遭潜艇伏击「击沉」，这一操作的意图是什么？算暴露055的短板吗？](http://www.daogukj.com/3231701)
+- [短剧演员王译磊谈参加百花奖感受](http://www.movie.hkepx.cn/xiju/8755184.htm)
+- [如何评价即将发布的 DeepSeek-V4 Pro 正式版，有哪些亮点？](http://www.play.hengshemaoyi.cn/xiju/1179352.htm)
+- [史上最难！只有一块黑曜石该如何通关？](http://www.play.hengshemaoyi.cn/kongbu/9212242.htm)
+- [山东一中学让新生填家长职务和车价，校方称用于贫困补助甄别，学校该不该收集这类信息？你遇到过类似情况吗？](http://www.play.hengshemaoyi.cn/xiju/2201204.htm)
 - [长江十年行](http://www.play.hengshemaoyi.cn/xiju/4252949.htm)
 - [“温州一建筑被台风吹塌”不实](http://www.play.hengshemaoyi.cn/xiju/1307876.htm)
-- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.play.hengshemaoyi.cn/xiju/7645141.htm)
-- [多地高分生扎堆填报「3+4」中本贯通，为什么会这样？中本贯通有哪些优势？](http://www.daogukj.com/asszxyma/)
-- [数名男子捞起大鱼就跑 公园已报警](http://www.daogukj.com/4395997)
-- [硬盘、内存价格还会降回去吗？](http://www.play.hengshemaoyi.cn/xiju/4312574.htm)
-- [沈腾新片《欢迎来龙餐馆》点映口碑爆棚，如何评价沈腾此番演技？喜剧演员要打破观众的固有印象难度在哪？](http://www.play.hengshemaoyi.cn/xiju/9872690.htm)
+- [如何看待GPT-6 （Astra）？](http://www.play.hengshemaoyi.cn/xiju/7645141.htm)
+- [胖东来为何宁愿关店也不妥协](http://www.daogukj.com/asszxyma/)
+- [沈腾最大的奖 微博King](http://www.daogukj.com/4395997)
+- [外交部：藏南地区是中国领土](http://www.play.hengshemaoyi.cn/xiju/4312574.htm)
+- [中国存储开始把定价权拿回来了](http://www.play.hengshemaoyi.cn/xiju/9872690.htm)
 
 </details>
 
 ## 原始来源
 
-- [以后救市别求沈腾王宝强了](https://s.weibo.com/weibo?q=%E4%BB%A5%E5%90%8E%E6%95%91%E5%B8%82%E5%88%AB%E6%B1%82%E6%B2%88%E8%85%BE%E7%8E%8B%E5%AE%9D%E5%BC%BA%E4%BA%86)
+- [易烊千玺工作室编辑加了刘春和](https://s.weibo.com/weibo?q=%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E5%B7%A5%E4%BD%9C%E5%AE%A4%E7%BC%96%E8%BE%91%E5%8A%A0%E4%BA%86%E5%88%98%E6%98%A5%E5%92%8C)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3cc6d6fd1c4a93bdcc56 -->
+<!-- content-fingerprint: 3871270d0dc9b6a32c87 -->
