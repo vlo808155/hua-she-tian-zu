@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 孕妇胎监异常被安排4天后手术结果胎儿死亡，医院40余次篡改病历，法院判医院赔偿 14 万，如何解读？
+# 第一印象：毁掉一个人，为什么只需要0.1秒？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：256 万热度 · 分类：问答 · 更新：2026-08-12T09:58:12+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：1968438 · 分类：科学科普 · 更新：2026-08-12T12:15:22+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“孕妇胎监异常被安排4天后手术结果胎儿死亡，医院40余次篡改病历，法院判医院赔偿 14 万，如何解读？”位列第 3 位，公开热度指标为 256 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“第一印象：毁掉一个人，为什么只需要0.1秒？”位列第 3 位，公开热度指标为 1968438，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：如果剖宫产手术早两天、或两小时进行，女儿是不是就活下来了？时隔两年，向怡梅（化名）仍时常想起这个问题。2024年10月17日，孕37周的向怡梅在四川省人民医院产检，因胎监数据不正常，医生安排紧急入院，准备剖宫产，但手术时间却被安排在了四天后。甚至在术前一个多小时，她本人也反映胎儿动静微弱之后，手术仍未进行，胎儿被取出时已窒息死亡。 向怡梅和家属向成都市青羊区人民法院提起诉讼。2026年4月9日，成都市青羊区法院认定，在此次诊疗行为中，四川省医院多次编辑修改病程、术前讨论记录、术前小结等病历材料，并“超过正常限度及时限”，导致该案无法通过鉴定明确诊疗过错。
+来源公开摘要显示：在这个看脸时代，你有没有仅仅因为一张照片，就被暗中淘汰，或被莫名其妙地贴上标签？无数人认为准确的第一印象，真的靠谱吗？ 参考文献 [1] TODOROV A, MANDISODZA A N, GOREN A, et al., Inferences of competence from faces predict election outcomes[J]. Science, 2005, 308(5728): 1623-1626. [2] BALLEW C C, TODOROV A. Predicting p
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [【咒术回战IF】高羽史彦:你觉得未来的英雄来救场会搞笑吗？](shan-qing-shui-xiu.md)
-- [赵一鸣4块牛肉干64元复称仅17元](feng-he-ri-li.md)
-- [六公主力挺赵丽颖百花奖](chun-nuan-hua-kai.md)
-- [北京暴雨](qiu-gao-qi-shuang.md)
+- [你家老小区将迎巨变](shan-qing-shui-xiu.md)
+- [我们的少年时代2](feng-he-ri-li.md)
+- [出现4个信号说明你可能不是普通头痛](chun-nuan-hua-kai.md)
+- [「人民艺术家」郭兰英逝世，享年 97 岁，代表作有《我的祖国》《南泥湾》等，她的哪些作品令你印象深刻？](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [为什么国内大学都不愿意改善学生的住宿条件，比如四人间升级为双人间甚至单人间？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [贺峻霖向往的生活常驻](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [赵一鸣涉事店铺老板回应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [日本篡改历史被反噬了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [《影之刃零》预购开启，11分钟实机预告公开](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [2026和平精英刺激之夜完整高清回放](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [【不是说奥特曼在地球的活动时间只有三分钟吗】我发点别的看看流量怎么样，这不是我盗的，也别盗我视频](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [新三国up锐评老三国12：三个齐上，也不是我的对手！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [这已经不是一般的变态了，必须加大电量](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [今年百花奖王宝强 0 票，对此你的看法是什么？](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [茅台的红丝带原来是这样用的](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [赵一鸣4块牛肉干64元复称仅17元](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [中方坚决反对美方大搞麦克风外交](http://www.daogukj.com/8743466)
-- [河南暴雨红色预警](http://www.daogukj.com/6087099)
-- [印度为何突然对华示好](http://www.daogukj.com/8759192)
-- [请查收这份暴雨天避险指南](http://www.daogukj.com/nzlnmzmb/)
-- [这个时代我们该追什么样的星](http://www.daogukj.com/6882941)
-- [欢迎来龙餐馆票房](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [郭兰英逝世](http://www.daogukj.com/9154473)
-- [A股开盘：三大指数小幅低开](http://www.daogukj.com/4411404)
-- [牺牲民警母亲想问儿子倒下时疼不疼](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [国行苹果AI支持机型](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [最有魅力的男主！到底谁才是智性恋的天花板？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [曝赵一鸣4块牛肉干64元复称仅17元](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [中国女排3-0横扫日本](http://www.daogukj.com/aztauuey/)
-- [小咕嘎我真得控制一下你了](http://www.daogukj.com/7343685)
-- [美共和党候选人骂前以军士兵种族灭绝](http://www.daogukj.com/dhbposmt/)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.daogukj.com/1538095)
-- [郭兰英逝世 享年97岁](http://www.daogukj.com/uznikqxj/)
-- [雅典娜朋友发声](http://www.daogukj.com/5158126)
-- [日本篡改历史被反噬了](http://www.daogukj.com/3616935)
-- [巴、沙、土三国共同防务协议只是代表了中东新局面吗？背后要注意什么 ？](http://www.daogukj.com/pfvjuanz/)
-- [短剧演员自曝富婆带资进组演女主，给自己硬加 60 多场吻戏，短剧上线仅数日便被下架，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [Angelababy时隔一年千鸟格造型](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [解放军破局南海无人机威胁意味什么](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [比亚迪闪充开抢10万级市场](http://www.daogukj.com/asaygxgb/)
-- [《我的祖国》演唱者郭兰英逝世](http://www.daogukj.com/zxvfwrkb/)
-- [《英文最差の一集》](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [业内认为蒋奇明是下一个大演员](http://www.daogukj.com/7717389)
-- [如何看待胖东来的“反规模”叛逆期](http://www.daogukj.com/9746581)
-- [回马枪来了：江浙沪皖将出现二茬雨，山河四省后东北将暴雨](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [赵一鸣涉事店铺老板回应](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [詹姆斯圣诞大战父子对决](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [诺兰2.5亿巨制！看懂奥德赛](http://www.daogukj.com/7650204)
-- [5 万元以下微型车遇冷，40 万元以上新能源车热销，这说明了什么？](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [苹果总营销隐私保护，为何单位仍然禁用？](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [河南发布暴雨红色预警](http://www.daogukj.com/0995452)
-- [忙到晕倒炸鸡店员工已结算工资离职](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [《女娲视角》](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [“我听交警的”涉事女子道歉赔偿](http://www.daogukj.com/fivnrrsp/)
-- [为什么国内大学都不愿意改善学生的住宿条件，比如四人间升级为双人间甚至单人间？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [如何看待京东上大规模出现「李鬼」笔记本电脑？](http://www.daogukj.com/hldbetht/)
-- [上海突如其来的大暴雨，市区很多路段全面积水，无法排出的原因是什么？](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [男子直播淫秽内容获利0.1元被判刑](http://www.daogukj.com/phqakpps/)
-- [回望郭兰英经典代表作](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [借用30多年 兰州拉面还给兰州了](http://www.daogukj.com/adpyviat/)
-- [全方位培养、引进、用好人才](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [如何评价起点官方被曝禁止新人作者使用 AI 润色？否则不允许上架？](http://www.daogukj.com/1571628)
-- [演员贾冰参加朋友饭局被偷拍，网传视频中有爆粗口、抽烟喝酒等行为，是真的吗？为什么反而被网友力挺？](http://www.daogukj.com/9492876)
+- [李现王真儿李泽锋合照](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [我们的少年时代2](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [创业板指半日涨1.73% 算力硬件股反弹](http://www.daogukj.com/8743466)
+- [普通人就算有钱，为什么慎重购买别墅？](http://www.daogukj.com/6087099)
+- [马丽 沈腾榜一大姐](http://www.daogukj.com/8759192)
+- [体验“上新”点亮文旅消费新空间](http://www.daogukj.com/nzlnmzmb/)
+- [新业态激活日常消费市场](http://www.daogukj.com/6882941)
+- [小咕嘎我真得控制一下你了](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [⚡泥 肘⚡](http://www.daogukj.com/9154473)
+- [NBA公布26-27赛季常规赛赛程，詹姆斯连续八年打揭幕战，这体现了他在联盟中怎样的地位？](http://www.daogukj.com/4411404)
+- [广东小孩哥自家阳台实现钓鱼自由](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [二阳“微服私访”](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [上海警方处置11起涉台风谣言](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [怎么看 DeepSeek 注册 Harness 公众号并选用黑鲸鱼 logo ？](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [《阿嬷》导演看《龙餐馆》哭了好多次](http://www.daogukj.com/aztauuey/)
+- [984.5高校火了](http://www.daogukj.com/7343685)
+- [张雪机车车手德比斯要来中国了](http://www.daogukj.com/dhbposmt/)
+- [龚琳娜悼念恩师郭兰英](http://www.daogukj.com/1538095)
+- [河南暴雨](http://www.daogukj.com/uznikqxj/)
+- [三体IF线：如果维德成为执剑人](http://www.daogukj.com/5158126)
+- [这已经不是一般的变态了，必须加大电量](http://www.daogukj.com/3616935)
+- [原来姚安娜是艺名](http://www.daogukj.com/pfvjuanz/)
+- [男子被炸街吵醒刺死骑行辅警](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [家里的旧光盘，为什么播不出来了？](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [上汽大众高管：很多车现在还会生锈](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [“我听交警的”涉事女子道歉赔偿](http://www.daogukj.com/asaygxgb/)
+- [为什么国内大学都不愿意改善学生的住宿条件，比如四人间升级为双人间甚至单人间？](http://www.daogukj.com/zxvfwrkb/)
+- [印度一保安强奸女生被捕后求原谅](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [《原神》角色预告-「奥黛塔：天真的挽歌」](http://www.daogukj.com/7717389)
+- [母亲与怀孕妻子遇害 2岁女儿目睹全程](http://www.daogukj.com/9746581)
+- [易中天用AI解读庄子](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [新三国up锐评老三国12：三个齐上，也不是我的对手！](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [7月汽车销量前10仅卡罗拉锐放 1 款燃油车，吉利星愿、零跑A10等持续热销，燃油车还有多大生存空间？](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [河南许昌：市民非必要不外出](http://www.daogukj.com/7650204)
+- [王宝强 Hello树先生](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [小鹏G9L挑战水陆空720度七重安全测试](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [不要错过今晚的流星雨](http://www.daogukj.com/0995452)
+- [隔壁班来了个围棋酱！](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [北京暴雨](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [如何评价米哈游旗下AI互动陪伴产品《BSide: Olivia Lin》宣告停止运营？](http://www.daogukj.com/fivnrrsp/)
+- [2026和平精英刺激之夜完整高清回放](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [C罗五个孩子出席婚礼](http://www.daogukj.com/hldbetht/)
+- [小酒窝和爸爸在一起就像小孩子](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [《影之刃零》正式开启预售，标准版268元，甄子丹出演核心角色，11分钟实机视频全程高能，如何评价？](http://www.daogukj.com/phqakpps/)
+- [深圳大学拟拿出5.3亿元，买下整栋商品房给学生当宿舍，背后有哪些考量？买商品房当宿舍会成为趋势吗？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [百万粉丝网红姜小柔去世，年仅 24 岁，还有哪些信息值得关注？](http://www.daogukj.com/adpyviat/)
+- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [茅台的红丝带原来是这样用的](http://www.daogukj.com/1571628)
+- [黑尾酱疑似再婚](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [孕妇胎监异常被安排4天后手术结果胎儿死亡，医院40余次篡改病历，法院判医院赔偿 14 万，如何解读？](https://www.zhihu.com/question/2070525080463828728)
+- [第一印象：毁掉一个人，为什么只需要0.1秒？](https://b23.tv/BV1q7uq6fEZ7)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 03f33bafc8648917ccb4 -->
+<!-- content-fingerprint: 2a77adb66c9355fa16ba -->

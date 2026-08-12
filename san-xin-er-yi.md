@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 河南暴雨
+# 胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？
 
-> 来源：今日头条热榜 · 排名：第 1 位 · 热度：12950043 · 分类：热门事件 · 更新：2026-08-12T09:58:12+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：734 万热度 · 分类：问答 · 更新：2026-08-12T12:15:22+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“河南暴雨”位列第 1 位，公开热度指标为 12950043，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？”位列第 1 位，公开热度指标为 734 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：8月10日，胖东来通过官方社交媒体账号公布了两起侵犯员工人格尊严的典型案例，被侵犯的员工分别获得1万元和5万元补偿。目前，其中一起涉及精神疾病患者的案件已进入民事诉讼程序。 被车顶撞补偿1万，肇事者行拘6日 据胖东来公示信息，2026年2月11日，新乡门店公共安全部员工武某某在执勤期间，发现一名顾客驾驶车辆违规插队，多次上前制止。该顾客不听劝阻，驾车顶撞员工武某某向前行驶，在场其他员工共同制止车辆行驶后，车主驶离现场，门店随即报警处理。经公安机关调查，该顾客因扰乱公共秩序被处以行政拘留6日的行政处罚，事后已向员工赔礼道歉并留存道歉视频。根据《胖东来侵犯人
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？](si-hai-wei-jia.md)
-- [2026和平精英刺激之夜完整高清回放](wu-gu-feng-deng.md)
-- [多地试点：直升高中](liu-shen-wu-zhu.md)
-- [C罗五个孩子出席婚礼](qi-shang-ba-xia.md)
+- [《影之刃零》预购开启，11分钟实机预告公开](si-hai-wei-jia.md)
+- [郭兰英逝世 享年97岁](wu-gu-feng-deng.md)
+- [陈俊生离婚后为什么对平儿不好](liu-shen-wu-zhu.md)
+- [《我的祖国》演唱者郭兰英逝世](qi-shang-ba-xia.md)
 
 ## 站内推荐
 
-- [全方位培养、引进、用好人才](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [郭兰英1994年将演唱版权无偿捐国家](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [四个年轻人拍语文课本单条播放破亿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [A股开盘：三大指数小幅低开](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [詹姆斯圣诞大战父子对决](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [为什么《哪吒之魔童闹海》获百花奖最佳影片无人站起，《惊蛰无声》获优秀影片，现场全体起立？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [巴、沙、土三国共同防务协议只是代表了中东新局面吗？背后要注意什么 ？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [NBA公布26-27赛季常规赛赛程，詹姆斯连续八年打揭幕战，这体现了他在联盟中怎样的地位？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [7月汽车销量前10仅卡罗拉锐放 1 款燃油车，吉利星愿、零跑A10等持续热销，燃油车还有多大生存空间？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [C罗宣布结婚](http://www.daogukj.com/dycpetil/)
-- [创业板指涨逾1% 上涨个股近3000只](http://www.movie.hkepx.cn/movie/5655338.htm)
-- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
-- [解放军破局南海无人机威胁意味什么](http://www.daogukj.com/3221972)
-- [《原神》角色预告-「奥黛塔：天真的挽歌」](http://www.movie.hkepx.cn/movie/8631365.htm)
-- [夫妻结婚40余年一直实行AA制](http://www.movie.hkepx.cn/xiju/3338351.htm)
-- [郭兰英逝世 享年97岁](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
-- [茅台的红丝带原来是这样用的](http://www.daogukj.com/vmuhfhdx/)
-- [曝赵一鸣4块牛肉干64元复称仅17元](http://www.movie.hkepx.cn/xiju/7746644.htm)
-- [四个年轻人拍语文课本单条播放破亿](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
-- [怎么看 DeepSeek 注册 Harness 公众号并选用黑鲸鱼 logo ？](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
-- [比亚迪海獭日本订单破千](http://www.daogukj.com/4437175)
-- [中国女排3-0横扫日本](http://www.daogukj.com/lclnvtmc/)
-- [六公主力挺赵丽颖百花奖](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
-- [短剧演员自曝富婆带资进组演女主，给自己硬加 60 多场吻戏，短剧上线仅数日便被下架，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
-- [如何看待胖东来的“反规模”叛逆期](http://www.daogukj.com/0713363)
-- [Claude证明黎曼猜想取得了重大突破，这个事件有什么开创性意义？](http://www.movie.hkepx.cn/xiju/6077524.htm)
-- [巴、沙、土三国共同防务协议只是代表了中东新局面吗？背后要注意什么 ？](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
-- [胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？](http://www.daogukj.com/9378383)
-- [Angelababy时隔一年千鸟格造型](http://www.movie.hkepx.cn/movie/3280477.htm)
-- [【不是说奥特曼在地球的活动时间只有三分钟吗】我发点别的看看流量怎么样，这不是我盗的，也别盗我视频](http://www.movie.hkepx.cn/movie/9632113.htm)
-- [984.5高校火了](http://www.daogukj.com/6919034)
-- [媒体：哪吒票房换不来圈内人一次起立](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
-- [苹果总营销隐私保护，为何单位仍然禁用？](http://www.daogukj.com/ttcnrbsi/)
-- [北京暴雨](http://www.movie.hkepx.cn/movie/6836580.htm)
-- [国行苹果AI支持机型](http://www.daogukj.com/dfvjlhgg/)
-- [《英文最差の一集》](http://www.movie.hkepx.cn/movie/8186104.htm)
-- [5 万元以下微型车遇冷，40 万元以上新能源车热销，这说明了什么？](http://www.movie.hkepx.cn/movie/9874745.htm)
-- [如何评价起点官方被曝禁止新人作者使用 AI 润色？否则不允许上架？](http://www.daogukj.com/nkpmcahd/)
-- [深圳大学拟拿出5.3亿元，买下整栋商品房给学生当宿舍，背后有哪些考量？买商品房当宿舍会成为趋势吗？](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
-- [既然草书很多人看不懂，为什么还要发明草书？](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
-- [日全食](http://www.movie.hkepx.cn/movie/4332345.htm)
-- [全方位培养、引进、用好人才](http://www.movie.hkepx.cn/movie/8953215.htm)
-- [《我的祖国》演唱者郭兰英逝世](http://www.daogukj.com/hhucwvns/)
-- [东莞招教师将其称作「课时服务人员」，网友质疑老师变为服务者，如何看待这一称呼的转变？会弱化教师身份吗？](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
-- [上海浦东一女子台风中坠楼不实](http://www.daogukj.com/lpvatlfx/)
-- [请查收这份暴雨天避险指南](http://www.daogukj.com/3115605)
-- [为什么国内大学都不愿意改善学生的住宿条件，比如四人间升级为双人间甚至单人间？](http://www.movie.hkepx.cn/movie/1459959.htm)
-- [马伊琍想让谁顺谁就顺极了](http://www.daogukj.com/6281492)
-- [勇闯互联网](http://www.movie.hkepx.cn/xiju/4232291.htm)
-- [如何看待李嘉诚又一次大撤退](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
-- [⚡泥 肘⚡](http://www.movie.hkepx.cn/movie/0376230.htm)
-- [两张照片沈腾能玩出100个梗](http://www.movie.hkepx.cn/xiju/2775998.htm)
-- [牺牲民警母亲想问儿子倒下时疼不疼](http://www.daogukj.com/8542217)
-- [郭兰英1994年将演唱版权无偿捐国家](http://www.movie.hkepx.cn/xiju/2386261.htm)
-- [「人民艺术家」郭兰英逝世，享年 97 岁，代表作有《我的祖国》《南泥湾》等，她的哪些作品令你印象深刻？](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
-- [最有魅力的男主！到底谁才是智性恋的天花板？](http://www.movie.hkepx.cn/movie/8948693.htm)
-- [多地试点：直升高中](http://www.movie.hkepx.cn/movie/7516507.htm)
-- [回马枪来了：江浙沪皖将出现二茬雨，山河四省后东北将暴雨](http://www.daogukj.com/3234327)
-- [男子直播淫秽内容获利0.1元被判刑](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
+- [李嘉诚再抛售海外资产，估值最多为 166 亿港元，如何理解这一举动？长江实业为何频繁出售海外资产？](http://www.movie.hkepx.cn/movie/5655338.htm)
+- [iPhone18Pro成本](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
+- [上汽大众高管：很多车现在还会生锈](http://www.daogukj.com/3221972)
+- [如何看待李嘉诚又一次大撤退](http://www.movie.hkepx.cn/movie/8631365.htm)
+- [不被定义的沈腾 无法归类的《龙餐馆》](http://www.movie.hkepx.cn/xiju/3338351.htm)
+- [河南暴雨](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.daogukj.com/vmuhfhdx/)
+- [怎么看 DeepSeek 注册 Harness 公众号并选用黑鲸鱼 logo ？](http://www.movie.hkepx.cn/xiju/7746644.htm)
+- [巴、沙、土三国共同防务协议只是代表了中东新局面吗？背后要注意什么 ？](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
+- [【咒术回战IF】高羽史彦:你觉得未来的英雄来救场会搞笑吗？](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
+- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.daogukj.com/4437175)
+- [《阿嬷》导演看《龙餐馆》哭了好多次](http://www.daogukj.com/lclnvtmc/)
+- [出现4个信号说明你可能不是普通头痛](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
+- [男子被炸街吵醒刺死骑行辅警](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
+- [母亲与怀孕妻子遇害 2岁女儿目睹全程](http://www.daogukj.com/0713363)
+- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.movie.hkepx.cn/xiju/6077524.htm)
+- [原来姚安娜是艺名](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/9378383)
+- [家里的旧光盘，为什么播不出来了？](http://www.movie.hkepx.cn/movie/3280477.htm)
+- [赵一鸣4块牛肉干64元复称仅17元](http://www.movie.hkepx.cn/movie/9632113.htm)
+- [多地试点：直升高中](http://www.daogukj.com/6919034)
+- [四个年轻人拍语文课本单条播放破亿](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
+- [小鹏G9L挑战水陆空720度七重安全测试](http://www.daogukj.com/ttcnrbsi/)
+- [「人民艺术家」郭兰英逝世，享年 97 岁，代表作有《我的祖国》《南泥湾》等，她的哪些作品令你印象深刻？](http://www.movie.hkepx.cn/movie/6836580.htm)
+- [二阳“微服私访”](http://www.daogukj.com/dfvjlhgg/)
+- [印度一保安强奸女生被捕后求原谅](http://www.movie.hkepx.cn/movie/8186104.htm)
+- [王宝强 Hello树先生](http://www.movie.hkepx.cn/movie/9874745.htm)
+- [茅台的红丝带原来是这样用的](http://www.daogukj.com/nkpmcahd/)
+- [国行苹果AI支持机型](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
+- [高价洞洞鞋为什么卖不动了](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
+- [男子被炸街吵醒刺死骑行辅警获死刑](http://www.movie.hkepx.cn/movie/4332345.htm)
+- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](http://www.movie.hkepx.cn/movie/8953215.htm)
+- [为什么国内大学都不愿意改善学生的住宿条件，比如四人间升级为双人间甚至单人间？](http://www.daogukj.com/hhucwvns/)
+- [穿了和搭了的区别](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
+- [「台风雨」抵达北京，局地有大暴雨，全市启动防汛二级应急响应，你那里情况如何？雨大吗？](http://www.daogukj.com/lpvatlfx/)
+- [体验“上新”点亮文旅消费新空间](http://www.daogukj.com/3115605)
+- [2026和平精英刺激之夜完整高清回放](http://www.movie.hkepx.cn/movie/1459959.htm)
+- [勇闯互联网](http://www.daogukj.com/6281492)
+- [媒体：哪吒票房换不来圈内人一次起立](http://www.movie.hkepx.cn/xiju/4232291.htm)
+- [C罗结婚5个孩子出席婚礼](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
+- [郭兰英1994年将演唱版权无偿捐国家](http://www.movie.hkepx.cn/movie/0376230.htm)
+- [如何看待京东上大规模出现「李鬼」笔记本电脑？](http://www.movie.hkepx.cn/xiju/2775998.htm)
+- [广东小孩哥自家阳台实现钓鱼自由](http://www.daogukj.com/8542217)
+- [为什么《哪吒之魔童闹海》获百花奖最佳影片无人站起，《惊蛰无声》获优秀影片，现场全体起立？](http://www.movie.hkepx.cn/xiju/2386261.htm)
+- [男子不堪炸街噪音刺死辅警被判死刑](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
+- [上海警方处置11起涉台风谣言](http://www.movie.hkepx.cn/movie/8948693.htm)
+- [陈俊生离婚后为什么对平儿不好](http://www.movie.hkepx.cn/movie/7516507.htm)
+- [易中天用AI解读庄子](http://www.daogukj.com/3234327)
+- [《影之刃零》正式开启预售，标准版268元，甄子丹出演核心角色，11分钟实机视频全程高能，如何评价？](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
 
 </details>
 
 ## 原始来源
 
-- [河南暴雨](https://webcast-open.douyin.com/open/media_live/238099515779)
+- [胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？](https://www.zhihu.com/question/2070467817976210988)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3b153e5dfa5e4335093e -->
+<!-- content-fingerprint: 90dee3b694582142355a -->
