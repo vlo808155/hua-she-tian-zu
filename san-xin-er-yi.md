@@ -2,11 +2,11 @@
 
 # 台风白海豚杀了个“回马枪”
 
-> 来源：今日头条热榜 · 排名：第 1 位 · 热度：12816385 · 更新：2026-08-15T04:52:05+08:00
+> 来源：今日头条热榜 · 排名：第 1 位 · 热度：13058041 · 更新：2026-08-15T05:23:38+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“台风白海豚杀了个“回马枪””位列第 1 位，公开热度指标为 12816385。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“台风白海豚杀了个“回马枪””位列第 1 位，公开热度指标为 13058041。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -21,78 +21,78 @@
 - [如何评价零宣发国产动画电影《牛来》上映，建模粗糙惊呆观众，9 天累计票房仅为 7169 元？](si-hai-wei-jia.md)
 - [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](wu-gu-feng-deng.md)
 - [河南一传染病医院被淹](liu-shen-wu-zhu.md)
-- [Wenbo受伤](qi-shang-ba-xia.md)
+- [台风白海豚](qi-shang-ba-xia.md)
 
 ## 站内推荐
 
 - [人工智能激活力 “新”意盎然促发展](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
 - [自动驾驶都用激光雷达等以后自动驾驶车多起来了，路上的激光雷达会不会相互干扰？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [2026 WTT瑞典大满贯，林诗栋2-3再次不敌艾利克斯·勒布伦，无缘8强，如何评价这场比赛？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [小伙为控体重改喝 「0糖」「无糖」饮料一年多，体重不降反增血脂也升高了，这是什么原因？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
 - [比格披萨创始人评论「看你照片破戒了」引发争议，后回应称开玩笑，作为品牌创始人他这一发言合适吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [《西游记》中让你印象最深刻的片段是什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [沈腾回应0影帝「重要也不重要」，是个演员都有奖项期待，未必能做到让观众和业内都喜欢，如何看待这一回应？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [台风白海豚](http://www.daogukj.com/dycpetil/)
+- [旺旺集团面临重大经营危机](http://www.daogukj.com/dycpetil/)
 - [美国政府设备重新允许使用TikTok，特朗普称其在TikTok上长期霸榜，靠它帮助赢下大选，如何解读？](http://www.movie.hkepx.cn/movie/5655338.htm)
 - [郭德纲西安演出取消](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
-- [12对双胞胎考上同一所大学](http://www.daogukj.com/3221972)
-- [国乒男女双全军覆没](http://www.movie.hkepx.cn/movie/8631365.htm)
+- [《我的前半生》 暑期唯一爆剧](http://www.daogukj.com/3221972)
+- [5年定期存款利率为何逆势上升](http://www.movie.hkepx.cn/movie/8631365.htm)
 - [长三角警惕极端暴雨](http://www.movie.hkepx.cn/xiju/3338351.htm)
 - [这些一次性塑料制品禁用](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
-- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.daogukj.com/vmuhfhdx/)
-- [台湾岛内出现有利于统一的三个变化](http://www.movie.hkepx.cn/xiju/7746644.htm)
-- [2026 WTT瑞典大满贯，林诗栋2-3再次不敌艾利克斯·勒布伦，无缘8强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
+- [用MC还原《神的随波逐流》 【B萌应援】](http://www.daogukj.com/vmuhfhdx/)
+- [乌军为何能4小时摧毁俄装甲集群](http://www.movie.hkepx.cn/xiju/7746644.htm)
+- [小伙为控体重改喝 「0糖」「无糖」饮料一年多，体重不降反增血脂也升高了，这是什么原因？](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
 - [如何看待周星驰经纪人内涵《欢迎来龙餐馆》偷票房《功夫女足》，《龙餐馆》回应系影院操作失误?](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
-- [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.daogukj.com/4437175)
-- [刘畊宏体能比拼输给了余文乐](http://www.daogukj.com/lclnvtmc/)
+- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.daogukj.com/4437175)
+- [朋友圈永远不会有二次编辑功能](http://www.daogukj.com/lclnvtmc/)
 - [王传君体脂率25.5%](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
 - [全民进入纯过日子时代](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
-- [报名费800元受伤率31.8% 图什么](http://www.daogukj.com/0713363)
+- [12对双胞胎考上同一所大学](http://www.daogukj.com/0713363)
 - [男子健身房指导女友被场馆教练认定为外来私教，要求看结婚证，否则就办理退卡，这合理吗？健身房有权核查吗？](http://www.movie.hkepx.cn/xiju/6077524.htm)
-- [曾辉扛住了内娱镜头](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
+- [中央汇金证金公司集体清仓贵州茅台](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
 - [如何评价零宣发国产动画电影《牛来》上映，建模粗糙惊呆观众，9 天累计票房仅为 7169 元？](http://www.daogukj.com/9378383)
-- [【我在现代当幽差】EP01 大哥，你阳寿未尽啊【UP动画】](http://www.movie.hkepx.cn/movie/3280477.htm)
-- [用MC还原《神的随波逐流》 【B萌应援】](http://www.movie.hkepx.cn/movie/9632113.htm)
+- [“ 奔 跑 吧 五 区 兄 弟 ”](http://www.movie.hkepx.cn/movie/3280477.htm)
+- [《下一个是谁》音乐特辑](http://www.movie.hkepx.cn/movie/9632113.htm)
 - [王传君19年前就参加过选秀](http://www.daogukj.com/6919034)
 - [81年前“日本投降矣！”](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
-- [明天起禁用这类塑料制品](http://www.daogukj.com/ttcnrbsi/)
+- [胖东来房东逻辑](http://www.daogukj.com/ttcnrbsi/)
 - [浙江省博一周内两次道歉](http://www.movie.hkepx.cn/movie/6836580.htm)
-- [我实现了我儿时的梦想](http://www.daogukj.com/dfvjlhgg/)
-- [《牛来》上映9天票房7169元](http://www.movie.hkepx.cn/movie/8186104.htm)
-- [一定要远离给你搅局的人](http://www.movie.hkepx.cn/movie/9874745.htm)
-- [牛来](http://www.daogukj.com/nkpmcahd/)
-- [中央汇金证金公司集体清仓贵州茅台](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
-- [文黛黛假死](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
+- [☝🤓没 错，B 站 六 年 前 都 是 这 种 视 频！⚡](http://www.daogukj.com/dfvjlhgg/)
+- [我们为什么要控制体重](http://www.movie.hkepx.cn/movie/8186104.htm)
+- [明天起禁用这类塑料制品](http://www.movie.hkepx.cn/movie/9874745.htm)
+- [喻言 压轴](http://www.daogukj.com/nkpmcahd/)
+- [一定要远离给你搅局的人](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
+- [税务部门回应社保实缴问题](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
 - [曾辉帮韩雨彤整理衣服](http://www.movie.hkepx.cn/movie/4332345.htm)
 - [人工智能激活力 “新”意盎然促发展](http://www.movie.hkepx.cn/movie/8953215.htm)
 - [江泽民诞辰100周年纪念币将发行](http://www.daogukj.com/hhucwvns/)
-- [命好的人本质是主体性强](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
+- [慢性压力导致幻想沉溺](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
 - [围棋与境界、修养之类的东西毫无关系，能赢是因为计算力强，这么明显的道理在AI以前人们怎么不懂？](http://www.daogukj.com/lpvatlfx/)
 - [中国汽车开放崛起之路](http://www.daogukj.com/3115605)
 - [如何看待呼兰用三个月让开花俱乐部扭亏为盈，月亏最高 12 万变盈利 7 万？](http://www.movie.hkepx.cn/movie/1459959.htm)
-- [琢磨个把月，用一张纸折出了奥黛塔](http://www.daogukj.com/6281492)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/6281492)
 - [洪水泡过的饮料擦干净就能喝不实](http://www.movie.hkepx.cn/xiju/4232291.htm)
 - [小沈阳刚开播就把腰闪了](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
-- [乌军为何能4小时摧毁俄装甲集群](http://www.movie.hkepx.cn/movie/0376230.htm)
-- [五粮液要求经销商不得低于 800 元卖酒，低价出货将遭处罚，这合法吗？控价政策会给经销商带来哪些影响？](http://www.movie.hkepx.cn/xiju/2775998.htm)
-- [张彬彬求跟孙楠住一屋](http://www.daogukj.com/8542217)
+- [沪上一小区饭店引发“四重扰民”](http://www.movie.hkepx.cn/movie/0376230.htm)
+- [《影之刃零》预售开启，162万愿望单的它能复刻《黑神话：悟空》的奇迹吗？](http://www.movie.hkepx.cn/xiju/2775998.htm)
+- [小伙坐5小时高铁下车突发深静脉血栓](http://www.daogukj.com/8542217)
 - [自动驾驶都用激光雷达等以后自动驾驶车多起来了，路上的激光雷达会不会相互干扰？](http://www.movie.hkepx.cn/xiju/2386261.htm)
 - [旺旺都不好卖了](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
 - [郭麒麟瘦到认不出](http://www.movie.hkepx.cn/movie/8948693.htm)
 - [河南一传染病医院被淹](http://www.movie.hkepx.cn/movie/7516507.htm)
-- [国防部：菲应尽快拖走非法坐滩军舰](http://www.daogukj.com/3234327)
-- [胖东来许昌 24 年老店将关闭，对周边商户和商圈发展有哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
+- [C罗婚后首露面一头金发](http://www.daogukj.com/3234327)
+- [五粮液要求经销商不得低于 800 元卖酒，低价出货将遭处罚，这合法吗？控价政策会给经销商带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
 
 </details>
 
 ## 原始来源
 
-- [台风白海豚杀了个“回马枪”](https://www.toutiao.com/trending/7673088324894015529/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227673088324894015529%22%2C%22hot_board_impr_id%22%3A%222026081504520407A9B610E89759398019%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [台风白海豚杀了个“回马枪”](https://www.toutiao.com/trending/7673088324894015529/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227673088324894015529%22%2C%22hot_board_impr_id%22%3A%2220260815052337F0C112C15D1095330D01%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 069c7bdfdb3e86133bca -->
+<!-- content-fingerprint: adfc658a55a17410a95b -->
