@@ -2,11 +2,11 @@
 
 # 今年外国人最爱逛哪里
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7619424 · 更新：2026-08-16T02:59:38+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7618615 · 更新：2026-08-16T03:29:50+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“今年外国人最爱逛哪里”位列第 2 位，公开热度指标为 7619424。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“今年外国人最爱逛哪里”位列第 2 位，公开热度指标为 7618615。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：今年夏天最火的旅游关键词是什么？答案一定是“China Travel”。埃隆・马斯克都忍不住在社交平台上“安利”中国游，国家移民管理局数据显示：今年上半年入境外国人达2291.4万人次，同比增长20.4%。他们最爱去哪些城市？这些城市藏着哪些让人走不动道的宝藏？一起来看看。
 
@@ -27,65 +27,65 @@
 
 - [纪念江泽民同志诞辰100周年大会](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
 - [诺兰又把全世界骗进电影院了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [张睿 中国内地郭富城](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [为什么上海人对《奥德赛》情有独钟](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [独闯南太行56岁男子遗体疑被找到](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [山东梁山把二手车卖到了110个国家](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [杜华好好谢谢齐思钧吧](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [Bin 回归](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [年轻人流行起夜间“拼蟹”](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [男童走失4天找回 父亲设宴200桌答谢](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
 - [这会不会有点太刺激了？！](http://www.daogukj.com/nksrlhgk/)
-- [张睿 中国内地郭富城](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [山东梁山把二手车卖到了110个国家](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
 - [旺旺为何卖不动了](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [关晓彤大长腿溢出屏幕](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [杜华好好谢谢齐思钧吧](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [小沈阳秒了](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [今年已有多人被蝉鸣“震聋”](http://www.movie.hkepx.cn/movie/4801109.htm)
 - [【我在现代当幽差】EP01 大哥，你阳寿未尽啊【UP动画】](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [卫龙还算辣条公司吗](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [关灯侧躺刷手机 毁眼睛](http://www.daogukj.com/7870973)
+- [一个49人的上市公司等待沈腾“救援”](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [夜晚白影“星链”般闪现 目击者发声](http://www.daogukj.com/7870973)
 - [广州 11 岁男孩暑假在景点为游客拍照，月收入一千多，直言「拍照比刷题好玩」，这种暑假实践适合孩子吗？](http://www.movie.hkepx.cn/movie/0510547.htm)
 - [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [太干净的饭总有一种没吃的错觉](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [男童走失4天找回 父亲设宴200桌答谢](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [河南周口117米溃口成功合龙](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [看似吃个大鸡排其实就吃了个鸡蛋](http://www.movie.hkepx.cn/xiju/4295526.htm)
 - [《欢迎来龙餐馆》票房破7亿](http://www.movie.hkepx.cn/movie/7065901.htm)
 - [旺旺被指最大竞争对手是糖，网友集体呼吁旺旺减糖，这样真能救旺旺吗？传统食品行业正面临哪些挑战？](http://www.daogukj.com/7724801)
-- [胖东来 刑释人员](http://www.daogukj.com/oxaknnjh/)
-- [准高三生看完《奥本海默》后深感自己平庸，该如何接受与顶尖天才的差距？](http://www.daogukj.com/kxqitgac/)
+- [曹骏中国人会飞具象化](http://www.daogukj.com/oxaknnjh/)
+- [被批“丧失操守” 诺兰发声](http://www.daogukj.com/kxqitgac/)
 - [以数智物流赋能特色产业发展](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [我们为什么总是容易相信谣言](http://www.daogukj.com/eymoxoal/)
-- [披荆斩棘初舞台排名](http://www.daogukj.com/sblnbief/)
+- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.daogukj.com/eymoxoal/)
+- [网传追觅大家电解散](http://www.daogukj.com/sblnbief/)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.movie.hkepx.cn/xiju/6564425.htm)
 - [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [《披荆斩棘》初舞台观众现场喊黑幕](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [山东梁山把二手车卖到了110个国家](http://www.daogukj.com/mqwqpttl/)
-- [女子花 8 万做地下试管被推进简易房手术，多部门已介入，暴露出哪些监管盲区？如何斩断这条灰色产业链？](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [王祖贤现身广州网易总部](http://www.daogukj.com/dubydsdf/)
+- [《牛来》看完了！暑期档最强！哈哈！](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [“龙餐馆”其实不在中东在山东](http://www.daogukj.com/mqwqpttl/)
+- [专访无偿捐赠日军侵华史料少年](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [王传君披哥宣传人脉](http://www.daogukj.com/dubydsdf/)
 - [我实现了我儿时的梦想](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
 - [28岁男子和43岁女子领证结婚](http://www.movie.hkepx.cn/movie/9543340.htm)
 - [DeepSeek-V4-Pro-0813已发布，体验下来怎么样？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [网传追觅大家电解散](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [生活中如何分辨善妒的人](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
 - [飞机安检模拟器](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
 - [王传君终于原谅爱情公寓了](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [《一饭封神 2》中谢霆锋直言「糖拌西红柿不能拿来比赛」，你认同吗？](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [独闯南太行56岁男子遗体疑被找到](http://www.daogukj.com/oioomhrz/)
-- [旺旺发文感谢网友支招](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [Jennie东京音乐节](http://www.daogukj.com/btwajvnj/)
+- [披荆斩棘初舞台排名](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [Bin 回归](http://www.daogukj.com/oioomhrz/)
+- [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [台风都走了 为何雨还下个不停](http://www.daogukj.com/btwajvnj/)
 - [如何看待 Dota2TI15，XG 0-2 不敌 TR 淘汰回家？如何评价 XG 战队及其本届表现?](http://www.daogukj.com/8398590)
-- [曾辉 唱出了飞轮海的感觉](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [我们为什么总是容易相信谣言](http://www.movie.hkepx.cn/movie/6246578.htm)
 - [为何说旺旺最大竞争对手是糖](http://www.daogukj.com/4390556)
-- [婴儿在姑姑家失踪 36年后找到家人](http://www.daogukj.com/skeidyel/)
+- [独闯南太行56岁男子遗体疑被找到](http://www.daogukj.com/skeidyel/)
 - [曾经爆火的洞洞鞋遇冷，Crocs 联合瑞幸推出近六百元洞洞鞋，二手平台半价出售，高价洞洞鞋卖不动了吗？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [张睿危险](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [看似吃个大鸡排其实就吃了个鸡蛋](http://www.daogukj.com/jdhlltmp/)
-- [苏州暴雨太湖水倒灌 小区车库被淹](http://www.daogukj.com/inrtjmju/)
-- [小沈阳秒了](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [《披荆斩棘》初舞台观众现场喊黑幕](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [新乡胖东来搬走前VS搬走后](http://www.daogukj.com/jdhlltmp/)
+- [杜华：王传君坏人不像演的](http://www.daogukj.com/inrtjmju/)
+- [苏州暴雨太湖水倒灌 小区车库被淹](http://www.movie.hkepx.cn/movie/4017423.htm)
 - [河南贾鲁河堤防117米溃口成功合龙](http://www.daogukj.com/9107163)
-- [难倒100万人的铁球难题，我终于！解！开！了！](http://www.daogukj.com/ypwsrnna/)
+- [如果条件允许的话，完全以矿泉水或纯净水作为日常饮用水好不好？](http://www.daogukj.com/ypwsrnna/)
 - [国家叫停「速成车」，新国标落地将如何影响消费者购车？](http://www.daogukj.com/7314066)
-- [SK 集团崔泰源警告 2027 年大概率会是存储芯片供应缺口最大的一年，内存、硬盘还要持续涨价吗？](http://www.daogukj.com/3027269)
-- [台风都走了 为何雨还下个不停](http://www.daogukj.com/5993003)
+- [王祖贤现身广州网易总部](http://www.daogukj.com/3027269)
+- [选一颗星球，决定你接下来的旅途](http://www.daogukj.com/5993003)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 242beb5bce49cab98465 -->
+<!-- content-fingerprint: 3e34740614c57486b4a7 -->
