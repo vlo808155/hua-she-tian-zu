@@ -2,11 +2,11 @@
 
 # 热播剧《来自河南的你 》
 
-> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：2163207 · 分类：足球 · 更新：2026-08-17T02:58:19+08:00
+> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：2179598 · 分类：足球 · 更新：2026-08-17T03:28:11+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“热播剧《来自河南的你 》”位列第 2 位，公开热度指标为 2163207，榜单分类为“足球”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“热播剧《来自河南的你 》”位列第 2 位，公开热度指标为 2179598，榜单分类为“足球”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：-
 
@@ -28,8 +28,8 @@
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
 - [飞机安检模拟器](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
 - [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [男子与老婆吵架跳江第二天又游回来](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [AI正在批量制造“幽灵”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [加油新规11月起正式实施](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [礼物要送有溢价的东西](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
@@ -51,18 +51,18 @@
 - [为中国航天点赞](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
 - [朱镕基同志遗体18日火化 天安门等地将下半旗志哀](http://www.movie.hkepx.cn/xiju/8343373.htm)
 - [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
-- [王橹杰 上春山](http://www.daogukj.com/8483541)
+- [狼队战胜AG](http://www.daogukj.com/8483541)
 - [披荆斩棘排名](http://www.daogukj.com/qxxcgldr/)
 - [《披哥》初舞台排名](http://www.daogukj.com/9209363)
-- [恋与深空](http://www.movie.hkepx.cn/xiju/3158244.htm)
-- [男子与老婆吵架跳江第二天又游回来](http://www.daogukj.com/cyhwfhva/)
-- [县委大院69间土坯房用了69年](http://www.daogukj.com/tfhkqorv/)
+- [云旗](http://www.movie.hkepx.cn/xiju/3158244.htm)
+- [加油新规11月起正式实施](http://www.daogukj.com/cyhwfhva/)
+- [日军在南京每晚至少发生一千起强奸案](http://www.daogukj.com/tfhkqorv/)
 - [胖东来将闭门店现大排长龙，附近商贩说要跟着搬迁，为啥这么多年过去了胖东来的客户粘性还这么强？](http://www.movie.hkepx.cn/xiju/7580051.htm)
-- [日军在南京每晚至少发生一千起强奸案](http://www.daogukj.com/knzztlfc/)
+- [如何看待美军舰因故障在南海滞留4天](http://www.daogukj.com/knzztlfc/)
 - [财神窦占龙 第1集 家宴【8月国创】](http://www.movie.hkepx.cn/movie/0847264.htm)
 - [6岁小巴哥当选世界最丑狗狗](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
-- [C罗乔治娜婚礼合照](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
-- [为什么诺兰非要选《奥德赛》？这个故事和现代人有什么关系？](http://www.movie.hkepx.cn/movie/1751427.htm)
+- [盗墓笔记](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
+- [为什么国内无法观看IMAX 70mm 胶片版《奥德赛》？](http://www.movie.hkepx.cn/movie/1751427.htm)
 - [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
 - [劣迹艺人那艺娜活动被当场叫停](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
 - [王艺迪4-2复仇张本美和](http://www.movie.hkepx.cn/movie/1023624.htm)
@@ -72,20 +72,20 @@
 - [乌克兰出现由日本人组成的战斗分队，与俄军作战，会对局势有哪些影响？日本未来会大规模介入俄乌冲突吗？](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
 - [一组数据看中国经济的澎湃动能](http://www.daogukj.com/1461847)
 - [轮 回 跑 酷](http://www.movie.hkepx.cn/xiju/0818230.htm)
-- [为什么越南和印度也开始发钱「催生」了？此举能有效解决人口问题带来的挑战吗？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
+- [同样是独栋，为什么北美的独栋都有完备的设施，但国内农村做不到？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
 - [挣得太多了？海力士掌门叹气：确实](http://www.daogukj.com/xoshfaqj/)
 - [【2026LPL第三赛段】8月16日 WBG vs IG](http://www.movie.hkepx.cn/xiju/4934568.htm)
 - [三星堆：是谁杀死了他们的神？](http://www.daogukj.com/wiudnclj/)
-- [如何看待美军舰因故障在南海滞留4天](http://www.movie.hkepx.cn/movie/0173822.htm)
+- [央视曝光近150人组团夜爬封禁山峰](http://www.movie.hkepx.cn/movie/0173822.htm)
 - [两人为博眼球发布不实信息被处罚](http://www.daogukj.com/4402502)
 - [伊朗称逮捕或消灭美军者将获奖励](http://www.movie.hkepx.cn/xiju/3001134.htm)
-- [礼物要送有溢价的东西](http://www.daogukj.com/wkrcfluq/)
-- [邵永灵：汉奸石平连站直都不敢](http://www.movie.hkepx.cn/movie/6354712.htm)
+- [梭子蟹大量上市 中医提醒](http://www.daogukj.com/wkrcfluq/)
+- [县委大院69间土坯房用了69年](http://www.movie.hkepx.cn/movie/6354712.htm)
 - [ASMR 当憋了半个月没洗头的你去做头疗（绝望的“单王”）](http://www.movie.hkepx.cn/xiju/8131821.htm)
 - [枪杀联合健康保险 CEO 的路易吉正式认罪，12 月将迎来量刑，或面临终身监禁，哪些信息值得关注？](http://www.daogukj.com/4751279)
-- [同样是独栋，为什么北美的独栋都有完备的设施，但国内农村做不到？](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
-- [狼队战胜AG](http://www.daogukj.com/6772234)
-- [离世39岁儿科医生最后一条朋友圈](http://www.movie.hkepx.cn/movie/1847830.htm)
+- [为什么越南和印度也开始发钱「催生」了？此举能有效解决人口问题带来的挑战吗？](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
+- [王橹杰 上春山](http://www.daogukj.com/6772234)
+- [恋与深空](http://www.movie.hkepx.cn/movie/1847830.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5b08ccd6be0fef30d905 -->
+<!-- content-fingerprint: c1bf66181dcfd2ab7c12 -->
