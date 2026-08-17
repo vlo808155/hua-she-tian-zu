@@ -2,11 +2,11 @@
 
 # BBA集体大降价：宝马5系跌至28万
 
-> 来源：今日头条热榜 · 排名：第 2 位 · 热度：9982068 · 更新：2026-08-18T06:02:22+08:00
+> 来源：今日头条热榜 · 排名：第 2 位 · 热度：10216206 · 更新：2026-08-18T06:36:41+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“BBA集体大降价：宝马5系跌至28万”位列第 2 位，公开热度指标为 9982068。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“BBA集体大降价：宝马5系跌至28万”位列第 2 位，公开热度指标为 10216206。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -28,71 +28,71 @@
 - [女患者报警称“被男医生猥亵揉胸”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
 - [为什么我国人民接触不到俄罗斯的汽车？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
 - [如何看待追觅卖出首台 AURORA 手机，售价超 20 万元？靠高奢定制切入手机赛道可行吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [龙 餐 馆 连 线 勇 哥](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [宋清辉多次诋毁胖东来被判赔30万](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [飞机安检模拟器](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [口技表演《定海神珍铁》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [杭州涉事招商蛇口高管已被免职](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
+- [急性子小姐和慢吞吞先生](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
 - [这些关于网络暴力的谣言勿轻信](http://www.daogukj.com/ugtzcfro/)
 - [公积金用途又变多](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
-- [房企高管涉嫌酒局上伤害女性被免职](http://www.daogukj.com/vcakiegu/)
+- [三角洲s11前瞻爆料](http://www.daogukj.com/vcakiegu/)
 - [胖东来被涨租逼走，为啥它不直接涨入驻商户的租金来平摊？这一权衡背后有啥考量吗？](http://www.movie.hkepx.cn/xiju/3609316.htm)
 - [为什么现在小区车位，越来越卖不动了？](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
 - [女患者报警称“被男医生猥亵揉胸”](http://www.daogukj.com/0764598)
-- [央企高管涉嫌酒局上伤害女性被免职](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
+- [李娟提醒年轻人不要轻易把写作当职业](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
 - [78岁老人养了头38岁的驴](http://www.daogukj.com/4164218)
-- [住了30年的家26年前竟被别人买了](http://www.daogukj.com/8982602)
-- [左奇函 身体状况](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
+- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.daogukj.com/8982602)
+- [杭州涉事招商蛇口高管已被免职](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
 - [如何看待 2026 年 8 月 17 日 A 股市场行情？逾 4300 只股上涨，发生了什么？](http://www.movie.hkepx.cn/xiju/4720013.htm)
 - [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.daogukj.com/zaulbsuv/)
-- [中国男篮又输了 对手仅集训5天](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
-- [高铁咸猪手男子被拘留](http://www.daogukj.com/gbkfzcnu/)
-- [特朗普将宣布霍尔木兹为美国领土](http://www.movie.hkepx.cn/movie/7973247.htm)
+- [特效小哥大战逗比的雀巢！](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
+- [左奇函 身体状况](http://www.daogukj.com/gbkfzcnu/)
+- [高铁咸猪手男子被拘留](http://www.movie.hkepx.cn/movie/7973247.htm)
 - [多方回应女子杭州酒局遭伤害](http://www.daogukj.com/bdilzxjd/)
 - [“极少数巨婴碰瓷了大量公共资源”](http://www.movie.hkepx.cn/xiju/6416942.htm)
-- [学霸父母劝700分女儿读中职或更合适](http://www.daogukj.com/rioupnlf/)
+- [脑梗连续三年成全国住院“头号病种”](http://www.daogukj.com/rioupnlf/)
 - [为什么我国人民接触不到俄罗斯的汽车？](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
 - [谁贡献了俄罗斯上半年734亿美元顺差](http://www.daogukj.com/4038825)
-- [夫妻听劝砌一堵墙救了自己命](http://www.movie.hkepx.cn/xiju/1465121.htm)
-- [急性子小姐和慢吞吞先生](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
-- [胖东来员工回应工资及闭店后安置](http://www.movie.hkepx.cn/movie/3433204.htm)
-- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
+- [五角大楼为何建议避免与中国航母对决](http://www.movie.hkepx.cn/xiju/1465121.htm)
+- [成功要对自己狠到什么程度](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
+- [陈伟霆为九门十年不接军装戏](http://www.movie.hkepx.cn/movie/3433204.htm)
+- [危！秘境最终奖励竟然亮起了血条？！【小明修仙传EP9】【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
 - [如何看待追觅卖出首台 AURORA 手机，售价超 20 万元？靠高奢定制切入手机赛道可行吗？](http://www.movie.hkepx.cn/movie/2806122.htm)
 - [大家为啥不借钱了](http://www.movie.hkepx.cn/xiju/8259656.htm)
-- [3孩非亲生案女方当庭承认出轨](http://www.daogukj.com/1174569)
+- [女患者称被男医生猥亵揉胸已立案](http://www.daogukj.com/1174569)
 - [石油天然气发展“十五五”规划印发](http://www.movie.hkepx.cn/movie/6697492.htm)
 - [爸爸内急让娃代钓 结果钓上9斤大鱼](http://www.movie.hkepx.cn/xiju/5943289.htm)
-- [这个旅游包活吗？？？【听天由命1】](http://www.movie.hkepx.cn/movie/8569024.htm)
-- [德国男子家中厕所过于豪华被强拆](http://www.daogukj.com/pftujnfw/)
-- [广东省原省长朱森林遗体在广州火化](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
-- [脑梗连续三年成全国住院“头号病种”](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
+- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/8569024.htm)
+- [全球最大全电动飞机完成首飞](http://www.daogukj.com/pftujnfw/)
+- [夫妻听劝砌一堵墙救了自己命](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
+- [德国男子家中厕所过于豪华被强拆](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
 - [中方回应100余名中国公民在巴被拘留](http://www.movie.hkepx.cn/movie/7912436.htm)
-- [00后回老家种大棚年收入约20万](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
-- [危！秘境最终奖励竟然亮起了血条？！【小明修仙传EP9】【AI全民制作人】](http://www.daogukj.com/acaxfgrw/)
+- [网友晒出清华大学宿舍环境](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
+- [小说《金瓶梅》中，为什么武大郎对张大户忍气吞声，却对西门庆感到愤怒？](http://www.daogukj.com/acaxfgrw/)
 - [我们不欢迎这样的客人，也不赚这种米](http://www.movie.hkepx.cn/xiju/9771788.htm)
 - [【独家】《记忆管理局》第5集 主角光环【8月国创】](http://www.daogukj.com/8766336)
-- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.movie.hkepx.cn/movie/9431364.htm)
-- [湖北一洗衣店老板被执行死刑](http://www.movie.hkepx.cn/xiju/8826039.htm)
+- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.movie.hkepx.cn/movie/9431364.htm)
+- [张艺谋电影 肖战](http://www.movie.hkepx.cn/xiju/8826039.htm)
 - [桃黑黑](http://www.daogukj.com/8892908)
-- [提到童年，你会想起哪种花？](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
-- [小说《金瓶梅》中，为什么武大郎对张大户忍气吞声，却对西门庆感到愤怒？](http://www.movie.hkepx.cn/movie/0328456.htm)
+- [超20万加拿大人请愿驱逐美国大使](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
+- [俄称提出召见日本大使遭日使馆拒绝](http://www.movie.hkepx.cn/movie/0328456.htm)
 - [蓝盈莹承认新恋情](http://www.daogukj.com/8247088)
 - [周处除三害现实版，我们干掉他了！](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
 - [“青岛大学新校徽像旭日旗”系造谣](http://www.daogukj.com/8583894)
-- [5岁女童在家中不慎吞下50g金条](http://www.daogukj.com/5838795)
-- [美军中央司令部司令登上林肯号航母](http://www.daogukj.com/mrhwajew/)
+- [中国男篮又输了 对手仅集训5天](http://www.daogukj.com/5838795)
+- [胖东来员工回应工资及闭店后安置](http://www.daogukj.com/mrhwajew/)
 - [美伊战争第6个月，为什么航母的水兵先撑不住了？](http://www.movie.hkepx.cn/movie/8871014.htm)
 
 </details>
 
 ## 原始来源
 
-- [BBA集体大降价：宝马5系跌至28万](https://www.toutiao.com/trending/7674820864836239396/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227674820864836239396%22%2C%22hot_board_impr_id%22%3A%222026081806022043EAE71E040619EEC720%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [BBA集体大降价：宝马5系跌至28万](https://www.toutiao.com/trending/7674820864836239396/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227674820864836239396%22%2C%22hot_board_impr_id%22%3A%22202608180636391D2E60A19828D15D2AE2%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 27a15416aa84fd92e636 -->
+<!-- content-fingerprint: 7ab699e1198eee69a5c9 -->

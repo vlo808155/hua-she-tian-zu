@@ -2,7 +2,7 @@
 
 # 比亚迪国内销量骤降 35.6%，吉利重启销冠之争，如何看待新能源汽车市场竞争格局？
 
-> 来源：知乎热榜 · 排名：第 4 位 · 热度：95 万热度 · 分类：问答 · 更新：2026-08-18T06:02:22+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：95 万热度 · 分类：问答 · 更新：2026-08-18T06:36:41+08:00
 
 ## 热点正文
 
@@ -26,66 +26,66 @@
 ## 站内推荐
 
 - [有研究表示伟哥成分「西地那非」或能抑制癌细胞转移扩散，距离真正用于临床癌症治疗还差什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [奥特曼中 出了一个怪兽的卧底【AI全民制作人】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [全球最大全电动飞机完成首飞](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [陈伟霆为九门十年不接军装戏](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [极品金灵根各峰主都想收我为徒#meme剧场](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [什么⁉Bye bye baby blue翻译竟然是错的✖！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [75岁王石又创业了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [5岁女童在家中不慎吞下50g金条](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [公积金用途又变多了](http://www.movie.hkepx.cn/movie/4471620.htm)
+- [房企高管涉嫌酒局上伤害女性被免职](http://www.movie.hkepx.cn/movie/4471620.htm)
 - [中方回应上百中国公民在巴基斯坦被拘](http://www.daogukj.com/xebdfgux/)
 - [中方回应100余名中国公民在巴被拘留](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.movie.hkepx.cn/xiju/5621807.htm)
 - [新规明确厨余垃圾不能直接喂猪，背后出于什么考量？会带来哪些影响？](http://www.daogukj.com/dzktieeu/)
-- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
+- [《鸣潮》共鸣者战斗演示 | 清宵](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
 - [伊朗称美国被驱逐已成事实，今后不得进入波斯湾、阿曼湾和霍尔木兹海峡，如何看待这一表态？](http://www.movie.hkepx.cn/movie/4977487.htm)
-- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.movie.hkepx.cn/xiju/7776753.htm)
+- [李宗盛为什么口碑变差了?](http://www.movie.hkepx.cn/xiju/7776753.htm)
 - [忍术回战 26分钟沉浸式观看](http://www.daogukj.com/0771353)
-- [小说《金瓶梅》中，为什么武大郎对张大户忍气吞声，却对西门庆感到愤怒？](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
+- [俄称提出召见日本大使遭日使馆拒绝](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
 - [车越来越多 考驾照的人反而少了](http://www.movie.hkepx.cn/xiju/1266622.htm)
 - [【独家】《记忆管理局》第5集 主角光环【8月国创】](http://www.daogukj.com/bnubczgn/)
 - [谁贡献了俄罗斯上半年734亿美元顺差](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
 - [DeepSeek Harness 一下子涌现出那么多插件，有没有大佬给一下推荐？](http://www.movie.hkepx.cn/xiju/3833912.htm)
-- [湖北一洗衣店老板被执行死刑](http://www.daogukj.com/qygzdgwj/)
+- [张艺谋电影 肖战](http://www.daogukj.com/qygzdgwj/)
 - [全国铁路完成固定资产投资4406亿元](http://www.movie.hkepx.cn/movie/3609280.htm)
-- [榴莲价格彻底崩了](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
+- [曹骏初舞台人气票数倒挂](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
 - [“所长 有人送来个大冰箱”](http://www.daogukj.com/dxagawao/)
-- [广东省原省长朱森林遗体在广州火化](http://www.daogukj.com/qdpevqqj/)
-- [成功要对自己狠到什么程度](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
+- [夫妻听劝砌一堵墙救了自己命](http://www.daogukj.com/qdpevqqj/)
+- [特朗普将宣布霍尔木兹为美国领土](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
 - [AI泡沫会在今年或者明年破裂吗，为什么？](http://www.daogukj.com/tpbetyah/)
 - [有研究表示伟哥成分「西地那非」或能抑制癌细胞转移扩散，距离真正用于临床癌症治疗还差什么？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
-- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.movie.hkepx.cn/xiju/3442051.htm)
+- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.movie.hkepx.cn/xiju/3442051.htm)
 - [大家为啥不借钱了](http://www.movie.hkepx.cn/xiju/4635137.htm)
-- [高铁咸猪手男子被拘留](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
-- [奥特曼中 出了一个怪兽的卧底【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
-- [中国男篮又输了 对手仅集训5天](http://www.daogukj.com/eqtbqajy/)
+- [左奇函 身体状况](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
+- [极品金灵根各峰主都想收我为徒#meme剧场](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
+- [特效小哥大战逗比的雀巢！](http://www.daogukj.com/eqtbqajy/)
 - [如何看待追觅卖出首台 AURORA 手机，售价超 20 万元？靠高奢定制切入手机赛道可行吗？](http://www.movie.hkepx.cn/movie/5314158.htm)
-- [房企高管涉嫌酒局上伤害女性被免职](http://www.movie.hkepx.cn/movie/1796986.htm)
-- [龙餐馆 删减](http://www.daogukj.com/yldwicuv/)
-- [特朗普将宣布霍尔木兹为美国领土](http://www.movie.hkepx.cn/xiju/1923731.htm)
+- [三角洲s11前瞻爆料](http://www.movie.hkepx.cn/movie/1796986.htm)
+- [3孩非亲生案女方当庭承认出轨](http://www.daogukj.com/yldwicuv/)
+- [高铁咸猪手男子被拘留](http://www.movie.hkepx.cn/xiju/1923731.htm)
 - [公积金用途又变多](http://www.movie.hkepx.cn/xiju/5823393.htm)
 - [泡面 突然又行了](http://www.daogukj.com/2626307)
-- [急性子小姐和慢吞吞先生](http://www.movie.hkepx.cn/xiju/9508117.htm)
+- [成功要对自己狠到什么程度](http://www.movie.hkepx.cn/xiju/9508117.htm)
 - [为什么才短短两三年，AI就已经泛滥成灾，到了人人喊打、人嫌狗厌的境地？](http://www.movie.hkepx.cn/xiju/9262898.htm)
-- [住了30年的家26年前竟被别人买了](http://www.daogukj.com/tqdltahc/)
-- [德国男子家中厕所过于豪华被强拆](http://www.movie.hkepx.cn/xiju/9646924.htm)
+- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.daogukj.com/tqdltahc/)
+- [全球最大全电动飞机完成首飞](http://www.movie.hkepx.cn/xiju/9646924.htm)
 - [女患者报警称“被男医生猥亵揉胸”](http://www.daogukj.com/1624901)
 - [蓝盈莹承认新恋情](http://www.movie.hkepx.cn/movie/6632805.htm)
-- [夫妻听劝砌一堵墙救了自己命](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
+- [五角大楼为何建议避免与中国航母对决](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
 - [“极少数巨婴碰瓷了大量公共资源”](http://www.daogukj.com/5122805)
-- [脑梗连续三年成全国住院“头号病种”](http://www.movie.hkepx.cn/movie/7942093.htm)
+- [德国男子家中厕所过于豪华被强拆](http://www.movie.hkepx.cn/movie/7942093.htm)
 - [如何评价刚刚开源的Qwen3.8-27B？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
 - [周处除三害现实版，我们干掉他了！](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
 - [78岁老人养了头38岁的驴](http://www.daogukj.com/hdlfcclx/)
-- [哥哥们小心翼翼护着妹妹不让雨淋到](http://www.daogukj.com/1703206)
+- [建议大家开车一定要专心](http://www.daogukj.com/1703206)
 - [这些关于网络暴力的谣言勿轻信](http://www.daogukj.com/1803044)
-- [这个旅游包活吗？？？【听天由命1】](http://www.daogukj.com/3520679)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/xiju/3318389.htm)
-- [美军中央司令部司令登上林肯号航母](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
+- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/3520679)
+- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.movie.hkepx.cn/xiju/3318389.htm)
+- [胖东来员工回应工资及闭店后安置](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cc81652af1bc77b85ef9 -->
+<!-- content-fingerprint: 37ed2d3c70afe3378e68 -->
