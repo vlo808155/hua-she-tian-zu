@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 央视曝光后 云南连夜通报
+# 胖东来被涨租逼走却从不涨商户租
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7807849 · 更新：2026-08-17T10:55:05+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7809033 · 更新：2026-08-17T11:57:20+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“央视曝光后 云南连夜通报”位列第 1 位，公开热度指标为 7807849。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“胖东来被涨租逼走却从不涨商户租”位列第 1 位，公开热度指标为 7809033。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月16日晚，央视曝光暑期游乱象。其中，云南昆明、西双版纳等地一些旅游行程丰富、标注纯玩无购物、无自费的跟团游产品，频频出现消费纠纷。旅游实际行程与商家宣传严重不符，隐性购物、强制消费、临时加价等问题时有发生。当晚，云南官方通报称已组织有关州市对涉事的旅行社、导游、购物场所开展调查。
+来源公开摘要显示：8月7日，胖东来创始人于东来在一场直播中对外宣布，已经运营24年的许昌胖东来生活广场，租约到期后将于2026年12月底永久闭店，不再续租。此后，闭店事件持续引发关注。8月16日，广场内厂商代表告诉记者，胖东来从未涨过入驻商户的房租。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [纪念江泽民同志诞辰100周年大会](yi-xin-yi-yi.md)
-- [央视曝光999元低价游后云南连夜彻查](san-xin-er-yi.md)
-- [如何评价 DeepSeek 涨价后，OpenCode Go 套餐的 Flash 模型调用量削减94%？](si-hai-wei-jia.md)
+- [兰州拉面集体更名的背后](yi-xin-yi-yi.md)
+- [央视曝光低价宰客团云南连夜彻查](san-xin-er-yi.md)
+- [摩根大通警告明年或爆发全球粮食危机，食品通胀率将从2.8%升至5%，粮价会大涨吗？会对国内有影响吗？](si-hai-wei-jia.md)
 - [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
 - [老外被中式美学硬控的N个瞬间](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [有人要求政府联系某明星给自己过生日](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [灵活就业人数越来越多怎么破解](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [小沈阳口碑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [离家20多年母亲现身分儿子死亡赔偿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [夫妻俩砌了一堵墙 结果救了自己命](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [A股](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [王一博造型郭琪](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [电影数到三定档](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [央视曝光999元低价游后云南连夜彻查](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [口技表演《定海神珍铁》](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [娜扎刚起床的素颜](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [2026 WTT瑞典大满贯赛女单决赛，王曼昱 4-2 战胜王艺迪夺得女单冠军，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [茅台的价值正在被重新定义](http://www.daogukj.com/ihcjjgzd/)
-- [巴西一杀手指着男子头扣扳机结果卡壳](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [三支 CN 战队小组赛出局创历史最差成绩，买了 TI15 门票的朋友们现在是什么感受？](http://www.daogukj.com/hytgpxub/)
-- [饭店消防控制室人员脱岗喝酒](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [央视曝光低价宰客团云南连夜彻查](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [樊振东又去现场看皇马了](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [吴艳妮以 13 秒 12 夺得全锦赛女子 100 米栏冠军，成就三连冠和六冠王，如何评价她的表现？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [这个钥匙扣 价值105万](http://www.daogukj.com/ihcjjgzd/)
+- [赛博神话之大圣归来04:什么？听说大圣又来打闹天空了。](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [为什么才短短两三年，AI就已经泛滥成灾，到了人人喊打、人嫌狗厌的境地？](http://www.daogukj.com/hytgpxub/)
+- [海湾国家讨论保留美军设施还有意义吗](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
 - [第12期：收官之夜！无双唱将集结合唱《小美满》【国乐无双】](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [枪杀联合健康保险 CEO 的路易吉正式认罪，12 月将迎来量刑，或面临终身监禁，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [官方通报传销头目出狱办书院，涉事书院被关停、3人被刑拘，还有其他违法犯罪线索被发现，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/6451502.htm)
 - [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.daogukj.com/8357764)
+- [《干噎砒霜》](http://www.daogukj.com/8357764)
 - [暴雨天留心4个风险点](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [3孩非亲生男方开庭提出四项诉求](http://www.daogukj.com/rdfrumhx/)
-- [100%烤岩机，每个小鸡长大都能稳定烤岩成功](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [“马云给你5亿元花呗额度”和“马化腾给你1亿q币”，只能要一个，你要哪个？](http://www.daogukj.com/lntrsvpz/)
-- [曝虞书欣补偿一念江南换角亏损](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [唐九洲凭高考647分加入乐华](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [胖东来将闭门老店28个收银口排长龙](http://www.daogukj.com/mofrooiq/)
-- [人生不只有考公考研两条路](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [内马尔握手遭无视](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [胖东来被涨租逼走却从不涨商户租](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [四个儿子争着养95岁老母亲](http://www.daogukj.com/8424365)
-- [如何评价 DeepSeek 涨价后，OpenCode Go 套餐的 Flash 模型调用量削减94%？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [2026 WTT瑞典大满贯，菲利克斯·勒布伦 4-1 击败张本智和，获得男单冠军，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [我们的秘密……（1）](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [我把全网热梗做成了捏捏乐【B站AI创造公开赛】](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [档案袋被外婆拆了好崩溃](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [哥哥送给我的兔子玩偶，为什么一直盯着我看...？](http://www.daogukj.com/4727274)
-- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [建议这类手机壳赶紧扔掉](http://www.daogukj.com/2266153)
-- [央视曝光999元六天五晚云南低价游](http://www.daogukj.com/3795795)
-- [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [男子执意醉驾身亡 好友拦不住被判赔](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [电动自行车蓄电池爆炸有哪些预兆](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [猫能知道人为什么打“它”吗？](http://www.daogukj.com/uhjkuxrm/)
+- [王俊凯妈妈好年轻](http://www.daogukj.com/rdfrumhx/)
+- [辣条业务已不足卫龙总营收三分之一，卫龙的辣条卖不动了吗？蔬菜制品收入大涨，反映了品牌哪些趋势？](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [半导体靶材怎么突然成了印钞机](http://www.daogukj.com/lntrsvpz/)
+- [OpenAI 人事地震](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [iPhone17或全球涨价](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [特朗普已指示“大幅缩减”美韩军演](http://www.daogukj.com/mofrooiq/)
+- [建议这类手机壳赶紧扔掉](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [“台风过后推开门 我差点哭出来”](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [四胎能休产假吗？回应来了](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [8月28日24时油价调整](http://www.daogukj.com/8424365)
+- [摩根大通警告明年或爆发全球粮食危机，食品通胀率将从2.8%升至5%，粮价会大涨吗？会对国内有影响吗？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [网文作者文黛黛假死 3 年承认骗局，读者斥责其消费感情，从法律上看，这种行为是否构成欺诈？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [三星堆：是谁杀死了他们的神？](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [人生不只有考公考研两条路](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [多地严查社保缴纳，要求提高夯实率，有职员反映工资被下调，该如何理解？](http://www.daogukj.com/4727274)
+- [“马云给你5亿元花呗额度”和“马化腾给你1亿q币”，只能要一个，你要哪个？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [美伊冲突](http://www.daogukj.com/2266153)
+- [科创50指数半日涨超3%](http://www.daogukj.com/3795795)
+- [飞机安检模拟器](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [口技表演《定海神珍铁》](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [从胖东来撤场看生态圈经济](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [神之瞳在这么显眼的地方，旅行者拿走了，当地人就没什么反应吗？](http://www.daogukj.com/uhjkuxrm/)
 - [南京培训机构失火致伤亡系谣言](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [菲方再提“重置”中菲关系有何目的](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [离家20多年母亲现身分儿子死亡赔偿](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [不靠海的河南为何总被台风“点名”](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [热播剧《来自河南的你 》](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
-- [飞机安检模拟器](http://www.daogukj.com/5905118)
-- [电影《欢迎来龙餐馆》中有哪些剧情和设计戳到你？](http://www.daogukj.com/gchjscql/)
+- [河南文旅的口碑都在留言区](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [电影数到三定档](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [胖东来从未涨过入驻商户房租](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [【独家】《记忆管理局》第5集 主角光环【8月国创】](http://www.daogukj.com/5905118)
+- [猫能知道人为什么打“它”吗？](http://www.daogukj.com/gchjscql/)
 - [“双抢”三变筑粮安](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [国乒2冠1亚 男队状态低迷](http://www.daogukj.com/9269800)
-- [披荆斩棘一公组队](http://www.daogukj.com/7091853)
-- [中企12亿收购阿根廷矿产项目遇波折](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [问界儿童车即将上市](http://www.daogukj.com/2402025)
-- [罕见爆仓！华尔街巨头巨亏1000亿](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [欢天喜地七仙女凡间造型](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [央视曝光后 云南连夜通报](http://www.daogukj.com/9269800)
+- [小沈阳一公组队](http://www.daogukj.com/7091853)
+- [王楚钦三线作战](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [方程豹钛7 DM长续航版8月18日上市](http://www.daogukj.com/2402025)
+- [《龙餐馆》原型称当时做饭很难吃](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [纪念江泽民同志诞辰100周年大会](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [央视曝光后 云南连夜通报](https://www.baidu.com/s?wd=%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E5%90%8E+%E4%BA%91%E5%8D%97%E8%BF%9E%E5%A4%9C%E9%80%9A%E6%8A%A5&sa=fyb_news&rsv_dl=fyb_news)
+- [胖东来被涨租逼走却从不涨商户租](https://www.baidu.com/s?wd=%E8%83%96%E4%B8%9C%E6%9D%A5%E8%A2%AB%E6%B6%A8%E7%A7%9F%E9%80%BC%E8%B5%B0%E5%8D%B4%E4%BB%8E%E4%B8%8D%E6%B6%A8%E5%95%86%E6%88%B7%E7%A7%9F&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 23ff8f7df41c67d50236 -->
+<!-- content-fingerprint: dd1bdef20895c236007a -->
