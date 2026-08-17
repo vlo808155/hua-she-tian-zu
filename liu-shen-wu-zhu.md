@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 博尔特不再是世界第一了
+# 9块9包邮的手机壳还敢买吗
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7712495 · 更新：2026-08-17T20:19:30+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7713965 · 更新：2026-08-17T21:14:21+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“博尔特不再是世界第一了”位列第 1 位，公开热度指标为 7712495。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“9块9包邮的手机壳还敢买吗”位列第 1 位，公开热度指标为 7713965。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月17日，宇树科技发布全新机器人，其极限速度达12.66m/s，原地跳高2米，两项指标均刷新人类最高纪录。博尔特保持的百米9秒58（平均速度12.42m/s）世界纪录也被打破。
+来源公开摘要显示：9块9包邮的手机壳还敢买吗？央视调查发现，部分廉价软质手机壳疑似掺入废弃输液管、注射器等医疗废物，部分样品存在铅、苯等有害物质超标问题，低价手机壳质量风险引发关注。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [花开锦绣](qi-shang-ba-xia.md)
-- [夫妻听劝砌一堵墙救了自己命](ba-mian-ling-long.md)
-- [东莞 17 亿元全额付款土地被无偿收回，官方公告称已解除出让合同，怎样从法律角度解读？](jiu-niu-yi-mao.md)
-- [三角洲s11前瞻爆料](shi-quan-shi-mei.md)
+- [学籍顶替案哥哥称弟弟学籍也要撤销](qi-shang-ba-xia.md)
+- [老人剪碎146张百元钞票 家属称难拼接](ba-mian-ling-long.md)
+- [胖东来被涨租逼走，为啥它不直接涨入驻商户的租金来平摊？这一权衡背后有啥考量吗？](jiu-niu-yi-mao.md)
+- [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](shi-quan-shi-mei.md)
 
 ## 站内推荐
 
 - [冰红茶又救了一次康师傅](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
 - [“你父母在家吗”他被问后报了警](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [王橹杰收官碧海](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [孙颖莎王曼昱仅差708分](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [四川巴中3999万资金等待认领](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [宇树科技：将于8月19日科创板上市](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [王橹杰收官碧海](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [张奕然聂玮辰 如果可以](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [辣条业务已不足卫龙总营收三分之一，卫龙的辣条卖不动了吗？蔬菜制品收入大涨，反映了品牌哪些趋势？](http://www.play.hengshemaoyi.cn/xiju/3146772.htm)
-- [极品金灵根各峰主都想收我为徒#meme剧场](http://www.play.hengshemaoyi.cn/xiju/7712592.htm)
-- [老人剪碎146张百元钞票](http://www.play.hengshemaoyi.cn/xiju/2648727.htm)
-- [曝沃尔沃欧洲工厂将生产吉利系豪车](http://www.daogukj.com/xohurmmj/)
-- [AG狼队直播](http://www.play.hengshemaoyi.cn/kongbu/8850864.htm)
-- [泡面不健康不是因为防腐剂](http://www.daogukj.com/kzzeqcwk/)
-- [宇树发布超人机器人](http://www.daogukj.com/umwjgpeo/)
-- [第一视角体验非遗文旅](http://www.daogukj.com/8310676)
-- [80岁婆婆亲自照顾儿媳妇三胎月子](http://www.movie.hkepx.cn/xiju/9976192.htm)
-- [蔚来武汉换电站资产全面转由国资持有，其背后的商业考量是什么？](http://www.play.hengshemaoyi.cn/xiju/4325686.htm)
+- [蔚来武汉换电站资产全面转由国资持有，其背后的商业考量是什么？](http://www.play.hengshemaoyi.cn/xiju/3146772.htm)
+- [9岁女童确诊性早熟，骨龄超实际年龄近3岁，长期大量摄入高碳水、经常熬夜是主要原因吗？怎样预防性早熟？](http://www.play.hengshemaoyi.cn/xiju/7712592.htm)
+- [广州一人行道树池泥土表面被水泥封死](http://www.play.hengshemaoyi.cn/xiju/2648727.htm)
+- [记者：日本拿“海底稀土”忽悠美国](http://www.daogukj.com/xohurmmj/)
+- [师兄太稳健OST阵容官宣](http://www.play.hengshemaoyi.cn/kongbu/8850864.htm)
+- [只有中国人才能识别的加密暗号](http://www.daogukj.com/kzzeqcwk/)
+- [张睿辟谣被披哥拒绝4次](http://www.daogukj.com/umwjgpeo/)
+- [前7个月国民经济总体平稳向新向优](http://www.daogukj.com/8310676)
+- [美称与伊朗革命卫队有秘密沟通渠道](http://www.movie.hkepx.cn/xiju/9976192.htm)
+- [吴艳妮以 13 秒 12 夺得全锦赛女子 100 米栏冠军，成就三连冠和六冠王，如何评价她的表现？](http://www.play.hengshemaoyi.cn/xiju/4325686.htm)
 - [大批AI博主停更了](http://www.daogukj.com/ufrbapxl/)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.play.hengshemaoyi.cn/xiju/6851192.htm)
-- [王橹杰收官碧海](http://www.movie.hkepx.cn/movie/8079085.htm)
-- [多地严查社保缴纳，要求提高夯实率，有职员反映工资被下调，该如何理解？](http://www.movie.hkepx.cn/movie/5234433.htm)
-- [巴中警方：谁的3999.577万 快来认领](http://www.play.hengshemaoyi.cn/xiju/9843728.htm)
+- [挑战中国菜 第一期！“可乐鸡翅”](http://www.play.hengshemaoyi.cn/xiju/6851192.htm)
+- [宇树科技：将于8月19日科创板上市](http://www.movie.hkepx.cn/movie/8079085.htm)
+- [东莞 17 亿元全额付款土地被无偿收回，官方公告称已解除出让合同，怎样从法律角度解读？](http://www.movie.hkepx.cn/movie/5234433.htm)
+- [躺赢30年的旺旺总算醒了](http://www.play.hengshemaoyi.cn/xiju/9843728.htm)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.movie.hkepx.cn/xiju/6033500.htm)
-- [患者牙齿疼一夜钻开瞬间流出脓血](http://www.movie.hkepx.cn/xiju/9081129.htm)
-- [媒体人23年前去过龙餐馆原型](http://www.movie.hkepx.cn/movie/5517559.htm)
-- [【新赛季内容前瞻】大狗嚼，重生老太，长弓玩法变革！](http://www.play.hengshemaoyi.cn/kongbu/7660682.htm)
-- [“菲比，你相信光⚡吗！”《大鸣后宫传》](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
-- [9岁女童确诊性早熟，骨龄超实际年龄近3岁，长期大量摄入高碳水、经常熬夜是主要原因吗？怎样预防性早熟？](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
-- [胖东来员工回应工资及闭店后安置](http://www.daogukj.com/zzeaeilt/)
-- [孙颖莎王曼昱仅差708分](http://www.movie.hkepx.cn/xiju/1559845.htm)
-- [梓渝｜《梓渝》青春曲《RUN IT》舞蹈PV全速来袭！音乐就是信号，脚步就是回答；约定不后退，去打破陈规，冲向不曾定义的未来！](http://www.daogukj.com/zaijvjby/)
-- [李嫣和窦靖童聚会](http://www.play.hengshemaoyi.cn/xiju/6065498.htm)
-- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.movie.hkepx.cn/xiju/0592083.htm)
+- [居民存款搬家行为再思考](http://www.movie.hkepx.cn/xiju/9081129.htm)
+- [80岁婆婆亲自照顾儿媳妇三胎月子](http://www.movie.hkepx.cn/movie/5517559.htm)
+- [【verity实验室片段/女声配音】这将会是你听过情感爆发最强烈最充沛最崩溃的中文女声配音](http://www.play.hengshemaoyi.cn/kongbu/7660682.htm)
+- [特效小哥大战逗比的雀巢！](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
+- [李嫣和窦靖童聚会](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
+- [李在明为何要清算“韩奸”后代](http://www.daogukj.com/zzeaeilt/)
+- [王橹杰收官碧海](http://www.movie.hkepx.cn/xiju/1559845.htm)
+- [新规明确厨余垃圾不能直接喂猪，背后出于什么考量？会带来哪些影响？](http://www.daogukj.com/zaijvjby/)
+- [南派三叔直播被封](http://www.play.hengshemaoyi.cn/xiju/6065498.htm)
+- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.movie.hkepx.cn/xiju/0592083.htm)
 - [全国铁路完成固定资产投资4406亿元](http://www.play.hengshemaoyi.cn/kongbu/3190158.htm)
-- [夫妻听劝砌一堵墙救了自己命](http://www.movie.hkepx.cn/xiju/8058403.htm)
+- [老人剪碎146张百元钞票 家属称难拼接](http://www.movie.hkepx.cn/xiju/8058403.htm)
 - [比亚迪国内销量骤降 35.6%，吉利重启销冠之争，如何看待新能源汽车市场竞争格局？](http://www.movie.hkepx.cn/xiju/0407134.htm)
-- [日媒罕见曝光日军拿本国士兵做实验](http://www.play.hengshemaoyi.cn/xiju/3569500.htm)
-- [为什么才短短两三年，AI就已经泛滥成灾，到了人人喊打、人嫌狗厌的境地？](http://www.daogukj.com/tymyjwla/)
+- [电动车套路曝光：全款买完还要交年费](http://www.play.hengshemaoyi.cn/xiju/3569500.htm)
+- [辣条业务已不足卫龙总营收三分之一，卫龙的辣条卖不动了吗？蔬菜制品收入大涨，反映了品牌哪些趋势？](http://www.daogukj.com/tymyjwla/)
 - [【独家】《记忆管理局》第5集 主角光环【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/4739008.htm)
-- [老人剪碎146张百元钞票 家属称难拼接](http://www.daogukj.com/9650038)
-- [躺赢30年的旺旺总算醒了](http://www.movie.hkepx.cn/xiju/4399837.htm)
-- [如何评价 Xiaohai（曾卓君）在 2026 美国 CEO 大赛《饿狼传说》项目中成功卫冕？](http://www.daogukj.com/bodikkcn/)
-- [飞机安检模拟器](http://www.play.hengshemaoyi.cn/kongbu/0936287.htm)
-- [炫神山泥若连麦曝 Bin 疑似不想打比赛了，这对他的职业生涯意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/7557381.htm)
-- [彭宇案 彭宇确实碰了老人](http://www.daogukj.com/6136718)
-- [BLACKPINK发文道歉](http://www.play.hengshemaoyi.cn/xiju/2359694.htm)
-- [为什么说“围棋已死”而没有“象棋已死”的说法？](http://www.play.hengshemaoyi.cn/kongbu/4505915.htm)
-- [吴艳妮以 13 秒 12 夺得全锦赛女子 100 米栏冠军，成就三连冠和六冠王，如何评价她的表现？](http://www.movie.hkepx.cn/movie/9172563.htm)
-- [为什么现在小区车位，越来越卖不动了？](http://www.daogukj.com/psrubjka/)
-- [龙 餐 馆 连 线 勇 哥](http://www.movie.hkepx.cn/xiju/8460312.htm)
-- [榴莲价格彻底崩了](http://www.movie.hkepx.cn/xiju/3343717.htm)
+- [网友晒出清华大学宿舍环境](http://www.daogukj.com/9650038)
+- [《藏锋》央视开播](http://www.movie.hkepx.cn/xiju/4399837.htm)
+- [Opencode Go也涨价了，哪里还有便宜DeepSeek ？](http://www.daogukj.com/bodikkcn/)
+- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.play.hengshemaoyi.cn/kongbu/0936287.htm)
+- [如何看待追觅卖出首台 AURORA 手机，售价超 20 万元？靠高奢定制切入手机赛道可行吗？](http://www.play.hengshemaoyi.cn/kongbu/7557381.htm)
+- [博尔特不再是世界第一了](http://www.daogukj.com/6136718)
+- [王奕告别丝芭传媒](http://www.play.hengshemaoyi.cn/xiju/2359694.htm)
+- [如何评价 Xiaohai（曾卓君）在 2026 美国 CEO 大赛《饿狼传说》项目中成功卫冕？](http://www.play.hengshemaoyi.cn/kongbu/4505915.htm)
+- [为什么现在小区车位，越来越卖不动了？](http://www.movie.hkepx.cn/movie/9172563.htm)
+- [「世界容得下 C919 与波音、空客一起飞」，如何看待国产大飞机与国际巨头的市场竞争？](http://www.daogukj.com/psrubjka/)
+- [周处除三害现实版，我们干掉他了！](http://www.movie.hkepx.cn/xiju/8460312.htm)
+- [加油站广告语 缺斤少两枪毙站长](http://www.movie.hkepx.cn/xiju/3343717.htm)
 - [这些关于网络暴力的谣言你信了吗](http://www.daogukj.com/qlmhijex/)
-- [爸爸酒后熟睡翻身压住婴儿脑袋](http://www.movie.hkepx.cn/movie/5118780.htm)
+- [《干噎砒霜》](http://www.movie.hkepx.cn/movie/5118780.htm)
 - [“你父母在家吗”他被问后报了警](http://www.movie.hkepx.cn/movie/0327094.htm)
-- [宇树超人机器人原地跳高约2米](http://www.play.hengshemaoyi.cn/kongbu/5250449.htm)
-- [德穆兰Boss扮演来啦！重生之我在航天城当安保总监！胜者为王自建房下放！烽火1v1单挑房搞起！S11测试服爆料！](http://www.movie.hkepx.cn/movie/7815976.htm)
-- [刷来刷去都是同一张脸 平台出手了](http://www.movie.hkepx.cn/xiju/2004158.htm)
+- [淘宝闪购回应一商户烧烤外卖越辣越贵](http://www.play.hengshemaoyi.cn/kongbu/5250449.htm)
+- [当我尝试在山西临汾云丘山靠拍视频赚50w](http://www.movie.hkepx.cn/movie/7815976.htm)
+- [这个旅游包活吗？？？【听天由命1】](http://www.movie.hkepx.cn/xiju/2004158.htm)
 
 </details>
 
 ## 原始来源
 
-- [博尔特不再是世界第一了](https://www.baidu.com/s?wd=%E5%8D%9A%E5%B0%94%E7%89%B9%E4%B8%8D%E5%86%8D%E6%98%AF%E4%B8%96%E7%95%8C%E7%AC%AC%E4%B8%80%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [9块9包邮的手机壳还敢买吗](https://www.baidu.com/s?wd=9%E5%9D%979%E5%8C%85%E9%82%AE%E7%9A%84%E6%89%8B%E6%9C%BA%E5%A3%B3%E8%BF%98%E6%95%A2%E4%B9%B0%E5%90%97&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 85b1d8f5ff3d8d61f85c -->
+<!-- content-fingerprint: 8e9783f2ee47251a3d41 -->
