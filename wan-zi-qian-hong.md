@@ -2,11 +2,11 @@
 
 # 全国铁路完成固定资产投资4406亿元
 
-> 来源：今日头条热榜 · 排名：第 3 位 · 热度：7880305 · 更新：2026-08-17T23:36:25+08:00
+> 来源：今日头条热榜 · 排名：第 3 位 · 热度：7998119 · 更新：2026-08-17T23:59:40+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“全国铁路完成固定资产投资4406亿元”位列第 3 位，公开热度指标为 7880305。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“全国铁路完成固定资产投资4406亿元”位列第 3 位，公开热度指标为 7998119。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -27,8 +27,8 @@
 
 - [中方回应上百中国公民在巴基斯坦被拘](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
 - [女患者报警称“被男医生猥亵揉胸”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [许昌胖东来老店邻居不舍落泪](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [5岁女童在家中不慎吞下50g金条](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [全球最大全电动飞机完成首飞](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [女患者称被男医生猥亵揉胸已立案](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
 - [房企高管涉嫌酒局上伤害女性被免职](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
@@ -38,53 +38,53 @@
 
 - [中方回应100余名中国公民在巴被拘留](http://www.play.hengshemaoyi.cn/kongbu/2243236.htm)
 - [爸爸内急让娃代钓 结果钓上9斤大鱼](http://www.movie.hkepx.cn/xiju/6258682.htm)
-- [张艺谋电影 肖战](http://www.daogukj.com/4199190)
-- [三角洲s11前瞻爆料](http://www.daogukj.com/ddksoogp/)
+- [左奇函 身体状况](http://www.daogukj.com/4199190)
+- [周处除三害现实版，我们干掉他了！](http://www.daogukj.com/ddksoogp/)
 - [一个每天要喝8杯血的吸血鬼，需要多大的贵族头衔与封地才能养活自己？](http://www.daogukj.com/1151921)
-- [大牛股15天10板](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
-- [陈奕恒哭了](http://www.daogukj.com/pclokhlt/)
-- [《欢迎来龙餐馆》中，为什么所有对主角徐福好的人都死了？](http://www.daogukj.com/1912371)
+- [杨博文高音](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
+- [金价回调半年抛压基本释放](http://www.daogukj.com/pclokhlt/)
+- [蔚来武汉换电站资产全面转由国资持有，其背后的商业考量是什么？](http://www.daogukj.com/1912371)
 - [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.daogukj.com/1276372)
 - [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.play.hengshemaoyi.cn/kongbu/3420758.htm)
 - [患者牙齿疼一夜钻开瞬间流出脓血](http://www.movie.hkepx.cn/xiju/9275339.htm)
 - [龙 餐 馆 连 线 勇 哥](http://www.play.hengshemaoyi.cn/kongbu/1292863.htm)
-- [「世界容得下 C919 与波音、空客一起飞」，如何看待国产大飞机与国际巨头的市场竞争？](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
-- [特效小哥大战逗比的雀巢！](http://www.play.hengshemaoyi.cn/xiju/0325633.htm)
-- [桃黑黑列举时间线](http://www.daogukj.com/3321605)
+- [吴艳妮以 13 秒 12 夺得全锦赛女子 100 米栏冠军，成就三连冠和六冠王，如何评价她的表现？](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
+- [奥特曼中 出了一个怪兽的卧底【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/0325633.htm)
+- [女孩顺风车内暴晒2小时向家人求救](http://www.daogukj.com/3321605)
 - [75岁王石又创业了](http://www.movie.hkepx.cn/movie/8247920.htm)
 - [多地严查社保缴纳，要求提高夯实率，有职员反映工资被下调，该如何理解？](http://www.play.hengshemaoyi.cn/kongbu/8269947.htm)
 - [9岁女童确诊性早熟，骨龄超实际年龄近3岁，长期大量摄入高碳水、经常熬夜是主要原因吗？怎样预防性早熟？](http://www.daogukj.com/7559408)
-- [住了30年的公房竟登记在陌生人名下](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
-- [市值蒸发2000亿的商汤突然盈利](http://www.daogukj.com/qygrqwfc/)
+- [8国发表联合声明谴责以色列](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
+- [5岁女童在家中不慎吞下50g金条](http://www.daogukj.com/qygrqwfc/)
 - [大批AI博主停更了](http://www.movie.hkepx.cn/movie/1898296.htm)
-- [为什么我国人民接触不到俄罗斯的汽车？](http://www.movie.hkepx.cn/xiju/9208788.htm)
+- [WBG 无缘 LPL 第三赛段骑士之路，主教练厂长承认负主责，他们队伍存在哪些问题？](http://www.movie.hkepx.cn/xiju/9208788.htm)
 - [网友晒出清华大学宿舍环境](http://www.play.hengshemaoyi.cn/kongbu/3841017.htm)
-- [只有中国人才能识别的加密暗号](http://www.movie.hkepx.cn/movie/9300663.htm)
-- [郭敬明发百妖谱原始帧](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
+- [曝iPhone18ProMax独占可变光圈](http://www.movie.hkepx.cn/movie/9300663.htm)
+- [王橹杰说少年时代看不看随便吧](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
 - [78岁老人养了头38岁的驴](http://www.daogukj.com/8278736)
-- [陈伟霆为九门十年不接军装戏](http://www.daogukj.com/8218886)
-- [快去请如来佛祖！](http://www.daogukj.com/etwnkcjm/)
-- [多地商场外墙广告“C位”让给科学家](http://www.daogukj.com/jbysyguh/)
-- [新规明确厨余垃圾不能直接喂猪，背后出于什么考量？会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
-- [宇树超人机器人原地跳高约2米](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
-- [吴艳妮以 13 秒 12 夺得全锦赛女子 100 米栏冠军，成就三连冠和六冠王，如何评价她的表现？](http://www.daogukj.com/9528300)
-- [彭宇案 彭宇确实碰了老人](http://www.movie.hkepx.cn/movie/6435439.htm)
-- [夫妻听劝砌一堵墙救了自己命](http://www.movie.hkepx.cn/movie/4878992.htm)
+- [泡面不健康不是因为防腐剂](http://www.daogukj.com/8218886)
+- [【verity实验室片段/女声配音】这将会是你听过情感爆发最强烈最充沛最崩溃的中文女声配音](http://www.daogukj.com/etwnkcjm/)
+- [大家为啥不借钱了](http://www.daogukj.com/jbysyguh/)
+- [《欢迎来龙餐馆》中，为什么所有对主角徐福好的人都死了？](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
+- [胖东来员工回应工资及闭店后安置](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
+- [「世界容得下 C919 与波音、空客一起飞」，如何看待国产大飞机与国际巨头的市场竞争？](http://www.daogukj.com/9528300)
+- [陈奕恒哭了](http://www.movie.hkepx.cn/movie/6435439.htm)
+- [中国男篮惜败新西兰](http://www.movie.hkepx.cn/movie/4878992.htm)
 - [这些关于网络暴力的谣言勿轻信](http://www.movie.hkepx.cn/xiju/8029656.htm)
 - [危！秘境最终奖励竟然亮起了血条？！【小明修仙传EP9】【AI全民制作人】](http://www.daogukj.com/4914176)
 - [曹骏初舞台人气票数倒挂](http://www.movie.hkepx.cn/xiju/5605421.htm)
 - [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.movie.hkepx.cn/xiju/8838856.htm)
-- [大盘距4000点仅一步之遥 下一步咋走](http://www.movie.hkepx.cn/xiju/4562883.htm)
+- [全国多地已官宣秋假时间](http://www.movie.hkepx.cn/xiju/4562883.htm)
 - [中方回应上百中国公民在巴基斯坦被拘](http://www.play.hengshemaoyi.cn/xiju/9673613.htm)
-- [“菲比，你相信光⚡吗！”《大鸣后宫传》](http://www.daogukj.com/8978179)
+- [《干噎砒霜》](http://www.daogukj.com/8978179)
 - [蓝盈莹承认新恋情](http://www.play.hengshemaoyi.cn/kongbu/9386523.htm)
-- [5岁女童在家中不慎吞下50g金条](http://www.movie.hkepx.cn/movie/8202567.htm)
-- [蔚来武汉换电站资产全面转由国资持有，其背后的商业考量是什么？](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
+- [女患者称被男医生猥亵揉胸已立案](http://www.movie.hkepx.cn/movie/8202567.htm)
+- [新规明确厨余垃圾不能直接喂猪，背后出于什么考量？会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
 - [女患者报警称“被男医生猥亵揉胸”](http://www.movie.hkepx.cn/xiju/8258278.htm)
 - [为什么说人类的进步永远不会结束？](http://www.movie.hkepx.cn/movie/5226555.htm)
 - [杭州涉事招商蛇口高管已被免职](http://www.daogukj.com/danezrrx/)
 - [公积金用途又变多了](http://www.play.hengshemaoyi.cn/kongbu/5916498.htm)
-- [为什么才短短两三年，AI就已经泛滥成灾，到了人人喊打、人嫌狗厌的境地？](http://www.movie.hkepx.cn/xiju/2002414.htm)
+- [如何评价 Xiaohai（曾卓君）在 2026 美国 CEO 大赛《饿狼传说》项目中成功卫冕？](http://www.movie.hkepx.cn/xiju/2002414.htm)
 - [湖北一洗衣店老板被执行死刑](http://www.movie.hkepx.cn/xiju/4878037.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 30e4a798dc448ab0239b -->
+<!-- content-fingerprint: d4136636046e5ae61906 -->
