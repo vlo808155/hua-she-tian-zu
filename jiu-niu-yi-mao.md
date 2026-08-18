@@ -2,11 +2,11 @@
 
 # 《影之刃零》专场 State of Play 全程回顾
 
-> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：2866648 · 分类：单机游戏 · 更新：2026-08-19T05:34:39+08:00
+> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：2890342 · 分类：单机游戏 · 更新：2026-08-19T05:58:17+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《影之刃零》专场 State of Play 全程回顾”位列第 2 位，公开热度指标为 2866648，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《影之刃零》专场 State of Play 全程回顾”位列第 2 位，公开热度指标为 2890342，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：8月18 日《影之刃零》专场 State of Play全球直播的完整版回放，创意监制甄子丹开场，制作人梁其伟讲述，带领玩家深入游戏的故事、世界与战斗系统，以及深度结合 PS5和 DualSense 无线控制器特性的沉浸体验功能。 《影之刃零》的终极目标，是从原汁原味的中国武术文化中汲取深厚养分，将其融入S-GAME称之为“功夫朋克”的那种凌厉，直击感官的美学之中。 PS5版《影之刃零》现已开启预购，标准版售价268元，豪华版售价328元。
 
@@ -26,9 +26,9 @@
 ## 站内推荐
 
 - [【独家】《百日成王》第17集 每一场应援就像一场战斗！【7月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [“一抬头以为梁朝伟给我挑水果”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [男子在景德镇卖树叶10元一片](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
 - [章子怡到手了3个亿 不是通过演戏](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [游泳警惕腺病毒 暂无特效药](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [“反诈老陈”新工作月薪1.5万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
 - [BBA降价潮 销售：国产新能源车冲击大](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
@@ -36,14 +36,14 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [胖东来招聘不包含性侵犯罪人员](http://www.movie.hkepx.cn/movie/4879804.htm)
-- [柯洁装弱智赢AI围棋](http://www.movie.hkepx.cn/movie/5294565.htm)
+- [何炅因年龄大被密室拒绝](http://www.movie.hkepx.cn/movie/4879804.htm)
+- [美股](http://www.movie.hkepx.cn/movie/5294565.htm)
 - [杭州酒局事件赵某峰郁某栋被刑拘](http://www.movie.hkepx.cn/xiju/8234213.htm)
 - [《商务柔道》](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
 - [中部“超级机场”来了](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
 - [官方通报杭州酒局事件，赵某峰、郁某栋已被刑拘，二人对被害人实施强制猥亵并致其受伤，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/2272650.htm)
 - [做事千万不要有状态洁癖](http://www.movie.hkepx.cn/movie/5183558.htm)
-- [4S店“爆改”大排档健身房](http://www.daogukj.com/qcalvqip/)
+- [被央视曝光 云南通报调查结果](http://www.daogukj.com/qcalvqip/)
 - [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.daogukj.com/qsfzwgun/)
 - [章子怡到手了3个亿 不是通过演戏](http://www.daogukj.com/broiawjw/)
 - [“无糖”为何尝起来甜](http://www.movie.hkepx.cn/xiju/2682801.htm)
@@ -51,41 +51,41 @@
 - [9部门发文活跃县域消费](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
 - [康师傅、统一方便面业务上半年双双增长，是什么原因让方便面再度「香」起来？](http://www.movie.hkepx.cn/xiju/8343373.htm)
 - [【问苍生】我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
-- [“反诈老陈”宣布停更7天挣生活费](http://www.daogukj.com/8483541)
+- [女子落水后冷静“躺平”近1小时获救](http://www.daogukj.com/8483541)
 - [朱镕基同志生平](http://www.daogukj.com/qxxcgldr/)
-- [吴泽林曾在现场情绪失控](http://www.daogukj.com/9209363)
-- [赵某峰将被害人推倒致腰部受伤](http://www.movie.hkepx.cn/xiju/3158244.htm)
-- [游泳警惕腺病毒 暂无特效药](http://www.daogukj.com/cyhwfhva/)
+- [调查组通报杭州酒局事件](http://www.daogukj.com/9209363)
+- [25岁小伙见网恋女友失联近两年](http://www.movie.hkepx.cn/xiju/3158244.htm)
+- [“反诈老陈”新工作月薪1.5万](http://www.daogukj.com/cyhwfhva/)
 - [窦靖童同父异母妹妹自曝从小被网暴](http://www.daogukj.com/tfhkqorv/)
 - [小米集团第二季度总收入 1089 亿元，经调整净利润 62 亿元，如何评价其业绩表现？](http://www.movie.hkepx.cn/xiju/7580051.htm)
 - [日本正式实施高端机床出口管制新规，这意味着什么？](http://www.daogukj.com/knzztlfc/)
 - [热点事件网络围观必备素养](http://www.movie.hkepx.cn/movie/0847264.htm)
 - [你的经济属于什么水平](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
-- [反抗暴力强拆致死被判无罪当事人发声](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
+- [中国小伙去越南见女友家长坠海失踪](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
 - [某酸奶因宣传「促进消化」被罚，酸奶中含有乳酸菌能帮助消化不是常识吗？](http://www.movie.hkepx.cn/movie/1751427.htm)
 - [不缩小20倍，我也吃不了这么多呀……#全世界都吃不下，只有我吃到服务器瘫痪](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
 - [女子开门杀反遭关门杀](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
 - [全国首例反强拆致死判正当防卫案](http://www.movie.hkepx.cn/movie/1023624.htm)
-- [Jennie发文道歉](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
-- [伊朗最高领袖将主持活动](http://www.daogukj.com/7693477)
+- [吃花生能为我们身体带来哪些好处](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
+- [旅客自带充气床入住酒店](http://www.daogukj.com/7693477)
 - [绝境降临！狭小缆车空间怎样熬过危机四伏的一百天！！「缆车惊变100天」](http://www.movie.hkepx.cn/xiju/2826252.htm)
 - [《鸣潮》共鸣者「清宵」PV | 修行](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
 - [60万亿元，打开消费增长新空间](http://www.daogukj.com/1461847)
 - [一种很“嘉豪”的合成方式](http://www.movie.hkepx.cn/xiju/0818230.htm)
-- [榴莲价格大幅回落，多地金枕榴莲售价降至19.9元一斤，为什么会降这么多？你最近买了吗？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
-- [调查组通报杭州酒局事件](http://www.daogukj.com/xoshfaqj/)
-- [被央视曝光 云南通报调查结果](http://www.movie.hkepx.cn/xiju/4934568.htm)
-- [男子在景德镇卖树叶10元一片](http://www.daogukj.com/wiudnclj/)
+- [小熊电器净利暴跌 41%，那些曾风靡一时的网红小家电为何集体「吃灰」？大家的消费选择发生了怎样的变化？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
+- [吴泽林曾在现场情绪失控](http://www.daogukj.com/xoshfaqj/)
+- [游泳警惕腺病毒 暂无特效药](http://www.movie.hkepx.cn/xiju/4934568.htm)
+- [“一抬头以为梁朝伟给我挑水果”](http://www.daogukj.com/wiudnclj/)
 - [日媒称日本在「汇率战争」中「战败」，日本经济面临怎样的两难困境？](http://www.movie.hkepx.cn/movie/0173822.htm)
 - [继林肯号后，华盛顿号航母也被曝厕所卫生状况恶劣，美航母卫生条件为啥这么差？会影响其在中东的军事部署吗？](http://www.daogukj.com/4402502)
-- [小熊电器净利暴跌 41%，那些曾风靡一时的网红小家电为何集体「吃灰」？大家的消费选择发生了怎样的变化？](http://www.movie.hkepx.cn/xiju/3001134.htm)
+- [宇树科技发布「超人」，原地跳高 2米、奔跑极限速度每秒 12.66 米，人形机器人距离实用还有多远？](http://www.movie.hkepx.cn/xiju/3001134.htm)
 - [Dior全球公关总监去世](http://www.daogukj.com/wkrcfluq/)
-- [女子落水后冷静“躺平”近1小时获救](http://www.movie.hkepx.cn/movie/6354712.htm)
+- [“反诈老陈”宣布停更7天挣生活费](http://www.movie.hkepx.cn/movie/6354712.htm)
 - [忍术回战 26分钟沉浸式观看](http://www.movie.hkepx.cn/xiju/8131821.htm)
 - [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/4751279)
 - [从 7 月的数据看，楼市边际复苏的逻辑是在延续还是证伪了？](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
-- [爱奇艺第二季度收入62.9亿元](http://www.daogukj.com/6772234)
-- [外交部直接把靖国神社称作战犯神社](http://www.movie.hkepx.cn/movie/1847830.htm)
+- [公积金 强制缴纳](http://www.daogukj.com/6772234)
+- [75岁王石再创业](http://www.movie.hkepx.cn/movie/1847830.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: af368b3419a9f4541514 -->
+<!-- content-fingerprint: 55e7eb9574344bfa14fc -->
