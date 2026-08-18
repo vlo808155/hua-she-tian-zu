@@ -2,11 +2,11 @@
 
 # 公积金新政来了
 
-> 来源：今日头条热榜 · 排名：第 2 位 · 热度：50418470 · 更新：2026-08-19T02:20:02+08:00
+> 来源：今日头条热榜 · 排名：第 2 位 · 热度：50498510 · 更新：2026-08-19T03:06:13+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“公积金新政来了”位列第 2 位，公开热度指标为 50418470。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“公积金新政来了”位列第 2 位，公开热度指标为 50498510。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -37,50 +37,50 @@
 <summary>展开更多相关内容</summary>
 
 - [日本正式实施高端机床出口管制新规，这意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/5645462.htm)
-- [75岁王石再创业](http://www.movie.hkepx.cn/movie/8293092.htm)
-- [女子凭基因认出十几年前同学的儿子](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
+- [评论员：菲律宾必须拖走坐滩军舰](http://www.movie.hkepx.cn/movie/8293092.htm)
+- [研究：蛋黄吃对了痴呆风险降27%](http://www.play.hengshemaoyi.cn/xiju/8291238.htm)
 - [继林肯号后，华盛顿号航母也被曝厕所卫生状况恶劣，美航母卫生条件为啥这么差？会影响其在中东的军事部署吗？](http://www.daogukj.com/8375241)
 - [官方调整住房公积金政策，租房提取公积金取消收入比例门槛，装修自住住房可提取公积金，哪些变化值得关注？](http://www.daogukj.com/iaraacys/)
-- [“反诈老陈”宣布停更7天挣生活费](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
-- [全国首例反强拆致死判正当防卫案](http://www.daogukj.com/jkwmzbpc/)
+- [Jennie发文道歉](http://www.play.hengshemaoyi.cn/xiju/9305422.htm)
+- [美股](http://www.daogukj.com/jkwmzbpc/)
 - [Dior全球公关总监去世](http://www.play.hengshemaoyi.cn/kongbu/9710980.htm)
 - [如果没有中科大，合肥会沦为南昌，石家庄，太原之类二流城市，失去如今地位与潜力吗？科大是决定性要素吗？](http://www.movie.hkepx.cn/xiju/9588893.htm)
 - [9部门发文活跃县域消费](http://www.movie.hkepx.cn/movie/8778310.htm)
 - [现在该不该换手机](http://www.movie.hkepx.cn/movie/6076618.htm)
 - [公积金 强制缴纳](http://www.daogukj.com/dpkkzqnv/)
-- [全红婵现身广东省运会跳水赛场观战](http://www.movie.hkepx.cn/movie/1651889.htm)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.daogukj.com/9130223)
-- [《影之刃零》专场 State of Play 全程回顾](http://www.movie.hkepx.cn/xiju/5806124.htm)
-- [童年最大愿望实现啦！100元在各家能买多少汉堡？！](http://www.daogukj.com/fkjhvpfb/)
+- [药片切勿随意掰开](http://www.movie.hkepx.cn/movie/1651889.htm)
+- [档案袋被长辈不慎拆开，毕业生崩溃大吼，学生的档案袋里都有什么？不小心被拆开后如何补救？](http://www.daogukj.com/9130223)
+- [忍术回战 26分钟沉浸式观看](http://www.movie.hkepx.cn/xiju/5806124.htm)
+- [绝境降临！狭小缆车空间怎样熬过危机四伏的一百天！！「缆车惊变100天」](http://www.daogukj.com/fkjhvpfb/)
 - [比野生狗奶还永久的存在出现了](http://www.play.hengshemaoyi.cn/kongbu/6838815.htm)
-- [被央视曝光 云南通报调查结果](http://www.movie.hkepx.cn/xiju/2953910.htm)
-- [档案袋被长辈不慎拆开，毕业生崩溃大吼，学生的档案袋里都有什么？不小心被拆开后如何补救？](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
-- [魅力四射](http://www.movie.hkepx.cn/movie/7538444.htm)
+- [男子在景德镇卖树叶10元一片](http://www.movie.hkepx.cn/xiju/2953910.htm)
+- [罗斯柴尔德家族真的像《货币战争》中描述的那么厉害吗？](http://www.play.hengshemaoyi.cn/xiju/3968678.htm)
+- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/7538444.htm)
 - [《商务柔道》](http://www.movie.hkepx.cn/movie/4849813.htm)
-- [研究：蛋黄吃对了痴呆风险降27%](http://www.movie.hkepx.cn/xiju/0772096.htm)
-- [大学还没开学 家长群先建好了](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
-- [Jennie发文道歉](http://www.movie.hkepx.cn/movie/2588691.htm)
+- [吃花生能为我们身体带来哪些好处](http://www.movie.hkepx.cn/xiju/0772096.htm)
+- [餐馆未打码曝光逃单顾客照片引争议](http://www.play.hengshemaoyi.cn/xiju/1402628.htm)
+- [“反诈老陈”宣布停更7天挣生活费](http://www.movie.hkepx.cn/movie/2588691.htm)
 - [官方通报杭州酒局事件，赵某峰、郁某栋已被刑拘，二人对被害人实施强制猥亵并致其受伤，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/0673260.htm)
-- [和朋友极限24小时逛吃杭州，没想到解决了困扰多年的疑惑...](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
-- [BBA降价潮 销售：国产新能源车冲击大](http://www.movie.hkepx.cn/movie/5784282.htm)
-- [当你相亲遇到天价嫁妆](http://www.movie.hkepx.cn/movie/3182879.htm)
-- [如何看待“泔水喂猪”被写入禁令](http://www.daogukj.com/3766509)
+- [不缩小20倍，我也吃不了这么多呀……#全世界都吃不下，只有我吃到服务器瘫痪](http://www.play.hengshemaoyi.cn/kongbu/2520827.htm)
+- [南极电商卖吊牌卖出了六亿官司](http://www.movie.hkepx.cn/movie/5784282.htm)
+- [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.movie.hkepx.cn/movie/3182879.htm)
+- [中科院80后博士干出460亿激光器王国](http://www.daogukj.com/3766509)
 - [地球毁灭后，人类只剩四条路｜你会把文明带向哪里？](http://www.play.hengshemaoyi.cn/xiju/6973597.htm)
 - [公积金新规 通俗解读](http://www.play.hengshemaoyi.cn/xiju/0738996.htm)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/ctquznvn/)
-- [4S店“爆改”大排档健身房](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
-- [《鸣潮》共鸣者「清宵」PV | 修行](http://www.movie.hkepx.cn/xiju/5105551.htm)
+- [童年最大愿望实现啦！100元在各家能买多少汉堡？！](http://www.daogukj.com/ctquznvn/)
+- [“无糖”为何尝起来甜](http://www.play.hengshemaoyi.cn/xiju/9307309.htm)
+- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.movie.hkepx.cn/xiju/5105551.htm)
 - [《欢迎来龙餐馆》里，赛夫最后说服了 23 个孩子一起逃跑，在密谋的时候，就不怕这些孩子们向校长告密吗？](http://www.daogukj.com/8216748)
 - [官方通报杭州酒局事件](http://www.movie.hkepx.cn/xiju/8980675.htm)
-- [评论员：菲律宾必须拖走坐滩军舰](http://www.movie.hkepx.cn/xiju/6567869.htm)
+- [如何看待“泔水喂猪”被写入禁令](http://www.movie.hkepx.cn/xiju/6567869.htm)
 - [中部“超级机场”来了](http://www.daogukj.com/njgxlzmh/)
 - [BBA集体大降价，宝马5系跌至28万、奔驰E级优惠超10万，传统豪华车的价格体系是如何走向瓦解的？](http://www.movie.hkepx.cn/xiju/5238935.htm)
-- [民进党当局再度拒绝执行三读通过法案](http://www.movie.hkepx.cn/xiju/5524746.htm)
+- [李敏嫁给了李敏 两人同年同地出生](http://www.movie.hkepx.cn/xiju/5524746.htm)
 - [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.play.hengshemaoyi.cn/kongbu/1255416.htm)
-- [柯洁装弱智赢AI围棋](http://www.movie.hkepx.cn/movie/0643495.htm)
-- [章子怡到手了3个亿 不是通过演戏](http://www.daogukj.com/4160069)
-- [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
-- [男子在景德镇卖树叶10元一片](http://www.movie.hkepx.cn/movie/5891565.htm)
+- [调查组通报杭州酒局事件](http://www.movie.hkepx.cn/movie/0643495.htm)
+- [被央视曝光 云南通报调查结果](http://www.daogukj.com/4160069)
+- [我看看谁错字了！](http://www.play.hengshemaoyi.cn/xiju/9477662.htm)
+- [4S店“爆改”大排档健身房](http://www.movie.hkepx.cn/movie/5891565.htm)
 - [如何看待王传君近年来多次与爱情公寓和解？为什么感觉他这几年CUE到爱情公寓比邓家佳孙艺洲等人还要多？](http://www.movie.hkepx.cn/movie/7078938.htm)
 - [反抗暴力强拆致死被判无罪当事人发声](http://www.daogukj.com/mqfndzhh/)
 - [蒙古不法分子擅闯中资营地侮辱员工](http://www.play.hengshemaoyi.cn/xiju/6747952.htm)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [公积金新政来了](https://www.toutiao.com/trending/7675219140914826771/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227675219140914826771%22%2C%22hot_board_impr_id%22%3A%2220260819022000E64A35AABE526F380ED4%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [公积金新政来了](https://www.toutiao.com/trending/7675219140914826771/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227675219140914826771%22%2C%22hot_board_impr_id%22%3A%2220260819030612E0480EE5C10FD20A5AFA%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6f567bbb248346a022c8 -->
+<!-- content-fingerprint: e0c261dd985d89857aa1 -->
