@@ -2,11 +2,11 @@
 
 # 胖东来招聘不包含性侵犯罪人员
 
-> 来源：微博热搜 · 排名：第 4 位 · 热度：168868 · 分类：民生新闻 · 更新：2026-08-19T01:47:25+08:00
+> 来源：微博热搜 · 排名：第 4 位 · 热度：145120 · 分类：民生新闻 · 更新：2026-08-19T02:20:02+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“胖东来招聘不包含性侵犯罪人员”位列第 4 位，公开热度指标为 168868，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“胖东来招聘不包含性侵犯罪人员”位列第 4 位，公开热度指标为 145120，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -26,37 +26,37 @@
 ## 站内推荐
 
 - [七夕](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [周洛汐演唱会喊话KPOP三大公司](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [外交部直接把靖国神社称作战犯神社](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [反抗暴力强拆致死被判无罪当事人发声](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [女子凭基因认出十几年前同学的儿子](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [做事千万不要有状态洁癖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [研究：蛋黄吃对了痴呆风险降27%](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [Jennie发文道歉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [伊朗最高领袖将主持活动](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [反抗暴力强拆致死被判无罪当事人发声](http://www.daogukj.com/2989641)
-- [柯洁装弱智赢AI围棋](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [Jennie发文道歉](http://www.daogukj.com/2989641)
+- [外卖备注孩子化疗收到100元现金](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
 - [如何看待“泔水喂猪”被写入禁令](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [评论员：菲律宾必须拖走坐滩军舰](http://www.daogukj.com/5775563)
+- [调查组通报杭州酒局事件](http://www.daogukj.com/5775563)
 - [窦靖童同父异母妹妹自曝从小被网暴](http://www.daogukj.com/1579567)
-- [Jennie发文道歉](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [章子怡套现3亿](http://www.daogukj.com/rvgjqsig/)
-- [你的经济属于什么水平](http://www.daogukj.com/vcxumdys/)
-- [做事千万不要有状态洁癖](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [上海徐家汇凭什么拿下诸多“第一”](http://www.daogukj.com/4998351)
-- [如何看多国扎堆来中国发债](http://www.daogukj.com/puqecrgq/)
-- [女子凭基因认出十几年前同学的儿子](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [反抗暴力强拆致死被判无罪当事人发声](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [Dior全球公关总监去世](http://www.daogukj.com/rvgjqsig/)
+- [比野生狗奶还永久的存在出现了](http://www.daogukj.com/vcxumdys/)
+- [打过四价九价HPV疫苗不用再打双价](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [民进党当局再度拒绝执行三读通过法案](http://www.daogukj.com/4998351)
+- [75岁王石再创业](http://www.daogukj.com/puqecrgq/)
+- [伊朗最高领袖将主持活动](http://www.movie.hkepx.cn/movie/8856283.htm)
 - [“一抬头以为梁朝伟给我挑水果”](http://www.daogukj.com/mbleegev/)
 - [河南钻石把英伟达馋哭了](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.daogukj.com/9378743)
-- [旅客自带充气床入住酒店](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [榴莲价格大幅回落，多地金枕榴莲售价降至19.9元一斤，为什么会降这么多？你最近买了吗？](http://www.daogukj.com/9378743)
+- [外交部直接把靖国神社称作战犯神社](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
 - [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [让迪丽热巴涨粉八百万的台词](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [榴莲价格大幅回落，多地金枕榴莲售价降至19.9元一斤，为什么会降这么多？你最近买了吗？](http://www.daogukj.com/4067994)
+- [美股](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.daogukj.com/4067994)
 - [被央视曝光 云南通报调查结果](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [BBA集体大降价，宝马5系跌至28万、奔驰E级优惠超10万，传统豪华车的价格体系是如何走向瓦解的？](http://www.daogukj.com/0687577)
+- [男子回应在景德镇卖树叶10元一片](http://www.daogukj.com/0687577)
 - [章子怡到手了3个亿 不是通过演戏](http://www.daogukj.com/0028791)
 - [公积金 强制缴纳](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
 - [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.movie.hkepx.cn/xiju/7549792.htm)
@@ -75,10 +75,10 @@
 - [《鸣潮》共鸣者「清宵」PV | 修行](http://www.movie.hkepx.cn/movie/7886240.htm)
 - [大学还没开学 家长群先建好了](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
 - [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [调查组通报杭州酒局事件](http://www.daogukj.com/jmwlrqbo/)
+- [4S店“爆改”大排档健身房](http://www.daogukj.com/jmwlrqbo/)
 - [诺兰在《奥德赛》中批判了木马计，认为诡计会摧毁文明的根基，这种崇尚仁义的战争观在现实中可行吗？](http://www.daogukj.com/7834239)
 - [日媒称日本在「汇率战争」中「战败」，日本经济面临怎样的两难困境？](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [外交部不再称靖国神社直接叫战犯神社](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [全国首例反强拆致死判正当防卫案](http://www.movie.hkepx.cn/movie/2182682.htm)
 - [“泔水喂猪”被正式写入禁令](http://www.daogukj.com/5450676)
 - [天蚕土豆新书更新8天吸流1100多万，这是成功了吗？](http://www.movie.hkepx.cn/xiju/5833368.htm)
 - [60万亿元，打开消费增长新空间](http://www.daogukj.com/3022115)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d3f1e46aaed34f405e49 -->
+<!-- content-fingerprint: 89587811737ee744a2fb -->
