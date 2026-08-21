@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待蒙不法分子擅闯中资营地侮辱中方员工，中方向蒙方提出交涉？
+# 女童遭海蜇蜇伤进 ICU 抢救，母亲称5米外救生员未施救，景区和救生员该担责吗？被海蜇蜇伤应怎样处理？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：450 万热度 · 分类：问答 · 更新：2026-08-21T11:36:09+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：475 万热度 · 分类：问答 · 更新：2026-08-21T12:23:27+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待蒙不法分子擅闯中资营地侮辱中方员工，中方向蒙方提出交涉？”位列第 1 位，公开热度指标为 450 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“女童遭海蜇蜇伤进 ICU 抢救，母亲称5米外救生员未施救，景区和救生员该担责吗？被海蜇蜇伤应怎样处理？”位列第 1 位，公开热度指标为 475 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，有蒙不法分子打着反对石油勘探的口号，未经许可闯入位于苏赫巴托尔省的中资石油勘探企业营地，并对中方员工的人身自由和财产权益造成侵扰，更进一步冲撞和侮辱中方员工，同时自行进行现场直播并发布至网络平台。 据中国驻蒙古国大使馆微信公号消息，8月18日，曹利临时代办约见蒙古工矿部国务秘书达希普日布，经商处参赞刘京志在座。 曹利就近日蒙不法分子擅闯中资石油勘探企业营地，滋扰正常经营，并破坏公司财物、侮辱中方员工事提出严正关切，表示此前使馆已同蒙外交部领事局、警察总局及时沟通，敦促蒙方严惩不法分子。使馆已注意到蒙工矿部、警察总局等部门相继发声，严厉批驳不法分子恶
+来源公开摘要显示：7月31日，陈女士（化名）带着一双儿女在天津东疆湾沙滩景区游玩。两个孩子进入景区划定的泳区不到10分钟，便先后遭海蜇蜇伤。 ▲陈女士女儿被海蜇蜇伤后留下大片疤痕 被蜇伤的女儿入院不久便出现呼吸衰竭、肺水肿，被下达病危通知书，转入ICU抢救。 下水不到10分钟孩子被蜇 救生员近在5米内却未下水 陈女士向记者反映，购票时没有听到景区安全播报，售票员也没有提醒海中可能有海蜇，进入沙滩后也未见相关警示标识。陈女士说，因事发水域是景区浮漂划定的开放泳区，她才认为孩子可以正常戏水。 下水不到10分钟，陈女士上岸整理物品，仅一分钟就听见两个孩子哭喊。她急忙下水，先接住
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [《黑神话：钟馗》15分钟实机演示](wu-gu-feng-deng.md)
-- [“准两万亿”之城要上桌了](liu-shen-wu-zhu.md)
+- [年轻人开始流行“养砖头”](liu-shen-wu-zhu.md)
 - [泡泡玛特IP格局大变](qi-shang-ba-xia.md)
-- [武汉市委秘书长曾晟被查](ba-mian-ling-long.md)
+- [江苏盐城爆响](ba-mian-ling-long.md)
 
 ## 站内推荐
 
 - [孩子小学二年级，班主任为51个娃设53个官职，包括窗台管理员、前后门管理员等，如何评价此事？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
 - [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
 - [华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [青岛文旅关闭评论区](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [废弃输液管被曝做成9.9元手机壳](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [从当当网李国庆抢公章，到海特高新百人强闯海威华芯，为何企业内部冲突、争夺控制权总要抢公章？真的有用吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [《黑神话：钟馗》实机终极深扒，游科成为世界第一ARPG开发商的底气！【游戏之外】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [月租600电费400 租客不敢开空调](http://www.daogukj.com/7394302)
+- [遇见小面连续 4 年降价，平均客单价降到 27.7 元，上半年净利涨超 50% ，为什么降价后赚更多？](http://www.daogukj.com/7394302)
 - [【独家】时光代理人 第三季 PartOne 第3集 血洗缅挝【8月国创】](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [张本美和：对阵孙颖莎拿1分都侥幸](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [一杯芋圆葡萄398元？马勒别墅回应](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
 - [孩子小学二年级，班主任为51个娃设53个官职，包括窗台管理员、前后门管理员等，如何评价此事？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [女子明知患艾滋病仍卖淫50次](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [孙骁骁说生二胎是对老公和婆家的肯定](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
 - [【独家/完结】《将夜》第19集 光明之夜【4月国创】](http://www.daogukj.com/thgdlrxk/)
-- [为什么分手后，大脑常常放大美好回忆，却淡化当初决定离开的原因？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [张雪称岛内查扣1辆送1辆直到两岸统一](http://www.daogukj.com/qqvbmaen/)
-- [在公厕差点被陌生人杀害](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [绍兴柯桥蓝天广场](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [46岁小罗正式复出](http://www.daogukj.com/qqvbmaen/)
+- [公摊 霍英东](http://www.movie.hkepx.cn/xiju/4761615.htm)
 - [泡泡玛特IP格局大变](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [张雪说送到统一为止](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [在公厕差点被陌生人杀害](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
 - [全面拆解钟馗隐藏细节！《黑神话钟馗》PV逐帧解析](http://www.daogukj.com/6313812)
-- [如何评价真人互动影视游戏作品《绍宋：还我河山》？](http://www.daogukj.com/wczbkkvt/)
-- [老板半年被骗1400多万 6名演员被抓](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [公摊 霍英东](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [男子不接受公司主动离职安排，公司设「监狱式待岗工位」，每日打卡四次并接受监控，公司这么做合适吗？](http://www.daogukj.com/wczbkkvt/)
+- [赖岳谦：解放军一旦登岛就不会再走](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [网红卖淫秽视频被抓时问会判刑吗](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
 - [人工智能助力中国传统文化推陈出新](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [樊振东首秀已售超3000张票](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.movie.hkepx.cn/xiju/4060100.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [孟子义李昀锐第三视角](http://www.daogukj.com/jjlkzcvz/)
-- [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [诶特一下酷酷的王俊凯](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [46岁张柏芝海上冲浪](http://www.daogukj.com/drcaefzl/)
-- [从《黑神话：钟馗》最新的实机展示来看，是否游戏仍然延续了《黑神话：悟空》的线性关卡设计？](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [男子直播造谣台风致人无饭吃被罚](http://www.daogukj.com/rrxeunix/)
-- [旭日旗校徽系AI合成 造谣者被拘](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [陈伟霆 进组10多天遭换角](http://www.daogukj.com/qekijaaa/)
-- [拼豆大卫雕像撞脸赵本山宋小宝](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [河清海晏开机](http://www.daogukj.com/jjlkzcvz/)
+- [为什么武侠游戏里都没有广东、广西、海南的门派呢？](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [18岁哈尔滨速滑运动员被迫截肢](http://www.daogukj.com/drcaefzl/)
+- [逃出妙瓦底四川小伙泣血提醒](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [情侣未做安全措施女方怀孕引产索赔](http://www.daogukj.com/rrxeunix/)
+- [唯谣言马首是瞻？马首第1个不同意](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [沈腾开口嘴瓢全场大笑](http://www.daogukj.com/qekijaaa/)
+- [曝 iPhone17 系列国内销量超 4000 万，为何消费者仍青睐苹果？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
 - [各地水利部门多措并举度汛观察](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [情侣未做安全措施女方怀孕引产索赔](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [“大不了送外卖”暴露了什么](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [医院能办结婚证了](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [唯谣言马首是瞻？马首第一个不同意](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [乘客开门杀致人死亡 司机获刑](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [GDP排名下滑印度经济怎么了](http://www.movie.hkepx.cn/movie/2815069.htm)
 - [我的蚊子生病了，带它去看病](http://www.daogukj.com/4880877)
-- [孙骁骁说生二胎是对老公和婆家的肯定](http://www.daogukj.com/gyblgzpw/)
+- [美莎克致广西两地159死10失联](http://www.daogukj.com/gyblgzpw/)
 - [宝马iX3价格](http://www.daogukj.com/3742193)
 - [举手之劳 亦是人间微光](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [奥德修斯，跟我牛来拼你有这个实力吗？！](http://www.daogukj.com/yhmvbvtt/)
-- [女子用了公用瑜伽垫后感染HPV](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [本周演唱会热门推荐](http://www.daogukj.com/4405323)
+- [媒体：机器人真正的大战才刚刚开始](http://www.daogukj.com/yhmvbvtt/)
+- [《一饭封神》里评委说莫氏鸡煲“技术含量不高”，谢霆锋却夸“鸡好汤好喝”，你更认同哪种评价？](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [从《黑神话：钟馗》最新的实机展示来看，是否游戏仍然延续了《黑神话：悟空》的线性关卡设计？](http://www.daogukj.com/4405323)
 - [华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [针灸师以理疗为名约女护士发生关系](http://www.daogukj.com/ydbbqbuc/)
+- [陈伟霆 进组10多天遭换角](http://www.daogukj.com/ydbbqbuc/)
 - [知道为啥这乐队没主唱了吧](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
 - [停更7年，我又以经典的方式玩MC](http://www.daogukj.com/5927597)
-- [花椒的味道那么奇怪，为什么古代最高级别的宠爱会叫“椒房之宠”呢？](http://www.daogukj.com/3691526)
-- [网红卖淫秽视频被抓时问会判刑吗](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [餐厅辟谣398一杯的芋圆葡萄](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [怎么看待芬兰研究人员发现儿童的屏幕时间与青少年时期认知处理能力的正向统计关联？](http://www.daogukj.com/3691526)
+- [北大教授称灵活就业是福利](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [房主反杀非法上门强拆者，陕西判了，无罪](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
 - [30岁失业男子饿20天急性肾衰](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [300W核弹级风冷笔记本！HyperX暗影精灵MAX 290HX Plus+5080游戏本体验评测。](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [佟大为庆祝与关悦结婚19周年](http://www.daogukj.com/9555051)
-- [王者荣耀全网寻撞持刀男子外卖员](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [一家四口高速刹车失灵 交警远程引导](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [任重读妻子表白信哭了](http://www.daogukj.com/9555051)
+- [单位没有人情味](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待蒙不法分子擅闯中资营地侮辱中方员工，中方向蒙方提出交涉？](https://www.zhihu.com/question/2073199570427953525)
+- [女童遭海蜇蜇伤进 ICU 抢救，母亲称5米外救生员未施救，景区和救生员该担责吗？被海蜇蜇伤应怎样处理？](https://www.zhihu.com/question/2073853872498374552)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d3ee453c4a11abde4c92 -->
+<!-- content-fingerprint: b78f65fe3105d3829a22 -->
