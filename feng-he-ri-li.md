@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 中国U17女足被抽签淘汰
+# “大不了送外卖”暴露了什么
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7519713 · 更新：2026-08-21T08:57:24+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7523650 · 更新：2026-08-21T10:34:40+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中国U17女足被抽签淘汰”位列第 3 位，公开热度指标为 7519713。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““大不了送外卖”暴露了什么”位列第 3 位，公开热度指标为 7523650。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，某地一名14岁孩子因赌气称“大不了去送外卖”，被父亲送去体验，话题引发讨论。浙江宣传发文指出，全国外卖骑手人数已突破千万，但这一职业常被当作“退路”和“吃苦教育”素材，暴露出对体力劳动者的认知偏差。文章认为，职业尊严要靠制度托底，平台应优化算法与保障，社会也应给予骑手更多体谅。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [上海餐厅 必须用ig预定](chun-nuan-hua-kai.md)
-- [女子飞机排泄全机人被迫闻40分钟臭味](qiu-gao-qi-shuang.md)
-- [字已经丑到了人神共愤的地步，请问怎么把字练好？](bing-tian-xue-di.md)
+- [泡泡玛特IP格局大变](chun-nuan-hua-kai.md)
+- [女子穿睡衣站高楼窗沿 当地回应](qiu-gao-qi-shuang.md)
+- [孩子小学二年级，班主任为51个娃设53个官职，包括窗台管理员、前后门管理员等，如何评价此事？](bing-tian-xue-di.md)
 - [【独家】时光代理人 第三季 PartOne 第3集 血洗缅挝【8月国创】](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
-- [江苏盐城爆响](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [“准两万亿”之城要上桌了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
 - [父女黄河大堤失踪 车上录音曝光](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [哈登3年9700万美元续约骑士](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [男子捡3根金条以为是假货随手扔了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [广州地铁回应母亲为孩子硬挤屏蔽门](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [曾辉小沈阳这段诡异得像AI生成](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [王者荣耀全网寻撞持刀男子外卖员](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [冯骥分享游戏科学内部十条工作原则「好玩是目标，也是底线」，游戏从业者看完这十条准则有什么感受？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男子捡3根金条以为是假货随手扔了](http://www.daogukj.com/2989641)
-- [万字精讲方程豹轿车系列首款车型-方程S！](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [我国气候异常](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [这是上班还是坐牢](http://www.daogukj.com/5775563)
-- [大数据杀熟 3台手机竟显示3个价格](http://www.daogukj.com/1579567)
-- [女子用了公用瑜伽垫后感染HPV](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [女子连续3年陪丈夫祭奠其亡妻](http://www.daogukj.com/rvgjqsig/)
-- [停更7年，我又以经典的方式玩MC](http://www.daogukj.com/vcxumdys/)
-- [知道为啥这乐队没主唱了吧](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [王者荣耀全网寻撞持刀男子外卖员](http://www.daogukj.com/2989641)
+- [解放军新锐武器：可覆盖台海与那国岛](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [哈尔滨速滑运动员截肢](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [泡泡玛特上半年营收 171.7 亿元，净利润 50.4 亿元，低于市场预期，如何评价其业绩表现？](http://www.daogukj.com/5775563)
+- [长城偶遇冯绍峰父子](http://www.daogukj.com/1579567)
+- [孙骁骁说生二胎是对老公和婆家的肯定](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [《一饭封神》里评委说莫氏鸡煲“技术含量不高”，谢霆锋却夸“鸡好汤好喝”，你更认同哪种评价？](http://www.daogukj.com/rvgjqsig/)
+- [46岁小罗正式复出](http://www.daogukj.com/vcxumdys/)
+- [重庆市原副市长江敦涛被公诉](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
 - [398一杯的芋圆葡萄](http://www.daogukj.com/4998351)
-- [80、90、00后退休时间](http://www.daogukj.com/puqecrgq/)
-- [广州地铁回应母亲为孩子硬挤屏蔽门](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [如何看待起点中文网集中处置下架一批 AI 痕迹过重的网络小说，不予推荐？](http://www.daogukj.com/mbleegev/)
-- [如何看待《诡秘之主》称游戏开发总成本已达12亿，大型MMO没10亿上不了桌？钱都烧哪了？能回本吗？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [男子捡3根金条以为假的随手扔掉](http://www.daogukj.com/9378743)
-- [你还记得庞中华吗](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [爷爷骑三轮过马路被误认成孙悟空](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [【万字硬核考据】全方位拆解《黑钟馗》-主角/怪物/战斗/剧情/符箓](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [网购水果骗局](http://www.daogukj.com/4067994)
-- [Deepseek涨价了，有哪些便宜的替代方案？](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [杨旭文孔雪儿 天行九歌](http://www.daogukj.com/0687577)
-- [花椒的味道那么奇怪，为什么古代最高级别的宠爱会叫“椒房之宠”呢？](http://www.daogukj.com/0028791)
-- [【独家/完结】《将夜》第19集 光明之夜【4月国创】](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [大学生疯狂刷多段实习，有人大二时已经积累了六段实习，实习为什么越来越「卷」？这份实习焦虑从何而来？](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [湖北通城集中销毁24辆“炸街”车](http://www.daogukj.com/0384955)
-- [广东、山西、新疆宣布今年起上调最低工资标准，非全日制小时最低工资同步提高，哪些信息值得关注？](http://www.daogukj.com/yjaakhwu/)
-- [沈腾又忘记扶杨幂了](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [媒体：“速成车”踩下“刹车”](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [江苏盐城爆响](http://www.daogukj.com/6760233)
-- [怎么看待芬兰研究人员发现儿童的屏幕时间与青少年时期认知处理能力的正向统计关联？](http://www.daogukj.com/0471626)
-- [迪丽热巴跑男时期的感觉回来啦](http://www.daogukj.com/znjtiiff/)
-- [为什么武侠游戏里都没有广东、广西、海南的门派呢？](http://www.daogukj.com/dduwvxya/)
+- [孟子义李昀锐第三视角](http://www.daogukj.com/puqecrgq/)
+- [冯骥分享游戏科学内部十条工作原则「好玩是目标，也是底线」，游戏从业者看完这十条准则有什么感受？](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [这是我经历过的最恐怖的“形影不离”](http://www.daogukj.com/mbleegev/)
+- [小米扫拖机器人避障不灵撞坏百万家具，消费者质疑商家宣传未说明缺点，能向小米索赔吗？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [男子聚会拒敬酒遭殴打致死已判赔](http://www.daogukj.com/9378743)
+- [陈伟霆 进组10多天遭换角](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [医院能办结婚证了](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [真实版大炮打蚊子](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [男子捡3根金条以为假的随手扔掉](http://www.daogukj.com/4067994)
+- [终于走回深圳了｜挑战上海走回深圳最后一集！！](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [星之牧饮](http://www.daogukj.com/0687577)
+- [知道为啥这乐队没主唱了吧](http://www.daogukj.com/0028791)
+- [涉蚌埠普高录取工作通知为虚假文件](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [癌症疫苗 个性化VS广谱](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [江苏盐城爆响](http://www.daogukj.com/0384955)
+- [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](http://www.daogukj.com/yjaakhwu/)
+- [碟中谍](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [2026 LPL第三赛段组内赛 BLG 2:1 LGD，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [“准两万亿”之城要上桌了](http://www.daogukj.com/6760233)
+- [停更7年，我又以经典的方式玩MC](http://www.daogukj.com/0471626)
+- [男子直播造谣台风致人无饭吃被罚](http://www.daogukj.com/znjtiiff/)
+- [如何评价真人互动影视游戏作品《绍宋：还我河山》？](http://www.daogukj.com/dduwvxya/)
 - [如何看待蒙不法分子擅闯中资营地侮辱中方员工，中方向蒙方提出交涉？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [男子重病期间立遗嘱遗产全部留给弟弟不给妻儿，引爆房产争夺战，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [《影之刃零》专场 State of Play 全程回顾](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [孙骁骁写信深情表白任重](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [假如你是一个诗人](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [月租600电费400 租客不敢开空调](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [蟹塘每天被国宝「东方白鹳」吃掉三四万元螃蟹，塘主直呼扛不住，有哪些好的解决办法吗？塘主的损失谁该负责？](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [男子连饮两场酒后身亡 法院判了](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.daogukj.com/jmwlrqbo/)
-- [何婧婧流产原因是胚胎优胜劣汰](http://www.daogukj.com/7834239)
-- [曾辉小沈阳这段诡异得像AI生成](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [开了个大会聘了个骗子 谁买单](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [遇见小面连续 4 年降价，平均客单价降到 27.7 元，上半年净利涨超 50% ，为什么降价后赚更多？](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [动态视频｜火箭降落的全过程，拍到了！](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [花椒的味道那么奇怪，为什么古代最高级别的宠爱会叫“椒房之宠”呢？](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [余承东官宣行业首发无网通信](http://www.daogukj.com/jmwlrqbo/)
+- [张雪称岛内查扣1辆送1辆直到两岸统一](http://www.daogukj.com/7834239)
+- [余承东：L3是新能源抗贬值硬通货](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [湖北通城集中销毁24辆“炸街”车](http://www.movie.hkepx.cn/movie/2182682.htm)
 - [【独家】时光代理人 第三季 PartOne 第3集 血洗缅挝【8月国创】](http://www.daogukj.com/5450676)
-- [《空枪》票房突破8000万](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [女子连续3年陪丈夫祭奠其亡妻](http://www.movie.hkepx.cn/xiju/5833368.htm)
 - [中国铁路加速驶入AI赋能新阶段](http://www.daogukj.com/3022115)
-- [男子聚会拒敬酒遭殴打致死已判赔](http://www.daogukj.com/9730014)
-- [涉蚌埠普高录取工作通知为虚假文件](http://www.daogukj.com/vgdwnerp/)
-- [美军驱逐舰南海断电 4 天，是否预示美海军舰艇维护困境？](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [失业男子饿20天致肾衰竭](http://www.daogukj.com/pmvtaymm/)
+- [武汉市委秘书长曾晟被查](http://www.daogukj.com/9730014)
+- [卧底河北代孕机构](http://www.daogukj.com/vgdwnerp/)
+- [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [网红卖淫秽视频被抓时问会判刑吗](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
 ## 原始来源
 
-- [中国U17女足被抽签淘汰](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BDU17%E5%A5%B3%E8%B6%B3%E8%A2%AB%E6%8A%BD%E7%AD%BE%E6%B7%98%E6%B1%B0&sa=fyb_news&rsv_dl=fyb_news)
+- [“大不了送外卖”暴露了什么](https://www.baidu.com/s?wd=%E2%80%9C%E5%A4%A7%E4%B8%8D%E4%BA%86%E9%80%81%E5%A4%96%E5%8D%96%E2%80%9D%E6%9A%B4%E9%9C%B2%E4%BA%86%E4%BB%80%E4%B9%88&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 65af5c2272a35a5708c1 -->
+<!-- content-fingerprint: da5327a05d54d6b80cdb -->
