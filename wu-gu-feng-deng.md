@@ -2,11 +2,11 @@
 
 # "复活吧！我的（ ）"
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：3644220 · 分类：网络游戏 · 更新：2026-08-23T02:43:28+08:00
+> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：3654005 · 分类：网络游戏 · 更新：2026-08-23T03:14:26+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“"复活吧！我的（ ）"”位列第 1 位，公开热度指标为 3644220，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“"复活吧！我的（ ）"”位列第 1 位，公开热度指标为 3654005，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：致准星上的微光，重逢的微风和那个夏天。 2026.8.21
 
@@ -36,33 +36,33 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [孙楠跳舞像老实人豁出去了](http://www.movie.hkepx.cn/xiju/9473962.htm)
-- [乘法的本质是什么？](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
-- [机器人跑出9秒32打破人类百米纪录](http://www.daogukj.com/9950285)
+- [韩国明年2月开始禁止吃狗肉](http://www.movie.hkepx.cn/xiju/9473962.htm)
+- [如何看待顾客因平台漏洞55元捡漏1.4万元项链，商家补偿5元并要求主动退款？这种情况能要求发货吗？](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
+- [机器人和丁宁切磋球技](http://www.daogukj.com/9950285)
 - [披荆斩棘淘汰](http://www.daogukj.com/hdjwtczf/)
-- [曾被狼群抚养12年狼孩去世](http://www.movie.hkepx.cn/xiju/3930873.htm)
+- [山中失联男子从30多米高处坠崖](http://www.movie.hkepx.cn/xiju/3930873.htm)
 - [怎么看 DeepSeek 8 月22 日再调整定价，周末全天统一按低谷价收费？](http://www.daogukj.com/lahsyiok/)
 - [小沈阳投诉《披荆斩棘》导演组](http://www.movie.hkepx.cn/movie/2808271.htm)
 - [严肃观看儿子的历史记录](http://www.daogukj.com/pdxtjjps/)
 - [王源一句话让几万人低头看手机](http://www.movie.hkepx.cn/movie/8646334.htm)
-- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
+- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
 - [郭晓东张睿 越看越心酸](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
 - [顺直大改造-反畸形审美，棒打高街帝少萝cp！](http://www.daogukj.com/0662108)
 - [挑战让精神小妹一天花1500，看她怎么花](http://www.daogukj.com/ytojyrlp/)
 - [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.movie.hkepx.cn/xiju/5031303.htm)
 - [那英演唱会 肖战](http://www.movie.hkepx.cn/movie/6436180.htm)
 - [英雄联盟的"连招"概念为什么消失了？](http://www.daogukj.com/3990167)
-- [人民日报谈火车零食占座](http://www.movie.hkepx.cn/xiju/2312432.htm)
+- [曾被狼群抚养12年狼孩去世](http://www.movie.hkepx.cn/xiju/2312432.htm)
 - [9秒39！中国机器人打破博尔特百米成绩](http://www.movie.hkepx.cn/xiju/8661033.htm)
 - [人民日报：处置甲醛白菜必须从速从严](http://www.daogukj.com/0078862)
-- [女兵放弃本科从军8年后军士专升本](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
-- [机器人跳拉丁有多惊艳](http://www.daogukj.com/4309889)
+- [中国男篮时隔12年再进U18亚洲杯决赛](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
+- [王传君的雷霆野人妆是自己设计的](http://www.daogukj.com/4309889)
 - [住破房穿20块衣服男子20年攒下789万](http://www.daogukj.com/nprhrdaf/)
-- [中国男篮时隔12年再进U18亚洲杯决赛](http://www.movie.hkepx.cn/movie/1442506.htm)
+- [机器人跳拉丁有多惊艳](http://www.movie.hkepx.cn/movie/1442506.htm)
 - [曾被狼群抚养12年的西班牙狼孩去世](http://www.daogukj.com/4057647)
-- [亚朵“枕头被子”收入逼近主业](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
-- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
-- [以色列土耳其会爆发冲突吗](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
+- [马克龙宣布进一步加强对乌军事支持](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
+- [网友发现18岁黑龙江速滑运动员王新睿被冰刀割伤左腿截肢，具体是怎么回事？若如网传是他人撞伤，能赔偿吗？](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
+- [你会花20多万买vala pro吗](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
 - [宇树预赛小组垫底 回应缩减参赛项目](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.movie.hkepx.cn/xiju/7985479.htm)
 - [起猛了，在7月新番看到短剧了...... 【泛式】](http://www.movie.hkepx.cn/movie/2019373.htm)
@@ -72,19 +72,19 @@
 - [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
 - [本关最优解：放70个窝瓜僵尸 【bilibilionly同人扶持计划】](http://www.daogukj.com/lzxgwnjt/)
 - [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/xiju/4607012.htm)
-- [零食占座当事人母亲发声](http://www.movie.hkepx.cn/movie/8010450.htm)
+- [实探追觅造车办公地：工位大片闲置](http://www.movie.hkepx.cn/movie/8010450.htm)
 - [约1000家兰州拉面店完成门头更换](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
 - [怎么看彭博社发布的「美国 AI 优势正在被中国迅速缩小」？](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
-- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
-- [怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？](http://www.movie.hkepx.cn/xiju/4057893.htm)
+- [如何看待现在好多小学初中生身高一米八？](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
+- [旅客买票占座放零食引争议，购票是否拥有座位全部使用权？](http://www.movie.hkepx.cn/xiju/4057893.htm)
 - [男孩被民警掌掴近1个月未能正常上学](http://www.daogukj.com/mgibxpfj/)
 - [上学都被没收过哪些东西？](http://www.movie.hkepx.cn/movie/3059200.htm)
 - [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
 - [机器人秀释小龙旋风踢 给自己干趴下](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
 - [三个台风出现了](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
 - [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](http://www.movie.hkepx.cn/xiju/2631994.htm)
-- [80岁西班牙“狼孩”去世](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
-- [55元捡漏1.41万项链女子获5元补偿](http://www.daogukj.com/qfedcfsy/)
+- [以色列土耳其会爆发冲突吗](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
+- [男子错过服务区找了个“野生”充电桩](http://www.daogukj.com/qfedcfsy/)
 - [上海一餐厅订餐须用国外软件？不实](http://www.daogukj.com/djjsqhar/)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 34fed3e6feb07b2a785a -->
+<!-- content-fingerprint: e3098cc3da715a6d208b -->
