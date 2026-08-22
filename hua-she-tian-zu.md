@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 人民日报：处置甲醛白菜必须从速从严
+# “座位是给人坐的 不是来放零食的”
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7808872 · 更新：2026-08-23T07:29:47+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7808095 · 更新：2026-08-23T07:52:27+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“人民日报：处置甲醛白菜必须从速从严”位列第 1 位，公开热度指标为 7808872。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““座位是给人坐的 不是来放零食的””位列第 1 位，公开热度指标为 7808095。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月22日，自媒体博主曝光河北张家口康保县部分大白菜装车前蘸甲醛溶液保鲜。当天下午康保县通报确认情况属实，已对相关人员、车辆采取强制措施并追溯白菜流向。《人民日报》评论称：食品安全无小事，必须从速从严处置。眼下最紧迫的任务，就是顺着运输链条一追到底，及时拦截，避免更多群众买到问题菜品。
+来源公开摘要显示：近期，两女孩多买一张车票堆放零食、拒绝无座乘客借坐引发争议，12306客服曾回应称座位处置权属购票人。对此，中国铁路成都局集团有限公司发布说明称，对应006号席位旅客未检票乘车已放弃席位使用权，另两名旅客不能占用处置该席位，列车工作人员应现场协调处置。文章分析指出，座位是为人运输设计的服务设施而非商品。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -20,16 +20,16 @@
 
 - [人民日报谈火车零食占座](yi-xin-yi-yi.md)
 - [蘸了甲醛的白菜怎样辨认](san-xin-er-yi.md)
-- [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](si-hai-wei-jia.md)
+- [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](si-hai-wei-jia.md)
 - ["复活吧！我的（ ）"](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
 - [具身智能机器人正加速迈向应用](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [处暑撞上出伏 这几件事记得做](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [没打HPV疫苗不能入学系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [今日处暑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [日本地震](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [必须从速从严处置甲醛白菜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [王传君说的是乔任梁吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [那英演唱会嘉宾是肖战](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [退休后，把全国的县城都逛一遍这主意怎么样？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [蘸了甲醛的白菜怎样辨认](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [《走马》夯爆了](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [男子错过服务区找了个“野生”充电桩](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [吃完享福去了](http://www.daogukj.com/ihcjjgzd/)
-- [上学都被没收过哪些东西？](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [那英演唱会嘉宾是肖战](http://www.daogukj.com/hytgpxub/)
-- [李维嘉追星成功王菲](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [2026羽毛球世锦赛，中国男单选手全部止步 16 强‌，创历史最差成绩。对此你怎么看呢？](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [如何看待现在好多小学初中生身高一米八？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [机器人跑出9秒32打破人类百米纪录](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [2026羽毛球世锦赛，中国男单选手全部止步 16 强‌，创历史最差成绩。对此你怎么看呢？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [冉莹颖邹市明车内发生争吵](http://www.daogukj.com/ihcjjgzd/)
+- [《走马》夯爆了](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.daogukj.com/hytgpxub/)
+- [55元捡漏1.41万项链女子获5元补偿](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [【纪录片】守护解放西·探案季 第十集 难以“置信”](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.movie.hkepx.cn/xiju/6451502.htm)
 - ["复活吧！我的（ ）"](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [到底是「女主播隐瞒已婚诱导粉丝打赏2500万」，还是「榜一大哥敲诈式维权」？此事关键在哪？](http://www.daogukj.com/8357764)
-- [世界人形机器人运动会亮点](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [“座位是给人坐的 不是来放零食的”](http://www.daogukj.com/rdfrumhx/)
-- [如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [“速成车”的危害有多大](http://www.daogukj.com/lntrsvpz/)
-- [加拿大将对美国商品征收报复性关税](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [9秒39！中国机器人打破博尔特百米成绩](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [曾被狼群抚养12年狼孩去世](http://www.daogukj.com/mofrooiq/)
+- [⚡️很恐怖游戏，使我大叫⚡️](http://www.daogukj.com/8357764)
+- [中国经济是一片大海经得起风浪](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [郭敬明剧组减肥方法](http://www.daogukj.com/rdfrumhx/)
+- [张睿故意还是不小心的](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [从心理学上怎样理解「一个人被及时满足是永远不可能长大的」？怎么克服这种不被及时满足的不舒服感？](http://www.daogukj.com/lntrsvpz/)
+- [新赛季第一战，曼联 0-2 赫尔城，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [高市早苗用蟑螂作秀翻车](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [那英“压轴”点名王菲](http://www.daogukj.com/mofrooiq/)
 - [肖战假装要走这段](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [女孩试衣时被人掀开门帘 警方介入](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [住破房穿20块衣服男子20年攒789万](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [专家：座位是给人坐的不是来放零食的](http://www.daogukj.com/8424365)
-- [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [什么操作会对电脑造成永久性伤害？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [起猛了，在7月新番看到短剧了...... 【泛式】](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [必须从速从严处置甲醛白菜](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](http://www.daogukj.com/4727274)
-- [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [西班牙人1比2皇马](http://www.daogukj.com/2266153)
-- [《黑神话：钟馗》15分钟实机演示](http://www.daogukj.com/3795795)
-- [《下一个是谁》第七季（3）](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [吃蜘蛛眼就可以飞去末地外岛？！这个bug简直是艺术品！](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [郭敬明剧组减肥方法](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [网友发现18岁黑龙江速滑运动员王新睿被冰刀割伤左腿截肢，具体是怎么回事？若如网传是他人撞伤，能赔偿吗？](http://www.daogukj.com/uhjkuxrm/)
-- [【纪录片】守护解放西·探案季 第十集 难以“置信”](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [披荆斩棘淘汰](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [日本地震](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [机器人坐机器马闪亮登场开幕式](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [住破房穿20块衣服男子20年攒下789万](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [人民日报：处置甲醛白菜必须从速从严](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [机器人坐机器马闪亮登场开幕式](http://www.daogukj.com/8424365)
+- [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [我正在烧烤…哦不是..思考..](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [女孩试衣时被人掀开门帘 警方介入](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [上学都被没收过哪些东西？](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [上千台中国机器人向国旗行注目礼](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [吃完享福去了](http://www.daogukj.com/4727274)
+- [世界人形机器人运动会](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [今日处暑](http://www.daogukj.com/2266153)
+- [处暑](http://www.daogukj.com/3795795)
+- [中国男篮时隔12年再进U18亚洲杯决赛](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [法国同意协助乌联络有爱国者导弹国家](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [零食占座当事人母亲发声](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [《黑神话：钟馗》15分钟实机演示](http://www.daogukj.com/uhjkuxrm/)
+- [没打HPV疫苗不能入学系谣言](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [皇马2-1绝杀西班牙人](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [26-27赛季德甲乒乓球联赛，樊振东 3:1 贝塔斯迈尔，豪取杜塞尔多夫首秀胜利，如何评价本场比赛?](http://www.movie.hkepx.cn/movie/8064840.htm)
 - [严肃观看儿子的历史记录](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
-- [【独家】《凡人修仙传之慕兰之战》第12集【总第188集】](http://www.daogukj.com/5905118)
-- [上千台中国机器人向国旗行注目礼](http://www.daogukj.com/gchjscql/)
+- [宇树机器人100米预赛小组垫底](http://www.daogukj.com/5905118)
+- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.daogukj.com/gchjscql/)
 - [暑期旅游市场迸发新活力](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [女兵放弃本科从军8年后军士专升本](http://www.daogukj.com/9269800)
-- [王源一句话让几万人低头看手机](http://www.daogukj.com/7091853)
-- [桃酥是没有一滴水的](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [约1000家兰州拉面店完成门头更换](http://www.daogukj.com/2402025)
-- [女主播被控诈骗2500万元](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [王源一句话让几万人低头看手机](http://www.daogukj.com/9269800)
+- [机器人跳高近3米刷新人类极限纪录](http://www.daogukj.com/7091853)
+- [专家：座位是给人坐的不是来放零食的](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.daogukj.com/2402025)
+- [樊振东一单两分率队取胜](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
 - [樊振东新赛季首秀](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [人民日报：处置甲醛白菜必须从速从严](https://www.baidu.com/s?wd=%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5%EF%BC%9A%E5%A4%84%E7%BD%AE%E7%94%B2%E9%86%9B%E7%99%BD%E8%8F%9C%E5%BF%85%E9%A1%BB%E4%BB%8E%E9%80%9F%E4%BB%8E%E4%B8%A5&sa=fyb_news&rsv_dl=fyb_news)
+- [“座位是给人坐的 不是来放零食的”](https://www.baidu.com/s?wd=%E2%80%9C%E5%BA%A7%E4%BD%8D%E6%98%AF%E7%BB%99%E4%BA%BA%E5%9D%90%E7%9A%84+%E4%B8%8D%E6%98%AF%E6%9D%A5%E6%94%BE%E9%9B%B6%E9%A3%9F%E7%9A%84%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1fa4dd1534296bed7f28 -->
+<!-- content-fingerprint: 51c86e2dffcad3ff1078 -->
