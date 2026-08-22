@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 被控致婴儿严重疾病 雅培赔超45亿
+# 9秒39！中国机器人打破博尔特百米成绩
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7520525 · 更新：2026-08-22T20:55:50+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7520263 · 更新：2026-08-22T21:38:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“被控致婴儿严重疾病 雅培赔超45亿”位列第 3 位，公开热度指标为 7520525。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“9秒39！中国机器人打破博尔特百米成绩”位列第 3 位，公开热度指标为 7520263。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：美国雅培公司20日宣布，就旗下早产婴儿配方奶粉被控致病诉讼达成6.7亿美元（约合45亿元人民币）和解协议，但雅培不承认对相关“奶粉致病”事件负有责任。此前一陪审团于2024年认定，雅培奶粉致伊利诺伊州一名女婴患坏死性小肠结肠炎，判赔4.95亿美元，上诉法院今年5月维持原判。
+来源公开摘要显示：8月22日，人形机器人运动会开幕。机器人“百米飞人”大战，跑出9秒39的成绩，破博尔特纪录。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -25,11 +25,11 @@
 
 ## 站内推荐
 
-- [中国E-bike在国外爆火](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [谁给王传君化的妆](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [必须彻查多少甲醛白菜已流入市场](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [高考699分农家女孩已申请助学贷款](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [老人40多年的劳力士丢了 是老伴遗物](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [李胜峰：交给解放军保护台湾](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
 - [55元捡漏1.41万项链女子获5元补偿](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [白血病不再是不治之症](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [为什么普京这次对日本如此强硬](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
@@ -37,53 +37,53 @@
 <summary>展开更多相关内容</summary>
 
 - [55元捡漏1.41万项链女子获5元补偿](http://www.daogukj.com/2989641)
-- [Angelababy像是来和我结婚的](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [女孩求职被拒发现自己竟是“精神病”](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [张婧仪大理素颜爬山](http://www.daogukj.com/5775563)
-- [李昀锐和机器人“闪电”百米赛跑](http://www.daogukj.com/1579567)
+- [谁给王传君化的妆](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [欢子入院 美容院](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [TheShy力竭](http://www.daogukj.com/5775563)
+- [这些“小毛病”别不当回事](http://www.daogukj.com/1579567)
 - [王菲给那英送花篮了](http://www.movie.hkepx.cn/xiju/6976513.htm)
 - [墨香铜臭 亿级版权](http://www.daogukj.com/rvgjqsig/)
 - [网友把蔡徐坤当路人p掉了](http://www.daogukj.com/vcxumdys/)
-- [“听劝版”低糖旺仔牛奶](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [多方回应23楼开灯被对面20楼投诉](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
 - [亚朵卖枕头被子收入快赶上酒店主业](http://www.daogukj.com/4998351)
-- [龙餐馆](http://www.daogukj.com/puqecrgq/)
-- [白血病不再是不治之症](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [《下一个是谁》第七季（3）](http://www.daogukj.com/mbleegev/)
-- [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [约1000家兰州拉面店完成门头更换](http://www.daogukj.com/9378743)
-- [披荆斩棘直播](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [怎么看彭博社发布的「美国 AI 优势正在被中国迅速缩小」？](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [2026女排亚锦赛](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [华润置地香港新盘创纪录](http://www.daogukj.com/4067994)
-- [入职体检发现曾被误登记为“精神病”](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [男子调包未婚妻五金后典当骗208万获刑](http://www.daogukj.com/0687577)
-- [男子患癌在车间自缢 公司赔20余万](http://www.daogukj.com/0028791)
-- [湖南祁东3人迷晕孩童系谣言](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [黑乌龟历险记vol.1](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [4步手机自查身份证是否被别人绑定](http://www.daogukj.com/puqecrgq/)
+- [为什么普京这次对日本如此强硬](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？](http://www.daogukj.com/mbleegev/)
+- [怎么看彭博社发布的「美国 AI 优势正在被中国迅速缩小」？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [走马](http://www.daogukj.com/9378743)
+- [机器人秀释小龙旋风踢 给自己干趴下](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [女孩求职被拒发现自己竟是“精神病”](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [晋江作者大会](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [桃酥是没有一滴水的](http://www.daogukj.com/4067994)
+- [胖东来生活广场顾客更多了：7点就排队](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [机器人百米飞人战预赛破人类纪录](http://www.daogukj.com/0687577)
+- [男子调包订婚五金典当套现208万](http://www.daogukj.com/0028791)
+- [那英演唱会包厢堪比春晚](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [《晒足一百ber天3.0》](http://www.movie.hkepx.cn/xiju/7549792.htm)
 - [女孩652分考入军校 太爷爷是红军烈士](http://www.daogukj.com/0384955)
-- [加缪：如果正义必须伤害无辜，它还是正义吗？](http://www.daogukj.com/yjaakhwu/)
-- [凡人修仙传动漫188集观众满意吗？](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [英雄联盟的"连招"概念为什么消失了？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [中国E-bike在国外爆火](http://www.daogukj.com/6760233)
-- [当1000倍计量的毒品进入身体，会发生什么？](http://www.daogukj.com/0471626)
-- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.daogukj.com/znjtiiff/)
-- [我收容了100位粉丝到我的一辈子存档里！](http://www.daogukj.com/dduwvxya/)
+- [举手之劳 亦是人间微光](http://www.daogukj.com/yjaakhwu/)
+- [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [如何看待现在好多小学初中生身高一米八？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [高考699分农家女孩已申请助学贷款](http://www.daogukj.com/6760233)
+- [2026村超全国赛总决赛](http://www.daogukj.com/0471626)
+- [陈柏霖等台湾艺人因逃避兵役首度被传唤出庭，当庭认罪，哪些信息值得关注？为什么这么多台艺人要冒这个风险？](http://www.daogukj.com/znjtiiff/)
+- [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.daogukj.com/dduwvxya/)
 - [广东一车主把海鲜忘在车里4天，海鲜腐烂生了很多蛆，车是密封的，虫卵是从哪来的啊？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [举手之劳 亦是人间微光](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [吃完享福去了](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
 - [严肃观看儿子的历史记录](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
 - ["复活吧！我的（ ）"](http://www.movie.hkepx.cn/movie/1344966.htm)
 - [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/movie/7886240.htm)
 - [本关最优解：放70个窝瓜僵尸 【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
 - [孙悟空比太上老君差多少？为什么感觉太上老君怕孙悟空？](http://www.movie.hkepx.cn/xiju/5857827.htm)
 - [世界人形机器人运动会赛程](http://www.daogukj.com/jmwlrqbo/)
-- [陈柏霖等台湾艺人因逃避兵役首度被传唤出庭，当庭认罪，哪些信息值得关注？为什么这么多台艺人要冒这个风险？](http://www.daogukj.com/7834239)
-- [中央气象台发布暴雨蓝色预警](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [荣耀机器人9秒32破人类百米世界纪录](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [什么操作会对电脑造成永久性伤害？](http://www.daogukj.com/7834239)
+- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [张峻豪说没有热单时严浩翔的反应](http://www.movie.hkepx.cn/movie/2182682.htm)
 - [【独家】《凡人修仙传之慕兰之战》第12集【总第188集】](http://www.daogukj.com/5450676)
-- [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [以米游为代表的国产二游是否事实上在一定程度上接替了一部分买断制单机的生态位？](http://www.movie.hkepx.cn/xiju/5833368.htm)
 - [越来越多宝藏小城藏不住了](http://www.daogukj.com/3022115)
-- [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.daogukj.com/9730014)
-- [王菲去看了那英演唱会](http://www.daogukj.com/vgdwnerp/)
+- [你会花20多万买vala pro吗](http://www.daogukj.com/9730014)
+- [上海一餐厅订餐须用国外软件？不实](http://www.daogukj.com/vgdwnerp/)
 - [已有约1000家兰州拉面变为青海拉面](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
 - [零食占座当事人母亲发声](http://www.daogukj.com/pmvtaymm/)
 
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [被控致婴儿严重疾病 雅培赔超45亿](https://www.baidu.com/s?wd=%E8%A2%AB%E6%8E%A7%E8%87%B4%E5%A9%B4%E5%84%BF%E4%B8%A5%E9%87%8D%E7%96%BE%E7%97%85+%E9%9B%85%E5%9F%B9%E8%B5%94%E8%B6%8545%E4%BA%BF&sa=fyb_news&rsv_dl=fyb_news)
+- [9秒39！中国机器人打破博尔特百米成绩](https://www.baidu.com/s?wd=9%E7%A7%9239%EF%BC%81%E4%B8%AD%E5%9B%BD%E6%9C%BA%E5%99%A8%E4%BA%BA%E6%89%93%E7%A0%B4%E5%8D%9A%E5%B0%94%E7%89%B9%E7%99%BE%E7%B1%B3%E6%88%90%E7%BB%A9&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0fc05a4649f3163a6961 -->
+<!-- content-fingerprint: 2a4f2018eb616238bc05 -->
