@@ -2,11 +2,11 @@
 
 # 427万辆召回 没有一款油车
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7521853 · 更新：2026-08-24T02:31:53+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7521706 · 更新：2026-08-24T03:00:44+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“427万辆召回 没有一款油车”位列第 3 位，公开热度指标为 7521853。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“427万辆召回 没有一款油车”位列第 3 位，公开热度指标为 7521706。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：8月21日，国家市场监督管理总局公告，特斯拉、小米等9家新能源车企因隐藏式电释放车门把手隐患备案召回427.51万辆，其中特斯拉召回297.59万辆。9家车企，没有一款是油车。
 
@@ -27,65 +27,65 @@
 
 - [花5.9万养发被剃光头拔白发](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
 - [普京拍桌](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [5岁女童科技馆中遭机器人踢中面部](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [小孩哥用麻将搭了个磁悬浮列车](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [专家称12345应实名制](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [东风日产致歉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [老人店内离世店主协商赔偿1.9万元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [中国这届机器人有多牛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [小孩哥用麻将搭了个磁悬浮列车](http://www.daogukj.com/2989641)
-- [梁王世锦赛夺冠](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [老人店内离世店主协商赔偿1.9万元](http://www.daogukj.com/2989641)
+- [滴滴专车配无糖可乐](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
 - [破产姐妹史上最长售后](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [金季酒店老板娘发声](http://www.daogukj.com/5775563)
-- [中国这届机器人有多牛](http://www.daogukj.com/1579567)
-- [东风日产致歉](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [买票占座规则明确了然后呢](http://www.daogukj.com/5775563)
+- [梁王世锦赛夺冠](http://www.daogukj.com/1579567)
+- [从140瘦到了95斤](http://www.movie.hkepx.cn/xiju/6976513.htm)
 - [四十多岁女丁克想生孩子](http://www.daogukj.com/rvgjqsig/)
-- [真的...没有人类了](http://www.daogukj.com/vcxumdys/)
-- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [李金铭李佳航同框 梦回《爱情公寓》](http://www.daogukj.com/vcxumdys/)
+- [神坛之下06｜金碧妖庭歌舞盛，觥筹交错人为宴！](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
 - [张元英走路姿势](http://www.daogukj.com/4998351)
-- [尼格买提有多少次被认成撒贝宁](http://www.daogukj.com/puqecrgq/)
-- [专家称12345应实名制](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [列车上可以吃自助餐了](http://www.daogukj.com/puqecrgq/)
+- [中国这届机器人有多牛](http://www.movie.hkepx.cn/movie/8856283.htm)
 - [韩红基金会救护车采购陷争议，市场监管部门称供应商已被立案调查，哪些信息值得关注？](http://www.daogukj.com/mbleegev/)
-- [时隔9年口碑大反转，《我的前半生》2026年突然全网爆火，真正原因到底是什么？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [如何评价《凡人修仙传》动画188集，黄龙山大战正式开始，但在线人数却依旧下跌，才十万左右？你怎么看？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
 - [原来内向的人都是这样交朋友的](http://www.daogukj.com/9378743)
-- [列车上可以吃自助餐了](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [7.48元成本卖到598 企业被罚没3.8亿](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [曝刺棠女频大男主](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [尼格买提有多少次被认成撒贝宁](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [父亲直播目睹儿子篮球赛倒地后离世](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [买菜别光看卖相](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
 - [一定要珍惜你身体里尚存的欲望](http://www.daogukj.com/4067994)
-- [尹昉打戏太狠疯狂给辛芷蕾道歉](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [工程师：机器人自己选择了娇羞跑姿](http://www.daogukj.com/0687577)
-- [原来我是只蚊子！](http://www.daogukj.com/0028791)
+- [我收容了100位粉丝到我的一辈子存档里！](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [著名战地记者唐师曾逝世](http://www.daogukj.com/0687577)
+- [【纪录片TV】大乾乾被撞成两半了……](http://www.daogukj.com/0028791)
 - [【独家】《记忆管理局》第6集 空洞【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [我收容了100位粉丝到我的一辈子存档里！](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [【绍宋：还我河山】这一次，岳飞活下来！](http://www.movie.hkepx.cn/xiju/7549792.htm)
 - [中国大使怒斥菲方：我会让你付出代价](http://www.daogukj.com/0384955)
-- [抽象新闻：8月人类迷惑行为大赏（上）](http://www.daogukj.com/yjaakhwu/)
-- [银行员工称考核压力大自己买 1 万，基层员工「自费上班」抗 KPI 合理吗？银行业务目前面临什么困境？](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [现在哪个行业还是蓝海？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [现在哪个行业还是蓝海？](http://www.daogukj.com/yjaakhwu/)
+- [8 月鸡蛋价格差不多涨了七八毛，受哪些因素影响？还会持续上涨吗？](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [专家称12345应实名制](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
 - [花5.9万养发被剃光头拔白发](http://www.daogukj.com/6760233)
-- [如何评价美国海军最新公开的 AIM-424“恶意”远程空空导弹？](http://www.daogukj.com/0471626)
+- [真的...没有人类了](http://www.daogukj.com/0471626)
 - [三部门指导调查甲醛白菜事件](http://www.daogukj.com/znjtiiff/)
-- [嫦娥七号任务不满足发射条件，不能在今年预定窗口实施，原因可能有哪些？嫦娥七号原定将完成哪些主要任务？](http://www.daogukj.com/dduwvxya/)
-- [如何评价南信大团队在《Science》上发文「中国太阳能扩张政策导致鸟类生物多样性下降」？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [最近日本关于中国的媒体报道，我想跟大家说几句话](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [护理：一把斩向死亡的温柔刀](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [时隔9年口碑大反转，《我的前半生》2026年突然全网爆火，真正原因到底是什么？](http://www.daogukj.com/dduwvxya/)
+- [古人是否真的没有肉可以吃？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
+- [某些吃播博主的套路](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- ["复活吧！我的（ ）"](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [神坛之下06｜金碧妖庭歌舞盛，觥筹交错人为宴！](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [如何评价《凡人修仙传》动画188集，黄龙山大战正式开始，但在线人数却依旧下跌，才十万左右？你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [男子 20 年攒下 789 万，这种极致节俭的财富积累方式在当下还可行吗？](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [阿里巴巴拟配售 800 亿港元新股，全部投入 AI 建设，怎样解读这一操作？对市场有哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
 - [哈兰德剪掉标志性长发](http://www.movie.hkepx.cn/xiju/5857827.htm)
 - [TYL战胜JDG夺年度总冠军](http://www.daogukj.com/jmwlrqbo/)
 - [那英19岁女儿现身妈妈的演唱会](http://www.daogukj.com/7834239)
-- [老人店内离世店主协商赔偿1.9万元](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [公厕被殴案施暴男子已出狱](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
 - [芒果新人撞脸王一博](http://www.movie.hkepx.cn/movie/2182682.htm)
 - [【独家】牧神记 第97集 登基](http://www.daogukj.com/5450676)
-- [美加贸易谈判最后时刻破裂，美国将加征 50% 关税，加拿大将对美实施对等关税，将产生哪些影响？](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [著名战地记者唐师曾逝世，享年 65 岁，你对他有哪些记忆？](http://www.movie.hkepx.cn/xiju/5833368.htm)
 - [2万件中央救灾物资支持广西](http://www.daogukj.com/3022115)
 - [猫叼回1米长蛇 主人吓得夺门而出](http://www.daogukj.com/9730014)
 - [飞机散云止雨加重内蒙古旱情不实](http://www.daogukj.com/vgdwnerp/)
-- [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [韩红基金会救护车供应商大门紧闭](http://www.daogukj.com/pmvtaymm/)
+- [原来我是只蚊子！](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [亲密关系和婚育制度绑定太深](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4e4a0836ab8fc2693fbc -->
+<!-- content-fingerprint: e526a80e9363a6cc04c1 -->
