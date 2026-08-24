@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 警方通报「博主称小红书因遭举报上市失败」，造谣者已被行拘，其将承担哪些责任？此事对小红书影响有多大？
+# "复活吧！我的（ ）"
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：266 万热度 · 分类：问答 · 更新：2026-08-24T11:45:11+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：5788424 · 分类：网络游戏 · 更新：2026-08-24T12:33:53+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“警方通报「博主称小红书因遭举报上市失败」，造谣者已被行拘，其将承担哪些责任？此事对小红书影响有多大？”位列第 3 位，公开热度指标为 266 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“"复活吧！我的（ ）"”位列第 3 位，公开热度指标为 5788424，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，上海黄浦区一企业向黄浦警方报案称某自媒体博主发布内容为“知名企业上市失败”的不实帖文，对公司声誉造成负面影响。黄浦公安分局网安部门接报后迅速开展调查，锁定了该账号运营者莫某。 ▲上海黄浦警方供图。 经查，莫某在网上看到相关公司诉讼纠纷的信息，抱着博眼球的心态、在并未核实真伪的情况下，杜撰“企业上市失败”，随后发布在证券投资平台。相关帖文被社交平台自媒体引用、转发，造成一定恶劣影响。 最终，莫某因虚构事实扰乱秩序的违法行为被黄浦警方依法处以行政拘留处罚。同时，责令其删除相关内容并进行澄清。 新京报贝壳财经记者多方核实获悉，该平台企业为小红书。7月下旬
+来源公开摘要显示：致准星上的微光，重逢的微风和那个夏天。 2026.8.21
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `网络游戏`
 
 ## 相关热点
 
-- ["复活吧！我的（ ）"](shan-qing-shui-xiu.md)
-- [公司用敌敌畏给绿茶等餐厅消杀](feng-he-ri-li.md)
-- [105岁老妈说85岁儿子这辈子完了](chun-nuan-hua-kai.md)
-- [四川宜宾长宁县发生4.7级地震](qiu-gao-qi-shuang.md)
+- [先启半步颠回应“敌敌畏”消杀](shan-qing-shui-xiu.md)
+- [韩沛颖向刘浩存道歉](feng-he-ri-li.md)
+- [四川宜宾长宁县发生4.7级地震](chun-nuan-hua-kai.md)
+- [「泔水喂猪」被正式写入禁令，用剩菜剩饭直接喂猪有什么影响？为何禁止？](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
 - [男子省吃俭用 20 年攒下 789 万，6 天被骗子全部转空，带来哪些警示？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [「泔水喂猪」被正式写入禁令，用剩菜剩饭直接喂猪有什么影响？为何禁止？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [全网疯传深圳某炸鸡店“窒息45秒”事件，暴露年轻人的悲哀困境](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [创业板指跌逾3% 超4200只个股下跌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [长宁地震多地有感 监控画面晃动明显](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [原创民俗AI短片《槐灯》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [舞蹈新风暴舞者官宣](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [午评：创业板半日跌3.5%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [这类粗粮会让血糖飙升](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [张子枫好薄的一片](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [天工机器人「娇羞捂脸跑」出圈，这一跑姿为何能夺冠？背后做了哪些技术优化？](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [公司用敌敌畏给绿茶等餐厅消杀](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [宋亚轩 得物账号](http://www.daogukj.com/8743466)
-- [警员执法遇F-18战机坠落，6700万战损，飞行员报警求助！](http://www.daogukj.com/6087099)
-- [我这一生最大的罪，是把人写成了妖……](http://www.daogukj.com/8759192)
-- [世界人形机器人运动会现场画面](http://www.daogukj.com/nzlnmzmb/)
-- [朱雀三号八个月的逆袭之路](http://www.daogukj.com/6882941)
-- [看电影你会选普通话还是方言版](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [为什么吉林大学实力很强投档线却很低?](http://www.daogukj.com/9154473)
-- [【绍宋：还我河山】这一次，岳飞活下来！](http://www.daogukj.com/4411404)
-- [甲醛白菜严重透支公众信任](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [连锁餐厅 敌敌畏消杀](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [月子里两位老人共同照料爆发矛盾，母亲回了老家，夹在中间该怎么解决？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [中国大使怒斥菲方：我会让你付出代价](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [刺棠](http://www.daogukj.com/aztauuey/)
-- [消杀公司长期用敌敌畏给餐馆消杀，员工无资质配药，其涉嫌违反了哪些法律法规？这给食客带来哪些健康隐患？](http://www.daogukj.com/7343685)
-- [张韶涵因心脏病找母亲要医疗费未果](http://www.daogukj.com/dhbposmt/)
-- [官方提出补贴帮扶老人遭索赔店家](http://www.daogukj.com/1538095)
-- [网友收到长宁7.7地震预警 官方通报](http://www.daogukj.com/uznikqxj/)
-- [张韶涵深夜发文报平安](http://www.daogukj.com/5158126)
-- [长宁地震多地有感 监控画面晃动明显](http://www.daogukj.com/3616935)
-- [三台风扎堆营业 多地将有大暴雨](http://www.daogukj.com/pfvjuanz/)
-- [韩沛颖向刘浩存道歉](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [为照顾植物人丈夫 女子睡了9年沙发](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [A股](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [黄金](http://www.daogukj.com/asaygxgb/)
-- [美国记者激动称赞殷玉珍是超级英雄](http://www.daogukj.com/zxvfwrkb/)
-- [时隔9年口碑大反转，《我的前半生》2026年突然全网爆火，真正原因到底是什么？](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [【独家】《记忆管理局》第6集 空洞【8月国创】](http://www.daogukj.com/7717389)
-- [韩沛颖让王晓晨道歉](http://www.daogukj.com/9746581)
-- [超强台风「沙德尔」已睁眼，可能登陆东南沿海，影响路径走向的因素是什么？有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [创业板指跌逾3% 超4200只个股下跌](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [【短的发布会】牛X！华为首款“X”车智界RX，来了！](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [Anthropic 的 ARR 不及预期，OpenAI 比 A 社还差，AI 热潮要阶段性见顶了吗？](http://www.daogukj.com/7650204)
-- [台湾艺人疑因涉嫌损坏日本文物被捕](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [印度记者：中印已无可比性](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [丁程鑫机场被点名](http://www.daogukj.com/0995452)
-- [葡萄牙球员赛场上猝然离世](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [为什么叶文洁告诉罗辑黑暗森林法则呢？](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [神坛之下06｜金碧妖庭歌舞盛，觥筹交错人为宴！](http://www.daogukj.com/fivnrrsp/)
-- [「泔水喂猪」被正式写入禁令，用剩菜剩饭直接喂猪有什么影响？为何禁止？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [科比48岁诞辰日多人缅怀](http://www.daogukj.com/hldbetht/)
-- [实拍宜宾长宁4.7级地震：吊灯晃动明显](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [我做了两个一模一样的视频，你被分配到的是——真人手搓版](http://www.daogukj.com/phqakpps/)
-- [天工队400米决赛以38.15秒夺得本届机器人运动会首金，前三名均打破人类世界纪录，怎样评价这一成绩？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [为什么建议35岁就开始控糖](http://www.daogukj.com/adpyviat/)
-- [上半年经济增长4.7%说明了什么](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [四六级成绩](http://www.daogukj.com/1571628)
-- [无座票为何和二等座同价](http://www.daogukj.com/9492876)
+- [为什么吉林大学实力很强投档线却很低?](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [我这一生最大的罪，是把人写成了妖……](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [韩沛颖向刘浩存道歉](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [为什么叶文洁告诉罗辑黑暗森林法则呢？](http://www.daogukj.com/8743466)
+- [法老 退圈](http://www.daogukj.com/6087099)
+- [俄军向士兵投放便携式激光步枪](http://www.daogukj.com/8759192)
+- [上半年经济增长4.7%说明了什么](http://www.daogukj.com/nzlnmzmb/)
+- [中国连续17年保持全球第二大进口市场](http://www.daogukj.com/6882941)
+- [广东一镇有黑山羊遭蟒蛇袭击](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [多家餐厅残留液体敌敌畏检测阳性](http://www.daogukj.com/9154473)
+- [张韶涵因心脏病找母亲要医疗费未果](http://www.daogukj.com/4411404)
+- [国铁回应为何不能像民航那样提供列车托管儿童服务，称不具备条件，有哪些好的解决办法？](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [为何中国科技公司一上市就被抢到天价](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [普京：杀害卡德罗夫的罪行不能原谅](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [天工机器人「娇羞捂脸跑」出圈，这一跑姿为何能夺冠？背后做了哪些技术优化？](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [超强台风「沙德尔」已睁眼，可能登陆东南沿海，影响路径走向的因素是什么？有哪些信息值得关注？](http://www.daogukj.com/aztauuey/)
+- [演员韩沛颖发文向刘浩存道歉](http://www.daogukj.com/7343685)
+- [本次 15 分钟实机演示后，你预估《黑神话：钟馗》的销量是多少？](http://www.daogukj.com/dhbposmt/)
+- [月子里两位老人共同照料爆发矛盾，母亲回了老家，夹在中间该怎么解决？](http://www.daogukj.com/1538095)
+- [公司用敌敌畏给绿茶等餐厅消杀](http://www.daogukj.com/uznikqxj/)
+- [官方解答儿童能否单独乘火车出行](http://www.daogukj.com/5158126)
+- [这类粗粮会让血糖飙升](http://www.daogukj.com/3616935)
+- [警员执法遇F-18战机坠落，6700万战损，飞行员报警求助！](http://www.daogukj.com/pfvjuanz/)
+- [肯德基麦当劳的配方为何能数十年不泄露？](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [人形机器人跳远跳出7.97米夺冠](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [美日德英法这些国家为什么没有户口制度？](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [警方通报「博主称小红书因遭举报上市失败」，造谣者已被行拘，其将承担哪些责任？此事对小红书影响有多大？](http://www.daogukj.com/asaygxgb/)
+- [公务员碾死醉汉被认定过失致死，当事人因影响职业生涯再申诉，还可能有怎样的认定？法律上如何分析此事？](http://www.daogukj.com/zxvfwrkb/)
+- [连锁餐厅 敌敌畏消杀](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [刘浩存有段地府戏也被删了](http://www.daogukj.com/7717389)
+- [Anthropic 的 ARR 不及预期，OpenAI 比 A 社还差，AI 热潮要阶段性见顶了吗？](http://www.daogukj.com/9746581)
+- [男篮公布亚运会14人名单 无杨瀚森](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [午评：创业板半日跌3.5%](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [实习生把拒绝AI贴到公司电梯](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [今日出伏](http://www.daogukj.com/7650204)
+- [Attention 注意别喝多](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [克雷·汤普森放弃 980 万美元薪水加盟热火，此举对他意味着什么？](http://www.daogukj.com/0995452)
+- [著名战地记者唐师曾逝世](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [为照顾植物人丈夫 女子睡了9年沙发](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [26岁销售员验DNA成了比利时王子](http://www.daogukj.com/fivnrrsp/)
+- [原创民俗AI短片《槐灯》](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [【短的发布会】牛X！华为首款“X”车智界RX，来了！](http://www.daogukj.com/hldbetht/)
+- [《一个人坐车害怕》](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [韩沛颖让王晓晨道歉](http://www.daogukj.com/phqakpps/)
+- [暑期档乱成一锅粥](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [消杀公司长期用敌敌畏给餐馆消杀，员工无资质配药，其涉嫌违反了哪些法律法规？这给食客带来哪些健康隐患？](http://www.daogukj.com/adpyviat/)
+- [有没有一种可能，驾驶飞机的真实难度，其实并不比驾驶汽车难很多，实际上还可能更简单？](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [天工队400米决赛以38.15秒夺得本届机器人运动会首金，前三名均打破人类世界纪录，怎样评价这一成绩？](http://www.daogukj.com/1571628)
+- [325](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [警方通报「博主称小红书因遭举报上市失败」，造谣者已被行拘，其将承担哪些责任？此事对小红书影响有多大？](https://www.zhihu.com/question/2074915129171211419)
+- ["复活吧！我的（ ）"](https://b23.tv/BV1G48M6XEBt)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c4fdd37968126052469b -->
+<!-- content-fingerprint: 6db37787a9aed86cac66 -->
