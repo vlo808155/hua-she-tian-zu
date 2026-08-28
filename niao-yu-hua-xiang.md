@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 西藏吉隆泥石流由高位冰崩引发，这类灾害在监控和预警上有哪些难点？全球变暖背景下这类灾害会更频发吗？
+# 蜜雪冰城半年报净利下降 14.7%，如何看待其上市以来首次出现净利润同比下滑？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：170 万热度 · 分类：问答 · 更新：2026-08-28T08:01:01+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：301 万热度 · 分类：问答 · 更新：2026-08-28T19:17:11+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“西藏吉隆泥石流由高位冰崩引发，这类灾害在监控和预警上有哪些难点？全球变暖背景下这类灾害会更频发吗？”位列第 3 位，公开热度指标为 170 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“蜜雪冰城半年报净利下降 14.7%，如何看待其上市以来首次出现净利润同比下滑？”位列第 3 位，公开热度指标为 301 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：记者今天（27日）从自然资源部了解到，此次西藏吉隆泥石流灾害是尼泊尔境内发生高位冰崩，引发冰崩碎屑流，进而演化为泥石流的链式灾害。更多资讯请下载央视新闻客户端
+来源公开摘要显示：8月27日午间，蜜雪集团（02097.HK）在港交所发布截至2026年6月30日止六个月的中期业绩公告。报告期内，公司实现收入152.16亿元，同比增长2.3%；期内利润23.19亿元，同比下滑14.7%。这是蜜雪集团上市以来首次出现净利润同比下滑。 中期业绩发布后，资本市场反应迅速。8月27日午后，蜜雪集团股价直线下挫，盘中一度跌超12%，最低触及217.6港元。截至发稿，跌幅收窄至约7%，报230.4港元/股。公司年内累计跌幅已扩大至约45%，距离2025年上市以来最高点跌去逾六成。截至收盘，公司总市值约864.77亿港元。蜜雪冰城午后“闪崩”！半年
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《动物朋克》最新预告&实机演示 | 国产动作新游登陆科隆展](shan-qing-shui-xiu.md)
-- [手机卖不动 价格却涨了](feng-he-ri-li.md)
-- [尼泊尔山洪死亡人数升至389人](chun-nuan-hua-kai.md)
-- [网友质疑浙江省博物馆将「勾践」错写为「句践」，博物馆回应为尊重文物本名，到底哪种写法才是正确的？](qiu-gao-qi-shuang.md)
+- [看了10年网络热门生物，无穷小亮能看出AI吗？](shan-qing-shui-xiu.md)
+- [蒋超良受贿7.46亿余元被判死缓](feng-he-ri-li.md)
+- [蒋超良受贿7.46亿余元](chun-nuan-hua-kai.md)
+- [蒋超良贪7.46亿被判死缓](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [宗馥莉旗下啵啵汽水铺销售遇冷，直播62场销售额不足10万，为什么会遇冷？其自有品牌前景如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [打卡！打工！打钱！《异克斯小队》首曝PV](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [散步是“延寿”运动第一名](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [男子打水漂一发入魂 超1亿网友围观](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [江西省省长叶建春被查](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [西藏吉隆泥石流致 5 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [炸了！3亿代孕费！片场互相睡！2026头号大瓜新鲜出炉！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [原创动画《木蘭》第1季 第1集](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [刘雯井柏然恋情时间线](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [日本研究生在实验室遭化骨水淋头身亡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何评价《一人之下》第774（828）话？](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [男篮世预赛：中国队大胜卡塔尔](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [手机卖不动 价格却涨了](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [如何看待恒大 1.03 亿债权组合包拍卖以 14 万成交？对购房者、供应链上下游等会产生哪些连锁影响？](http://www.daogukj.com/8743466)
-- [西藏吉隆泥石流救援](http://www.daogukj.com/6087099)
-- [郑钦文美网决胜轮因雨推迟](http://www.daogukj.com/8759192)
-- [从绿色算力到词元经济](http://www.daogukj.com/nzlnmzmb/)
-- [翼龙无人机进入西藏吉隆勘察](http://www.daogukj.com/6882941)
-- [张可依：追风少女不吃压力](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [国防部：要求美方立即停止武装台湾](http://www.daogukj.com/9154473)
-- [孙宇晨说景甜主动提的代孕](http://www.daogukj.com/4411404)
-- [为什么中国人认为无座，是没有固定座位的意思，这种思维的底层逻辑是什么？](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [西藏吉隆受灾前后对比图](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [22岁女孩睡觉踩空惊醒确诊怪病](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [汽车仪表盘误差，必须上浮10%-20%才是真实速度，这样的隐性知识是怎么流传出来的？](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [原著结局奥德修斯重登王位，诺兰却安排忒勒马科斯继承王权，奥德修斯选择自我流放，诺兰为什么要这样处理？](http://www.daogukj.com/aztauuey/)
-- [英伟达单日市值暴涨4420亿美元](http://www.daogukj.com/7343685)
-- [你认为刘翔和上海体育局这次的矛盾最终会如何收场，为什么，双方的诉求存在调和的可能吗？](http://www.daogukj.com/dhbposmt/)
-- [C 罗上半场两球落后，不满摘下队长袖标，这一举动可能意味着什么？](http://www.daogukj.com/1538095)
-- [西藏吉隆救援最新进展](http://www.daogukj.com/uznikqxj/)
-- [“沙德尔”将在温岭到平阳一带登陆](http://www.daogukj.com/5158126)
-- [江西省省长叶建春被查](http://www.daogukj.com/3616935)
-- [【苏新皓｜4K直拍】Abracadabra 直拍｜重·二周年演唱会](http://www.daogukj.com/pfvjuanz/)
-- [三姐妹凌晨醉酒后，居然？？？ 【雷霆姐妹花2】](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [妻旅第2季四对夫妻两对离婚](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [7 万吨级货轮在印度洋发生沉船事故，18 名中国籍船员失联，目前情况如何？](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [「请 3 天假休 13 天」模式走红，透露出当代人怎样的休假观念？](http://www.daogukj.com/asaygxgb/)
-- [孙宇晨曾拍下巴菲特的午餐](http://www.daogukj.com/zxvfwrkb/)
-- [天池竟是巨型“不锈钢盆”](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [四川泸州近期发生山火？不实](http://www.daogukj.com/7717389)
-- [网友扒出星宇股份裁应届生被告到欧盟了，是真的吗？会对其造成什么影响？](http://www.daogukj.com/9746581)
-- [重庆一骑行道安装路障 当地回应](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [男子打水漂一发入魂 超1亿网友围观](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [蔚来最出圈的功能是实习生做的](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [汗血宝马满地打滚 外籍记者看呆了](http://www.daogukj.com/7650204)
-- [当你突然发现父母是亿万富翁](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [臣妾要自己私通自己【B站笑点大赛】](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [如何看待有AI以后大家海量水论文？](http://www.daogukj.com/0995452)
-- [宇宙加速膨胀之谜](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [省长叶建春任上被查 江西省委表态](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [沙德尔](http://www.daogukj.com/fivnrrsp/)
-- [打卡！打工！打钱！《异克斯小队》首曝PV](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [【本家投稿】東京真中 - ブレインロット feat. 重音テト](http://www.daogukj.com/hldbetht/)
-- [我被100名警察追捕，抓到我赢50万美金！](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [孙宇晨 仅退款](http://www.daogukj.com/phqakpps/)
-- [佳偶天成回款2.51亿](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [《背心尊者》](http://www.daogukj.com/adpyviat/)
-- [全力搜寻吉隆泥石流失联人员](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [难过](http://www.daogukj.com/1571628)
-- [怪兽中 出了一个...不对！是一群奥特曼的卧底！【AI全民制作人】](http://www.daogukj.com/9492876)
+- [尼泊尔灾后拒绝外国救援队](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [吃瓜必看！一个视频带你全面复盘景甜、孙宇晨炸裂大瓜！娱乐圈还是太乱了](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [蒋超良受贿7.46亿余元被判死缓](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [内蒙古游客飞身将景区的马骑走](http://www.daogukj.com/8743466)
+- [西藏泥石流已致5人遇难558人失联](http://www.daogukj.com/6087099)
+- [10万买奥迪A6 20万买玛莎拉蒂](http://www.daogukj.com/8759192)
+- [武警官兵正全力抢通道路](http://www.daogukj.com/nzlnmzmb/)
+- [中国数据产业规模超6万亿元](http://www.daogukj.com/6882941)
+- [媒体评企业嘴上喊“家人”转头猛裁人](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [Grand Theft Auto VI：分量十足的一瞥](http://www.daogukj.com/9154473)
+- [日本一研究生遭“化骨水”淋头身亡](http://www.daogukj.com/4411404)
+- [如果《Dota2》历年Ti冠亚军都反过来，那么CN赛区的风评会是什么样？各知名选手又会是什么评价？](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [052型驱逐舰首舰退役意味什么](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [《诡秘之主》手游被曝 PvP 平民暴击氪佬仅 1 血，是真的吗？将如何影响玩家体验？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [5G商用七年了，除了手机右上角多5G标识，网速体验和4G没差别，信号甚至更差，我该如何反驳这种观点？](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [上海 92%班主任不愿任职，年轻教师用诊断书回避，背后原因是什么？](http://www.daogukj.com/aztauuey/)
+- [日元创40年新低，美国突然出手，怎么回事儿？](http://www.daogukj.com/7343685)
+- [一年一度的中元节刚过，你最思念的人是谁？](http://www.daogukj.com/dhbposmt/)
+- [出生率回落 中国新生男孩仍比女孩多](http://www.daogukj.com/1538095)
+- [吉隆附近雪山发生雪崩](http://www.daogukj.com/uznikqxj/)
+- [吉隆泥石流已致5人遇难558人失联](http://www.daogukj.com/5158126)
+- [日本研究生在实验室遭化骨水淋头身亡](http://www.daogukj.com/3616935)
+- [吉隆泥石流灾害三维影像图首次公布](http://www.daogukj.com/pfvjuanz/)
+- [央视网评教师与耻辱合影事件](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [邵永灵：日本想改善关系高市必须道歉](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [媒体：考不好就“示众”辱人者终自辱](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [张子枫瘦成李维嘉了](http://www.daogukj.com/asaygxgb/)
+- [十四届全国人大常委会第二十四次会议在京闭幕](http://www.daogukj.com/zxvfwrkb/)
+- [小沈阳选人被拒绝9次](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [中国首位逃离塔科夫专属主播定制道具拥有者——油墨香车](http://www.daogukj.com/7717389)
+- [媒体：企业契约精神的螺丝该紧一紧了](http://www.daogukj.com/9746581)
+- [本周演唱会热门推荐](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [刘雯井柏然恋情时间线](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [吉隆口岸堰塞体上方多次二次垮塌](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [24岁女子因肥胖遭男友抛弃轻生](http://www.daogukj.com/7650204)
+- [城市里的「友情荒漠」是如何形成的？](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [怪兽中 出了一个...不对！是一群奥特曼的卧底！【AI全民制作人】](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [机器人的「大脑」应该长在身体里，还是放在云端？](http://www.daogukj.com/0995452)
+- [常冰玉6-3奥沙利文晋级决赛](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [跟着学，你在家也能做出油亮红润，肥而不腻的红烧肉#美食 #热门](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [披哥一公个人喜爱度排名](http://www.daogukj.com/fivnrrsp/)
+- [炸了！3亿代孕费！片场互相睡！2026头号大瓜新鲜出炉！](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [当你突然发现父母是亿万富翁](http://www.daogukj.com/hldbetht/)
+- [锐评新游 无限大 一次都没出来测过 何以得到玩家期待？](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [黑乌龟历险记](http://www.daogukj.com/phqakpps/)
+- [HWG!罗马诺官宣巴尔克拉加盟利物浦，如何评价这次交易？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [非洲有数十万只鸵鸟，为何狮子很少吃鸵鸟？抓不着还是鸵鸟肉难吃？](http://www.daogukj.com/adpyviat/)
+- [规上高技术制造业利润高速增长](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [一汽大众T6把4.8米纯电SUV打到13万](http://www.daogukj.com/1571628)
+- [小沈阳选人被拒绝九次](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [西藏吉隆泥石流由高位冰崩引发，这类灾害在监控和预警上有哪些难点？全球变暖背景下这类灾害会更频发吗？](https://www.zhihu.com/question/2076314353272190489)
+- [蜜雪冰城半年报净利下降 14.7%，如何看待其上市以来首次出现净利润同比下滑？](https://www.zhihu.com/question/2076612668605952164)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 817035a5e59560b4eb37 -->
+<!-- content-fingerprint: c48f9a4f7ecfe3354fd7 -->
