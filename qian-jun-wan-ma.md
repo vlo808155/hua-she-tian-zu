@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 武警官兵正全力抢通道路
+# 消防救援队已抵达受灾核心区
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：662902 · 分类：国内时政 · 更新：2026-08-28T19:17:11+08:00
+> 来源：微博热搜 · 排名：第 3 位 · 热度：98037 · 分类：民生新闻 · 更新：2026-08-29T05:27:31+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“武警官兵正全力抢通道路”位列第 3 位，公开热度指标为 662902，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“消防救援队已抵达受灾核心区”位列第 3 位，公开热度指标为 98037，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `国内时政`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [规上高技术制造业利润高速增长](wan-zi-qian-hong.md)
+- [全国社会物流总额同比增长5.0%](wan-zi-qian-hong.md)
 - [蜜雪冰城半年报净利下降 14.7%，如何看待其上市以来首次出现净利润同比下滑？](niao-yu-hua-xiang.md)
-- [看了10年网络热门生物，无穷小亮能看出AI吗？](shan-qing-shui-xiu.md)
-- [蒋超良受贿7.46亿余元被判死缓](feng-he-ri-li.md)
+- [【招笑版】新植物2:朝阳葵](shan-qing-shui-xiu.md)
+- [动画演示西藏吉隆泥石流灾害全程](feng-he-ri-li.md)
 
 ## 站内推荐
 
-- [男子面试被拒收到1000元茶水费](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [《新闻联播》正在直播](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [救援人员到达吉隆口岸救援核心位置](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [小米被曝更新售后政策，二手设备直接失去官方保修，怎么看待这件事？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [小沈阳选人被拒绝9次](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [青簪行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [房贷](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [官方：存量房贷还款困难可协商调整](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [21 岁大学生 3 年考 100 个证引热议，考证越多越好吗？对未来发展有什么帮助？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [如何评价galgame《友爱俱乐部》？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [原创动画《木蘭》第1季 第1集](http://www.daogukj.com/8034746)
-- [蒋超良受贿7.46亿余元被判死缓](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
-- [救援队抵达吉隆口岸救援核心位置](http://www.daogukj.com/yjeybyqr/)
-- [24岁女子因肥胖遭男友抛弃轻生](http://www.movie.hkepx.cn/movie/0234270.htm)
-- [052型驱逐舰首舰退役意味什么](http://www.movie.hkepx.cn/xiju/1436315.htm)
-- [小沈阳选人被拒绝九次](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
-- [吉隆泥石流已致5人遇难558人失联](http://www.movie.hkepx.cn/movie/0738215.htm)
-- [媒体曝追觅造车主体「星空计划」相关公司将注销，追觅汽车已从千人减员至仅剩几十人，这是造车梦碎了吗？](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
-- [媒体：考不好就“示众”辱人者终自辱](http://www.movie.hkepx.cn/xiju/4806301.htm)
-- [媒体评企业嘴上喊“家人”转头猛裁人](http://www.movie.hkepx.cn/xiju/7489093.htm)
-- [机器人的「大脑」应该长在身体里，还是放在云端？](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
-- [非洲有数十万只鸵鸟，为何狮子很少吃鸵鸟？抓不着还是鸵鸟肉难吃？](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
-- [连云港集中销毁烟花时发生爆炸，致邻市570多户房屋受损，为何会有这么大威力？此次事故暴露出哪些问题？](http://www.movie.hkepx.cn/movie/1016973.htm)
-- [吉隆附近雪山发生雪崩](http://www.movie.hkepx.cn/movie/8785597.htm)
-- [男子面试被拒收到1000元茶水费](http://www.daogukj.com/uxoqsalx/)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.movie.hkepx.cn/movie/2181882.htm)
+- [币圈富豪孙宇晨手撕景甜，索赔3千万彩礼，娱乐圈+金融圈惊天巨瓜！](http://www.daogukj.com/8034746)
+- [动画演示西藏吉隆泥石流灾害全程](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
+- [班主任下班偶遇学生 学生撒腿就跑](http://www.daogukj.com/yjeybyqr/)
+- [古代打仗攻城，为何非要攻城门，不能绕过去吗？](http://www.movie.hkepx.cn/movie/0234270.htm)
+- [扶老人被索赔店主捐出12万捐助款](http://www.movie.hkepx.cn/xiju/1436315.htm)
+- [出生率回落 中国新生男孩仍比女孩多](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
+- [韩国新生儿数创纪录 发生了什么](http://www.movie.hkepx.cn/movie/0738215.htm)
+- [当地回应教师与耻辱合影](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
+- [100万房贷月供可减少635元](http://www.movie.hkepx.cn/xiju/4806301.htm)
+- [郑钦文3连胜晋级美网正赛](http://www.movie.hkepx.cn/xiju/7489093.htm)
+- [蒋奇明檀健次金鹿奖影帝](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
+- [41岁爸爸送女儿出嫁走红](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
+- [博主：宇树科技的IPO闹剧反思录](http://www.movie.hkepx.cn/movie/1016973.htm)
+- [尼泊尔山洪已致579人遇难1924人失联](http://www.movie.hkepx.cn/movie/8785597.htm)
+- [青簪行](http://www.daogukj.com/uxoqsalx/)
+- [一斤五花肉可以做哪些美食呢？](http://www.movie.hkepx.cn/movie/2181882.htm)
 - [西藏吉隆泥石流致 5 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](http://www.movie.hkepx.cn/movie/6448079.htm)
-- [老年人越来越多，为什么银发经济不好做？](http://www.movie.hkepx.cn/movie/4252904.htm)
-- [说浙江防台过度的该歇一歇了](http://www.movie.hkepx.cn/movie/7165592.htm)
-- [【独家】时光代理人 第三季 PartOne 第4集 JAE【8月国创】](http://www.play.hengshemaoyi.cn/xiju/8975129.htm)
-- [警方通报成都蛋烘糕奶奶被镜头霸凌，对两博主进行批评教育，账号进行依法处置，怎样看待这一结果？](http://www.movie.hkepx.cn/xiju/1092537.htm)
-- [看了10年网络热门生物，无穷小亮能看出AI吗？](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
-- [当你突然发现父母是亿万富翁](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
-- [蒋超良受贿7.46亿余元](http://www.daogukj.com/5516263)
-- [西藏泥石流已致5人遇难558人失联](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
-- [吉隆泥石流灾害三维影像图首次公布](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
-- [央视网评教师与耻辱合影事件](http://www.daogukj.com/dxqevygl/)
-- [民警黄棚已在吉隆口岸坚守13年](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
-- [原来还有这么多小众的工作](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
-- [吃瓜必看！一个视频带你全面复盘景甜、孙宇晨炸裂大瓜！娱乐圈还是太乱了](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
-- [炸了！3亿代孕费！片场互相睡！2026头号大瓜新鲜出炉！](http://www.daogukj.com/zkdbaajm/)
-- [中国首位逃离塔科夫专属主播定制道具拥有者——油墨香车](http://www.movie.hkepx.cn/movie/3226951.htm)
+- [如何评价育碧在 Steam 上架《英雄无敌 3》却忘记发游戏文件，玩家仅下载到 23KB 占位符？](http://www.movie.hkepx.cn/movie/4252904.htm)
+- [钟楚曦 工作留痕的重要性](http://www.movie.hkepx.cn/movie/7165592.htm)
+- [【硬核横测】打工人《鱿鱼游戏》，三款AI搭子谁能让我“活”着下班？](http://www.play.hengshemaoyi.cn/xiju/8975129.htm)
+- [「地方附加税法」征求意见稿出台，实行 11%-13% 幅度税率，这一新税种对经济意味着什么？](http://www.movie.hkepx.cn/xiju/1092537.htm)
+- [【招笑版】新植物2:朝阳葵](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
+- [女子河堤摆摊按摩19.9元15分钟](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
+- [白敬亭P图为井柏然剧宣](http://www.daogukj.com/5516263)
+- [炸了！3亿代孕费！片场互相睡！2026头号大瓜新鲜出炉！](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
+- [中国第五座超一线城市会是谁](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
+- [房贷40年利息](http://www.daogukj.com/dxqevygl/)
+- [黄金](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
+- [不插管不抢救 最后一刻自己说了算](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
+- [用了5年的合法固定车位，被邻楼老太强行霸占，放完杂物直接砌水泥墩，物业管不了我该怎么办？](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
+- [上海 92%班主任不愿任职，年轻教师用诊断书回避，背后原因是什么？](http://www.daogukj.com/zkdbaajm/)
+- [《绝区零》3.2版本PV | 她与她的隐秘往事](http://www.movie.hkepx.cn/movie/3226951.htm)
 - [蜜雪冰城半年报净利下降 14.7%，如何看待其上市以来首次出现净利润同比下滑？](http://www.movie.hkepx.cn/movie/8362863.htm)
-- [最大黑马！00后常冰玉连斩3大强敌](http://www.movie.hkepx.cn/movie/9956114.htm)
-- [为什么平均每2年换一个首相的日本政治上反而比平均每5年换一个总统的韩国更稳定？](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
-- [四川内江地震](http://www.movie.hkepx.cn/xiju/7498992.htm)
-- [尼泊尔灾后拒绝外国救援队](http://www.movie.hkepx.cn/movie/5631141.htm)
-- [常冰玉6‑3奥沙利文 中国包揽冠亚军](http://www.daogukj.com/1160189)
-- [西藏泥石流已致5死558人失联](http://www.movie.hkepx.cn/movie/6067790.htm)
-- [刘雯井柏然恋情时间线](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
-- [5G商用七年了，除了手机右上角多5G标识，网速体验和4G没差别，信号甚至更差，我该如何反驳这种观点？](http://www.movie.hkepx.cn/movie/3280328.htm)
-- [锐评新游 无限大 一次都没出来测过 何以得到玩家期待？](http://www.daogukj.com/fkubbivn/)
-- [媒体：企业契约精神的螺丝该紧一紧了](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
-- [邵永灵：日本想改善关系高市必须道歉](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
-- [西藏吉隆口岸救援任务被迫暂缓](http://www.daogukj.com/pdxfeqmt/)
-- [张子枫瘦成李维嘉了](http://www.movie.hkepx.cn/xiju/4223434.htm)
-- [蒋超良贪7.46亿被判死缓](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
-- [一汽大众T6把4.8米纯电SUV打到13万](http://www.daogukj.com/9192187)
-- [HWG!罗马诺官宣巴尔克拉加盟利物浦，如何评价这次交易？](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
-- [追了很久的人为什么不建议在一起](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
+- [潘玮柏狂瘦8公斤](http://www.movie.hkepx.cn/movie/9956114.htm)
+- [比尔·盖茨发长文严厉警告人类注意AI](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
+- [看了10年网络热门生物，无穷小亮能看出AI吗？](http://www.movie.hkepx.cn/xiju/7498992.htm)
+- [低分班教师被安排耻辱合影官方致歉](http://www.movie.hkepx.cn/movie/5631141.htm)
+- [【2026LPL第三赛段】8月28日 TT vs IG](http://www.daogukj.com/1160189)
+- [英国姑娘打假中国留学生的切面包](http://www.movie.hkepx.cn/movie/6067790.htm)
+- [30岁双985硕士重新高考](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
+- [蒋超良贪7.46亿被判死缓](http://www.movie.hkepx.cn/movie/3280328.htm)
+- [近600万法拍别墅收房一片废墟](http://www.daogukj.com/fkubbivn/)
+- [3分钟动画解析吉隆泥石流灾害全过程](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
+- [吉隆泥石流曾逆流而上又回流](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
+- [四川内江地震](http://www.daogukj.com/pdxfeqmt/)
+- [2025年中国新生儿792万人](http://www.movie.hkepx.cn/xiju/4223434.htm)
+- [吴晓波：大公积金时代或正在到来](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
+- [胡连馨 京洛再无佳人](http://www.daogukj.com/9192187)
+- [孩子读书优秀学历越高，换来的是赚钱晚，结婚晚，生子晚，家庭长期只投入得不到回报，你们觉得值吗？](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
+- [失望性情感隔离](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
 
 </details>
 
 ## 原始来源
 
-- [武警官兵正全力抢通道路](https://s.weibo.com/weibo?q=%E6%AD%A6%E8%AD%A6%E5%AE%98%E5%85%B5%E6%AD%A3%E5%85%A8%E5%8A%9B%E6%8A%A2%E9%80%9A%E9%81%93%E8%B7%AF)
+- [消防救援队已抵达受灾核心区](https://s.weibo.com/weibo?q=%E6%B6%88%E9%98%B2%E6%95%91%E6%8F%B4%E9%98%9F%E5%B7%B2%E6%8A%B5%E8%BE%BE%E5%8F%97%E7%81%BE%E6%A0%B8%E5%BF%83%E5%8C%BA)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 881b840b37fd910245f6 -->
+<!-- content-fingerprint: d436efb93fe2b9bec323 -->
