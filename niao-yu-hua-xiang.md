@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《小杨有约29#》：陈泽
+# 新加坡人几乎都是在外面吃饭，他们有没有预制菜？
 
-> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：410757 · 分类：搞笑 · 更新：2026-08-29T18:17:33+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：472 万热度 · 分类：问答 · 更新：2026-08-29T23:08:35+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《小杨有约29#》：陈泽”位列第 3 位，公开热度指标为 410757，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“新加坡人几乎都是在外面吃饭，他们有没有预制菜？”位列第 3 位，公开热度指标为 472 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：小杨有约第二十九期！ 视频内容纯属娱乐，不要当真～ 你希望在节目里看到谁呢？ 欢迎关注！一键三连也拜托了！！
+来源公开摘要显示：按照新加坡的模式，应该遍地都是预制菜才对？就好像加热就能吃的卤肉饭？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [“甲醛白菜”事件3人被刑拘](shan-qing-shui-xiu.md)
-- [还以为姜妍生娃了](feng-he-ri-li.md)
-- [长鑫存储起诉五角大楼](chun-nuan-hua-kai.md)
-- [新加坡人几乎都是在外面吃饭，他们有没有预制菜？](qiu-gao-qi-shuang.md)
+- [立志成为恶兽第一集](shan-qing-shui-xiu.md)
+- [“寿险一哥”上半年净利大涨228.6%](feng-he-ri-li.md)
+- [黄景瑜疯狂拥抱宋亚东](chun-nuan-hua-kai.md)
+- [樊振东无缘德国杯8强](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [【明日方舟×女神异闻录３ Reload】SideStory「月行水上」活动宣传PV](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [父亲实地考察物价后给女儿涨生活费](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [所有感情好的情侣都有一个共同点](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [官方回应建议取消ETC设备使用](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [父亲实地考察物价给女儿涨生活费](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [六岁男童旅游被烟花炸伤右眼几近失明，半年找不到放烟花的人，妈妈称「连告谁都不清楚」，到底谁该对此负责？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [赵心童vs常冰玉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [“甲醛白菜”事件3人被刑拘](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [拖欠上千万工程款镇政府账户被冻结](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [乒协公示亚锦赛选拔办法，王楚钦、孙颖莎等 5 人放弃参赛，背后有哪些原因？国乒亚锦赛前景如何？](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [华为全新三折叠手机外观曝光](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [还以为姜妍生娃了](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [葫芦娃救爷爷为什么要一个一个上？](http://www.daogukj.com/8743466)
-- [早春晴朗](http://www.daogukj.com/6087099)
-- [小伙入读国防科大家人盛装送学](http://www.daogukj.com/8759192)
-- [直击西藏吉隆口岸救援情况](http://www.daogukj.com/nzlnmzmb/)
-- [第六届中国新电商大会](http://www.daogukj.com/6882941)
-- [俄开始量产“星链”干扰器](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [古茗爆单](http://www.daogukj.com/9154473)
-- [余承东上手华为全新三折叠](http://www.daogukj.com/4411404)
-- [美团第二季营收同比增长 14.4%，经营利润环比由负转正，如何评价这一业绩？得益于哪些因素带动？](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [什么才是生活最好的状态？](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [【招笑版】新植物2:朝阳葵](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [《下一个是谁》恐怖特辑——无限循环的寺庙](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.daogukj.com/aztauuey/)
-- [猛男化身猎人，这次谁逃得掉？《Animals》🔥](http://www.daogukj.com/7343685)
-- [柬埔寨宣布电诈中心清零](http://www.daogukj.com/dhbposmt/)
-- [成都一男生高考超过本科线 157 分却报考高职，本人回应「想进铁路局当火车司机」，如何看待这一选择？](http://www.daogukj.com/1538095)
-- [探测淤泥下20米的生命迹象](http://www.daogukj.com/uznikqxj/)
-- [山姆回应女子用脱毛仪样品现场脱毛](http://www.daogukj.com/5158126)
-- [父亲实地考察物价给女儿涨生活费](http://www.daogukj.com/3616935)
-- [假如电鳗很早就灭绝了，生物学家能否通过其化石等推测出其可以放电？](http://www.daogukj.com/pfvjuanz/)
-- [尼泊尔山洪遇难人数升至 626 人、2426 人失联，目前当地情况如何？](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [41岁冻龄爸爸送女儿出嫁走红](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [肾脏不好的人身体会有哪些变化](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [尼泊尔山洪626人遇难2426人失联](http://www.daogukj.com/asaygxgb/)
-- [爸爸为了防止女儿早恋，带她到处旅游并故意把她晒黑，这种做法真的能起到防止早恋的作用吗？](http://www.daogukj.com/zxvfwrkb/)
-- [尼泊尔山洪已致626人遇难2426人失联](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [孙千腰以下全是腿](http://www.daogukj.com/7717389)
-- [奔驰、宝马发布短片讽刺速成车，对此你怎么看？](http://www.daogukj.com/9746581)
-- [人大博士谈孙颖莎的“松弛感”](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [官方回应建议取消ETC设备使用](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [郑丽文向西藏灾区捐款200万新台币](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [网友建议取消ETC 官方回应](http://www.daogukj.com/7650204)
-- [黑乌龟历险记](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [“无法善终的王。”](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [吃桃子没有问婆婆吃不吃，老公说我不礼貌。我做错了么？](http://www.daogukj.com/0995452)
-- [和小鬼，去新疆的沙漠里学唱跳！](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [当一个中专生成为脱口秀冠军](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [尼泊尔泥石流2426人失联](http://www.daogukj.com/fivnrrsp/)
-- [父亲实地考察物价后给女儿涨生活费](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [一场不按计划发生的旅行【出发吧少年 01】](http://www.daogukj.com/hldbetht/)
-- [欲买桂花同载酒，终不似，少年游。](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [黄轩刘浩存演夫妻 年龄差16岁](http://www.daogukj.com/phqakpps/)
-- [马路中间多出一座坟 10年未迁](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.daogukj.com/adpyviat/)
-- [根号15和根号17谁更接近4？](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [京东、阿里、拼多多发布最新季度财报，「赚钱的和增长的不再是同一家公司」，如何看待这一分化现象？](http://www.daogukj.com/1571628)
-- [如何看待 LPL 解说管泽元发布对着垃圾桶附文「48」的视频，被指玩选手黑梗？](http://www.daogukj.com/9492876)
+- [出生7天女婴查出牛奶蛋白过敏](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [从沈腾的新作《欢迎来龙餐馆》来说，美国是不是导致中东战乱不断的罪魁祸首？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [“寿险一哥”上半年净利大涨228.6%](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [火星哥喊话朴彩英](http://www.daogukj.com/8743466)
+- [全世界最爱开学之人](http://www.daogukj.com/6087099)
+- [被井柏然吻技演技迷住了](http://www.daogukj.com/8759192)
+- [中国成功研制近200项AI关键标准](http://www.daogukj.com/nzlnmzmb/)
+- [中国汽车何以全球圈粉](http://www.daogukj.com/6882941)
+- [这6类食物生吃更抗炎](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [景区“宠”游客 委屈只能员工自己吞](http://www.daogukj.com/9154473)
+- [我在PVZ中添加了大果？？ 【bilibilionly同人扶持计划】](http://www.daogukj.com/4411404)
+- [乘客称航班上遭邻座扇耳光 航司回应](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [尼泊尔泥石流2426人失联](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [怎么看谷歌开始测试 Gemini 3.8 Flash ，谷歌放弃 Pro 了吗？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [宋亚东KO击败乌马尔](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [蛋价为何一涨再涨](http://www.daogukj.com/aztauuey/)
+- [为什么我国这么多高层住宅，真的缺土地吗？](http://www.daogukj.com/7343685)
+- [中国把地月太空网线拉好了](http://www.daogukj.com/dhbposmt/)
+- [《爱情公寓》官方六年首次换头像，主演频繁合体，引发「回归季」猜测，可能性有多大？](http://www.daogukj.com/1538095)
+- [刚入警一年的她 失联在吉隆口岸](http://www.daogukj.com/uznikqxj/)
+- [“山寨车鼻祖”7年来首次盈利](http://www.daogukj.com/5158126)
+- [拖欠上千万工程款镇政府账户被冻结](http://www.daogukj.com/3616935)
+- [朱忠明任上海市政府党组书记](http://www.daogukj.com/pfvjuanz/)
+- [不与安东尼奥续约？中国足协辟谣](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [吃水果成了情绪社交](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [王一博ins素颜自拍](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [吉隆口岸大楼只剩钢筋骨架](http://www.daogukj.com/asaygxgb/)
+- [刚入警一年的女孩在吉隆口岸失联](http://www.daogukj.com/zxvfwrkb/)
+- [国家卫健委宣布白血病已非「不治之症」，多数患者可治愈，这一突破是如何实现的？背后有哪些医学原理？](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [中国足协辟谣不与安东尼奥续约](http://www.daogukj.com/7717389)
+- [西藏泥石流救援](http://www.daogukj.com/9746581)
+- [《我们的家2》](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [“甲醛白菜”事件3人被刑拘](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [王毅同尼泊尔外长通电话](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [您叫的骑手正忙 请稍后再拨](http://www.daogukj.com/7650204)
+- [钢筋石笼首次运抵吉隆抢险现场](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [小伙从200斤减到120斤考上国防科大](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [冲锋衣选颜色邪修大法](http://www.daogukj.com/0995452)
+- [代孕合法后女性就会变商品](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [奔驰、宝马发布短片讽刺速成车，对此你怎么看？](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [搬空系列迎来了它最大一票](http://www.daogukj.com/fivnrrsp/)
+- [六岁男童旅游被烟花炸伤右眼几近失明，半年找不到放烟花的人，妈妈称「连告谁都不清楚」，到底谁该对此负责？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [黄景瑜现身UFC上海站](http://www.daogukj.com/hldbetht/)
+- [爸爸为了防止女儿早恋，带她到处旅游并故意把她晒黑，这种做法真的能起到防止早恋的作用吗？](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [老叟戏顽童 白俄戏欧盟](http://www.daogukj.com/phqakpps/)
+- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [奔驰车停地库两年没开车内长毛发霉](http://www.daogukj.com/adpyviat/)
+- [一批高新装备投入西藏吉隆受灾核心区](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [孔绍逊已任甘肃省委副书记](http://www.daogukj.com/1571628)
+- [王菲现身阿那亚](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [《小杨有约29#》：陈泽](https://b23.tv/BV1s7tK6AECw)
+- [新加坡人几乎都是在外面吃饭，他们有没有预制菜？](https://www.zhihu.com/question/2076313906579096130)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fd0926a4f3ea46fa3cd2 -->
+<!-- content-fingerprint: 89f6f56d39eaa2d75198 -->

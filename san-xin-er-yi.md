@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？
+# 尼泊尔一重灾区3天仅挖通道路50米
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：1366 万热度 · 分类：问答 · 更新：2026-08-29T18:17:33+08:00
+> 来源：今日头条热榜 · 排名：第 1 位 · 热度：36385472 · 分类：热门事件 · 更新：2026-08-29T23:08:35+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？”位列第 1 位，公开热度指标为 1366 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“尼泊尔一重灾区3天仅挖通道路50米”位列第 1 位，公开热度指标为 36385472，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：西藏日喀则市吉隆县泥石流灾害救援持续进行中。今晨，应急管理部、国家消防救援局调派的中国救援队四川消防救援总队陆地搜救队，持续在吉隆口岸泥石流灾害现场开展废墟搜寻，队员们克服复杂地形条件，对重点区域进行细致勘查、拉网式排查，持续开展不间断搜救作业。 吉隆口岸搜救最新情况：救援队在吉隆拉网式排查搜救 按照现场指挥部部署，应急管理部、国家消防救援局调派的中国救援队与拉萨市消防救援机动支队陆地搜救队等联合编组，昨天（28日）从驻地紧急出发，以陆路方式向吉隆口岸方向行进。 经过约9个小时的连续急行军，队伍第一梯队先头组于昨天17时，抵达受灾严重的吉隆口岸救援核心位
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [【明日方舟×女神异闻录３ Reload】SideStory「月行水上」活动宣传PV](si-hai-wei-jia.md)
-- [小学初中新教材替换将全面完成](wu-gu-feng-deng.md)
-- [刘国梁参加国际乒联会议](liu-shen-wu-zhu.md)
-- [280元房型国庆价格飙至5850元合理吗](qi-shang-ba-xia.md)
+- [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？](si-hai-wei-jia.md)
+- [【明日方舟×女神异闻录３ Reload】SideStory「月行水上」活动宣传PV](wu-gu-feng-deng.md)
+- [民办教育正在“洗牌”](liu-shen-wu-zhu.md)
+- [吉隆口岸小邬警官确认平安](qi-shang-ba-xia.md)
 
 ## 站内推荐
 
-- [根号15和根号17谁更接近4？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [老叟戏顽童 白俄戏欧盟](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [18岁新生报到被误认为家长](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [余承东上手华为全新三折叠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [郑丽文向西藏灾区捐款200万新台币](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [一批高新装备投入西藏吉隆受灾核心区](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [《遗忘之海》“爱德华”流浪船长角色PV ——再来一杯！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [猛男化身猎人，这次谁逃得掉？《Animals》🔥](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [我在PVZ中添加了大果？？ 【bilibilionly同人扶持计划】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [王毅同尼泊尔外长通电话](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [吉隆口岸大楼只剩钢筋骨架](http://www.daogukj.com/dycpetil/)
-- [樊振东vs莫维利亚努](http://www.movie.hkepx.cn/movie/5655338.htm)
-- [3人涉“甲醛白菜”被刑拘](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
-- [肾脏不好的人身体会有哪些变化](http://www.daogukj.com/3221972)
-- [开学补作业现状](http://www.movie.hkepx.cn/movie/8631365.htm)
-- [泥石流冲击区域看不到任何建筑轮廓](http://www.movie.hkepx.cn/xiju/3338351.htm)
-- [探测淤泥下20米的生命迹象](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
-- [华为全新三折叠手机外观曝光](http://www.daogukj.com/vmuhfhdx/)
-- [《下一个是谁》恐怖特辑——无限循环的寺庙](http://www.movie.hkepx.cn/xiju/7746644.htm)
-- [18岁新生报到被误认为家长](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
-- [我在PVZ中添加了大果？？ 【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
-- [长鑫LPDDR6量产](http://www.daogukj.com/4437175)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.daogukj.com/lclnvtmc/)
-- [长鑫存储起诉五角大楼](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
-- [尼泊尔山洪遇难人数升至 626 人、2426 人失联，目前当地情况如何？](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
-- [奔驰、宝马发布短片讽刺速成车，对此你怎么看？](http://www.daogukj.com/0713363)
-- [【独家】《凡人修仙传之慕兰之战》第13集【总第189集】](http://www.movie.hkepx.cn/xiju/6077524.htm)
-- [假如电鳗很早就灭绝了，生物学家能否通过其化石等推测出其可以放电？](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
-- [【明日方舟×女神异闻录３ Reload】SideStory「月行水上」活动宣传PV](http://www.daogukj.com/9378383)
-- [41岁冻龄爸爸送女儿出嫁走红](http://www.movie.hkepx.cn/movie/3280477.htm)
-- [井柏然栾念在娱乐圈的资源](http://www.movie.hkepx.cn/movie/9632113.htm)
-- [婚宴17道主菜上错10道酒店被判赔偿](http://www.daogukj.com/6919034)
-- [UFC上海站肖龙1分钟遭TKO](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
-- [“无法善终的王。”](http://www.daogukj.com/ttcnrbsi/)
-- [新加坡人几乎都是在外面吃饭，他们有没有预制菜？](http://www.movie.hkepx.cn/movie/6836580.htm)
-- [什么才是生活最好的状态？](http://www.daogukj.com/dfvjlhgg/)
-- [尼泊尔山洪已致626人遇难2426人失联](http://www.movie.hkepx.cn/movie/8186104.htm)
-- [黑乌龟历险记](http://www.movie.hkepx.cn/movie/9874745.htm)
-- [京东、阿里、拼多多发布最新季度财报，「赚钱的和增长的不再是同一家公司」，如何看待这一分化现象？](http://www.daogukj.com/nkpmcahd/)
-- [搬空系列迎来了它最大一票](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
-- [新生儿792万 性别比改善](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
-- [男子面试提交方案，被拒后收到公司一千元「车马费与茶水费」，男子称「感受到尊重」，如何评价该做法？](http://www.movie.hkepx.cn/movie/4332345.htm)
-- [根号15和根号17谁更接近4？](http://www.movie.hkepx.cn/movie/8953215.htm)
-- [爸爸为了防止女儿早恋，带她到处旅游并故意把她晒黑，这种做法真的能起到防止早恋的作用吗？](http://www.daogukj.com/hhucwvns/)
-- [陪看樊振东德国杯](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
-- [乐清辟谣镇水兽被挖致台风频登陆](http://www.daogukj.com/lpvatlfx/)
-- [直击西藏吉隆口岸救援情况](http://www.daogukj.com/3115605)
-- [父亲实地考察物价后给女儿涨生活费](http://www.movie.hkepx.cn/movie/1459959.htm)
-- [吉隆口岸搜救设备暂未探到生命信号](http://www.daogukj.com/6281492)
-- [币圈富豪孙宇晨手撕景甜，索赔3千万彩礼，娱乐圈+金融圈惊天巨瓜！](http://www.movie.hkepx.cn/xiju/4232291.htm)
-- [长鑫存储](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
-- [这台价值69999元的ROG枪神10X主机，体验如何？](http://www.movie.hkepx.cn/movie/0376230.htm)
-- [武汉一大学学生“两手空空”轻装报到](http://www.movie.hkepx.cn/xiju/2775998.htm)
-- [美团第二季营收同比增长 14.4%，经营利润环比由负转正，如何评价这一业绩？得益于哪些因素带动？](http://www.daogukj.com/8542217)
-- [老叟戏顽童 白俄戏欧盟](http://www.movie.hkepx.cn/xiju/2386261.htm)
-- [为什么我国这么多高层住宅，真的缺土地吗？](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
-- [【招笑版】新植物2:朝阳葵](http://www.movie.hkepx.cn/movie/8948693.htm)
-- [刘国梁参加国际乒联会议](http://www.movie.hkepx.cn/movie/7516507.htm)
-- [人大博士谈孙颖莎的“松弛感”](http://www.daogukj.com/3234327)
-- [黄轩刘浩存演夫妻 年龄差16岁](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
+- [樊振东2比3户上隼辅](http://www.daogukj.com/dycpetil/)
+- [开学补作业现状](http://www.movie.hkepx.cn/movie/5655338.htm)
+- [用这种微信头像或被封号](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
+- [王一博ins素颜自拍](http://www.daogukj.com/3221972)
+- [乒协公示亚锦赛选拔办法，王楚钦、孙颖莎等 5 人放弃参赛，背后有哪些原因？国乒亚锦赛前景如何？](http://www.movie.hkepx.cn/movie/8631365.htm)
+- [早春晴朗要开虐了](http://www.movie.hkepx.cn/xiju/3338351.htm)
+- [刚入警一年的她 失联在吉隆口岸](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
+- [从沈腾的新作《欢迎来龙餐馆》来说，美国是不是导致中东战乱不断的罪魁祸首？](http://www.daogukj.com/vmuhfhdx/)
+- [宋亚东KO击败乌马尔](http://www.movie.hkepx.cn/xiju/7746644.htm)
+- [猛男化身猎人，这次谁逃得掉？《Animals》🔥](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
+- [樊振东 11-13 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
+- [受唐嫣资助的女孩被迫弃学](http://www.daogukj.com/4437175)
+- [蛋价为何一涨再涨](http://www.daogukj.com/lclnvtmc/)
+- [黄景瑜疯狂拥抱宋亚东](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
+- [不与安东尼奥续约？中国足协辟谣](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
+- [西藏泥石流救援](http://www.daogukj.com/0713363)
+- [男子面试提交方案，被拒后收到公司一千元「车马费与茶水费」，男子称「感受到尊重」，如何评价该做法？](http://www.movie.hkepx.cn/xiju/6077524.htm)
+- [朱忠明任上海市政府党组书记](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
+- [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？](http://www.daogukj.com/9378383)
+- [吃水果成了情绪社交](http://www.movie.hkepx.cn/movie/3280477.htm)
+- [《下一个是谁》恐怖特辑——无限循环的寺庙](http://www.movie.hkepx.cn/movie/9632113.htm)
+- [央视曝光保温杯造假套路](http://www.daogukj.com/6919034)
+- [吉隆口岸入警1年樊乐乐失联](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
+- [小伙从200斤减到120斤考上国防科大](http://www.daogukj.com/ttcnrbsi/)
+- [樊振东无缘德国杯8强](http://www.movie.hkepx.cn/movie/6836580.htm)
+- [尼泊尔泥石流2426人失联](http://www.daogukj.com/dfvjlhgg/)
+- [国家卫健委宣布白血病已非「不治之症」，多数患者可治愈，这一突破是如何实现的？背后有哪些医学原理？](http://www.movie.hkepx.cn/movie/8186104.htm)
+- [钢筋石笼首次运抵吉隆抢险现场](http://www.movie.hkepx.cn/movie/9874745.htm)
+- [孔绍逊已任甘肃省委副书记](http://www.daogukj.com/nkpmcahd/)
+- [余承东上手华为全新三折叠](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
+- [吃桃子没有问婆婆吃不吃，老公说我不礼貌。我做错了么？](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
+- [房子薄成这样原来真的有人住在里面](http://www.movie.hkepx.cn/movie/4332345.htm)
+- [一批高新装备投入西藏吉隆受灾核心区](http://www.movie.hkepx.cn/movie/8953215.htm)
+- [刚入警一年的女孩在吉隆口岸失联](http://www.daogukj.com/hhucwvns/)
+- [中国女排晋级亚锦赛决赛](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
+- [《洛克王国：世界》S4赛季「月涌狂想」PV首曝，新的冒险即将开启！](http://www.daogukj.com/lpvatlfx/)
+- [中国成功研制近200项AI关键标准](http://www.daogukj.com/3115605)
+- [六岁男童旅游被烟花炸伤右眼几近失明，半年找不到放烟花的人，妈妈称「连告谁都不清楚」，到底谁该对此负责？](http://www.movie.hkepx.cn/movie/1459959.htm)
+- [中国女排晋级决赛](http://www.daogukj.com/6281492)
+- [尼泊尔山洪遇难人数升至 669 人、2426 人失联，目前当地情况如何？](http://www.movie.hkepx.cn/xiju/4232291.htm)
+- [《小杨有约29#》：陈泽](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
+- [葫芦娃救爷爷为什么要一个一个上？](http://www.movie.hkepx.cn/movie/0376230.htm)
+- [火柴人 VS 我的世界 第四十集 苦力怕部族（Creeper Clan）](http://www.movie.hkepx.cn/xiju/2775998.htm)
+- [乘客称航班上遭邻座扇耳光 航司回应](http://www.daogukj.com/8542217)
+- [《遗忘之海》“爱德华”流浪船长角色PV ——再来一杯！](http://www.movie.hkepx.cn/xiju/2386261.htm)
+- [日本女排爆冷无缘亚锦赛决赛](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
+- [怎么看谷歌开始测试 Gemini 3.8 Flash ，谷歌放弃 Pro 了吗？](http://www.movie.hkepx.cn/movie/8948693.htm)
+- [民办教育正在“洗牌”](http://www.movie.hkepx.cn/movie/7516507.htm)
+- [《我们的家2》](http://www.daogukj.com/3234327)
+- [老叟戏顽童 白俄戏欧盟](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
 
 </details>
 
 ## 原始来源
 
-- [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？](https://www.zhihu.com/question/2076960285475042999)
+- [尼泊尔一重灾区3天仅挖通道路50米](https://www.toutiao.com/trending/7678730994773704730/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227678730994773704730%22%2C%22hot_board_impr_id%22%3A%22202608292308340FC0EEEB2B6FBC19990E%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c01c06fe091801d4ef1a -->
+<!-- content-fingerprint: 8de0c4c649eb02053e72 -->
