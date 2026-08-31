@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 军工企业骨干遭2国间谍围猎 细节披露
+# 全程高能！队友接连失踪？活着并逃离这里！！！「逃离疯人院」
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7427496 · 更新：2026-08-31T08:53:52+08:00
+> 来源：哔哩哔哩热门 · 排名：第 4 位 · 热度：301994 · 分类：单机游戏 · 更新：2026-08-31T14:57:01+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“军工企业骨干遭2国间谍围猎 细节披露”位列第 4 位，公开热度指标为 7427496。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“全程高能！队友接连失踪？活着并逃离这里！！！「逃离疯人院」”位列第 4 位，公开热度指标为 301994，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：三连总和过8w火速更新！！！！！ 夏天yB站交流群：291049296 原曲：Like A Star / Youngso Kim
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
 
 ## 相关热点
 
-- [网友意外拍到泥石流暴发瞬间](hua-she-tian-zu.md)
-- [女排 朱婷](yi-xin-yi-yi.md)
-- [泰国女排主帅称中国队100%晋级奥运会](san-xin-er-yi.md)
-- [官方通报「博主街头除钉因扬尘影响环保被叫停」，称工作人员沟通方式造成误解，有更好的处理方式吗？](si-hai-wei-jia.md)
+- [人民日报评银行该不该午休](hua-she-tian-zu.md)
+- [绝味鸭脖为啥卖不动了](yi-xin-yi-yi.md)
+- [边检民警进吉隆口岸搜救 女友也被埋](san-xin-er-yi.md)
+- [新版《国防动员法》2026 年 10 月 1 日实施，哪些信息值得关注？会带来什么影响？](si-hai-wei-jia.md)
 
 ## 站内推荐
 
-- [医疗防疫分队前往救援一线](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [杨洋花少下沉口碑](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [Ryan 性骚扰](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [王晶直言内娱顶流都不会演戏](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [吉隆救援人员淤泥中手脚并用成泥人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [我有不能输的理由](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [【招笑版】新植物4:滚木坚果](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [对面牢玩家外出一趟，他队友就被我们牢玩家杀光了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [漂亮的恶意01|误入充满恶意的顶级财阀校园，川渝转学生表示，她真的只想好好学习！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [第1集丨《八仙在现代》“神仙若不懂人间，如何度化世人？”](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
-- [小区选择不要物业居民自行管理](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
-- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.daogukj.com/6635536)
-- [冯坤为中国女排颁奖](http://www.daogukj.com/5112321)
-- [绝味鸭脖两年消失6600家门店](http://www.daogukj.com/ipwmcbrx/)
-- [当动物可以变幻成高跟鞋](http://www.daogukj.com/0838857)
-- [国家动物博物馆两个小孩手抓脚踢致莽山原矛头蝮标本受损，父亲一起玩闹，这一标本有多珍贵？谁该担责？](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
-- [泰国女排主帅称中国队100%晋级奥运会](http://www.movie.hkepx.cn/movie/2653607.htm)
-- [网友意外拍到泥石流暴发瞬间](http://www.movie.hkepx.cn/movie/2345084.htm)
-- [留学生频繁回国索要58万 父母报警](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
-- [2026 女排亚锦赛决赛，中国女排 2 比 3 不敌泰国女排，无缘直通奥运，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/6793540.htm)
-- [如何看待《燕云十六声》拿下2026科隆游戏展最佳移动游戏？](http://www.daogukj.com/2792130)
-- [为什么很多大学生更喜欢买标准版 iPhone，而不是 Pro？](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
-- [郎平曾说朱婷有时候半个月不回消息](http://www.movie.hkepx.cn/movie/1067049.htm)
-- [马杜罗社媒发布狱中照片](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
-- [陈粒疑似被性骚扰](http://www.daogukj.com/1652635)
-- [商鞅变法成功却身败名裂的原因是什么？](http://www.movie.hkepx.cn/xiju/9905863.htm)
-- [陈粒竖中指](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
-- [重庆辟谣“外卖员往饮料里加百草枯”](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
-- [半月工资55元 被踢出845个工作群](http://www.movie.hkepx.cn/xiju/4386657.htm)
-- [英伟达 CEO 黄仁勋称在很多任务上已实现 AGI，并认为该里程碑已无意义，如何看待？](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
-- [给它加上屏幕后，我好像玩大了…](http://www.movie.hkepx.cn/xiju/3638436.htm)
-- [国家动博馆强烈谴责父亲带娃玩标本](http://www.daogukj.com/7944277)
-- [女孩被踢出845个工作群无奈离职](http://www.daogukj.com/8908969)
-- [【独家/完结】《记忆管理局》第7集 记忆这样脆弱的东西【8月国创】](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
-- [王菲发夹](http://www.play.hengshemaoyi.cn/xiju/9948582.htm)
-- [花少2心眼子排名](http://www.movie.hkepx.cn/xiju/6922648.htm)
-- [赵勇考砸了](http://www.play.hengshemaoyi.cn/kongbu/0311261.htm)
-- [特斯拉推出更平价版Model3](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
-- [马达加斯加没有企鹅，但有中国外交官！非洲大使馆第一探](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
-- [干中学](http://www.daogukj.com/samlsvei/)
-- [吉隆救援人员淤泥中手脚并用成泥人](http://www.daogukj.com/upwbykhc/)
-- [【独家】牧神记 第98集 杀新皇](http://www.daogukj.com/dqafhzpy/)
-- [如何评价蒋炎岩在课件中提出“ 没有Token的CS学生应该立刻退学”？](http://www.daogukj.com/wqdjnvax/)
-- [谁是A股上半年“盈利王”](http://www.movie.hkepx.cn/movie/3230647.htm)
-- [吉隆泥石流搜救现场发现警用马甲](http://www.daogukj.com/0955188)
-- [很多医学生熬不住选择退出规培，反映了当前医疗教育和规培制度的哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
-- [消息人士称伊朗袭击驻约旦美军](http://www.daogukj.com/8951042)
-- [【景甜】的卵子，值5000万美元吗？](http://www.daogukj.com/6868668)
-- [吉隆口岸大楼现状](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
-- [超3000亿外资A股持仓曝光](http://www.daogukj.com/6244721)
-- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](http://www.movie.hkepx.cn/xiju/4196972.htm)
-- [尼泊尔泥石流联系到的中方人员已转移](http://www.daogukj.com/8252530)
-- [小区选择不要物业 居民自己管自己](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
-- [中国男人为什么突然不爱皮鞋了](http://www.movie.hkepx.cn/xiju/3203404.htm)
-- [南航一客机误放滑梯 损失或超10万](http://www.daogukj.com/cmilhphd/)
-- [女排 朱婷](http://www.daogukj.com/8929579)
-- [熬夜之后如何正确恢复身体](http://www.daogukj.com/xyvhazpu/)
-- [许晴花少2表现被理解](http://www.movie.hkepx.cn/xiju/5070981.htm)
-- [如何看DeepSeek和Anthropic估值差异](http://www.movie.hkepx.cn/xiju/1375597.htm)
+- [中国男人为什么突然不爱皮鞋了](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
+- [芭莎之夜 阵容](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
+- [中美角逐乌兰察布](http://www.daogukj.com/6635536)
+- [小区选择不要物业 居民自己管自己](http://www.daogukj.com/5112321)
+- [第一批买网红小家电的人已经后悔了](http://www.daogukj.com/ipwmcbrx/)
+- [去了一趟西班牙2.0（日全食篇）](http://www.daogukj.com/0838857)
+- [熬夜之后如何正确恢复身体](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
+- [边检民警进吉隆口岸搜救 女友也被埋](http://www.movie.hkepx.cn/movie/2653607.htm)
+- [人民日报评银行该不该午休](http://www.movie.hkepx.cn/movie/2345084.htm)
+- [内存暴涨的当下，2026 年开学装机是 16GB 凑合用还是咬牙上 32GB？现在买是不是高位接盘？](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
+- [第一批“20后”上小学了](http://www.movie.hkepx.cn/xiju/6793540.htm)
+- [关晓彤吃无米版徐福烩饭](http://www.daogukj.com/2792130)
+- [二游做载具没一个能打的，《无限大》也不例外【NFSLYY】](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
+- [一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影【ai全民制作人】](http://www.movie.hkepx.cn/movie/1067049.htm)
+- [两个领导斗法都拉拢我该保持中立还是选一边 ？](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
+- [老妈以为的1500元生活费](http://www.daogukj.com/1652635)
+- [买完瑞幸出门摔倒致后脑勺出血](http://www.movie.hkepx.cn/xiju/9905863.htm)
+- [有什么史料可以证明“曹雪芹”是曹霑？](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
+- [夜跑女子被路过小朋友夸美](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
+- [高市内阁支持率跌至上台以来新低，通胀、日元贬值、历史态度、防卫扩张多重矛盾叠加，如何看待日本政策走向？](http://www.movie.hkepx.cn/xiju/4386657.htm)
+- [多家医院通知解聘](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
+- [俄乌惨烈对轰 谁会先扛不住](http://www.movie.hkepx.cn/xiju/3638436.htm)
+- [特别的一课](http://www.daogukj.com/7944277)
+- [如果让专业厨师推荐私藏小店他们会怎么推荐？](http://www.daogukj.com/8908969)
+- [黄曲霉素就藏在厨房5个角落](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
+- [年薪60+万，一手提拔我的领导跟公司大老板有分歧，要我辞职跟他去创业，我该怎么办？](http://www.play.hengshemaoyi.cn/xiju/9948582.htm)
+- [怎么评价源初之结的开发者访谈？](http://www.movie.hkepx.cn/xiju/6922648.htm)
+- [小伙按AI推荐的路线爬山散心，结果被困海拔1300米的无人开发区，AI的推荐逻辑是怎样的？该如何辨别？](http://www.play.hengshemaoyi.cn/kongbu/0311261.htm)
+- [2627赛季西甲第3轮皇家马德里 4:0 马拉加，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
+- [班主任何时变成了“烫手山芋”](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
+- [如何评价鹰角高调租下万科9万m²独栋大平层用于办公？](http://www.daogukj.com/samlsvei/)
+- [漂亮的恶意01|误入充满恶意的顶级财阀校园，川渝转学生表示，她真的只想好好学习！](http://www.daogukj.com/upwbykhc/)
+- [有哪些演员与他们饰演的角色在现实中产生了量子纠缠？](http://www.daogukj.com/dqafhzpy/)
+- [宇树会成为下一个苹果或特斯拉吗](http://www.daogukj.com/wqdjnvax/)
+- [牙齿：演化留给人类的烂摊子](http://www.movie.hkepx.cn/movie/3230647.htm)
+- [尼泊尔泥石流灾害已致907人遇难](http://www.daogukj.com/0955188)
+- [早春晴朗](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
+- [时隔30年 东南亚将迎来第二艘航母](http://www.daogukj.com/8951042)
+- [每天吃一个鸡蛋会让血压升高吗](http://www.daogukj.com/6868668)
+- [“子涵梓萱”的时代已经过去](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
+- [《不能歪曲事实 我当什么媒体》](http://www.daogukj.com/6244721)
+- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.movie.hkepx.cn/xiju/4196972.htm)
+- [银行该不该午休](http://www.daogukj.com/8252530)
+- [一条视频看8月：债务和土地，中美旧账单到期，全世界开始找备选方案【地球村月刊】](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
+- [宇树股价正式“腰斩”](http://www.movie.hkepx.cn/xiju/3203404.htm)
+- [我的世界，但所有人共享背包！？](http://www.daogukj.com/cmilhphd/)
+- [绝味鸭脖为啥卖不动了](http://www.daogukj.com/8929579)
+- [全球10亿粉丝的我一周真实生活是什么样的？](http://www.daogukj.com/xyvhazpu/)
+- [网警公布10起涉吉隆泥石流谣言案](http://www.movie.hkepx.cn/xiju/5070981.htm)
+- [长鑫科技上半年净利润 776.05 亿元，同比扭亏为盈，公司称全球内存芯片供给紧缺将延续，如何解读？](http://www.movie.hkepx.cn/xiju/1375597.htm)
 
 </details>
 
 ## 原始来源
 
-- [军工企业骨干遭2国间谍围猎 细节披露](https://www.baidu.com/s?wd=%E5%86%9B%E5%B7%A5%E4%BC%81%E4%B8%9A%E9%AA%A8%E5%B9%B2%E9%81%AD2%E5%9B%BD%E9%97%B4%E8%B0%8D%E5%9B%B4%E7%8C%8E+%E7%BB%86%E8%8A%82%E6%8A%AB%E9%9C%B2&sa=fyb_news&rsv_dl=fyb_news)
+- [全程高能！队友接连失踪？活着并逃离这里！！！「逃离疯人院」](https://b23.tv/BV1CGtp66EEM)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 310729c3bf0e6b4fb1c3 -->
+<!-- content-fingerprint: 34a9f7c6312eb118ee41 -->
