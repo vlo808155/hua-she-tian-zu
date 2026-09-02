@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 为什么鲁菜身为八大菜系之首，我们却很少见到鲁菜馆呢？
+# 劝退应届生事件后，星宇股份外包工涨薪1元/小时，中介称有争议舆论不好招，所以涨薪，如何看待此事？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：143 万热度 · 分类：问答 · 更新：2026-09-02T07:25:16+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：183 万热度 · 分类：问答 · 更新：2026-09-02T09:19:20+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么鲁菜身为八大菜系之首，我们却很少见到鲁菜馆呢？”位列第 3 位，公开热度指标为 143 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“劝退应届生事件后，星宇股份外包工涨薪1元/小时，中介称有争议舆论不好招，所以涨薪，如何看待此事？”位列第 3 位，公开热度指标为 183 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，车灯上市公司星宇股份被曝羞辱式劝退应届生，硕士被安排打螺丝，引发网络热议。 目前，常州人社局已认定其沟通方式简单生硬，公司人力资源总监被停职，‌‌星宇股份也发文致歉，提出赔偿。 蓝鲸记者注意到，劝退事件后，星宇股份外包小时工薪资近期出现上调。 记者从多位招工中介处了解到，自2026年9月1日起，星宇股份将小时工留任奖由2元/时上调至3元/时。调整后，发薪日在职员工按23元/时（20元基础薪资+3元留任奖）发放。 另有中介介绍称，叠加夜班补贴20元/晚、全勤奖300元/月等津贴，月工时约300小时，到手工资约8500元；发薪日不在职者则统一按20元/
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [绝活](shan-qing-shui-xiu.md)
-- [人民日报：综艺节目不能“拍完就走”](feng-he-ri-li.md)
-- [曼城1.46亿欧元签下恩佐](chun-nuan-hua-kai.md)
-- [华东地区发现特大铜金矿有何影响](qiu-gao-qi-shuang.md)
+- [“我现在被撞了，你意思是我活该吗？”女子骑电动自行车横穿机动车道，交警：全责！](shan-qing-shui-xiu.md)
+- [金价下跌 油价大涨](feng-he-ri-li.md)
+- [花少2被爆料大量未播细节](chun-nuan-hua-kai.md)
+- [大叔2600元买空调发现是8年前产品](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [如何看待宇树回应「重处罚少奖励」、100 元报销须王兴兴审批，称很多内容不实？公司该如何设计奖惩机制？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [越南批量设立直辖市，这对其经济发展和承接中国产业转移意味着什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [国产编程语言 zlangv0.12.2.0 发布，支持中文编程，这意味着什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [特斯拉在港澳推出更平价版 Model3，最低售价不足18万元，这个价格竞争力如何？会有人愿意买单吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [为什么鲁菜身为八大菜系之首，我们却很少见到鲁菜馆呢？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [绝味鸭脖半年报营业收入下降10.82%，平均每天关掉7家门店，哪些数据值得关注？线下卤味卖不动了吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [兰州大学连续四年为新生家长免费提供住宿，你对这种暖心举措有何评价？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“豆包手机”外观公布 有4种配色](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [深圳全市中小学生校服款式统一，学生家长可自行去商超购买，怎样看待这种模式？你支持全国推广吗？](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [人民日报：综艺节目不能“拍完就走”](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [黄磊回应做饭不好吃](http://www.daogukj.com/8743466)
-- [藏族为啥爱去成都，而不是西宁？](http://www.daogukj.com/6087099)
-- [来这吃牛肉，格局和肚子都大了…](http://www.daogukj.com/8759192)
+- [搜救犬在吉隆口岸搜救累到趴地](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [报道称美国银行某部门 VP 艾琳·皮亚琴蒂据称在时代广场被刺身亡，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [金价下跌 油价大涨](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [开疆拓土特朗普，可算美国总统GOAT？](http://www.daogukj.com/8743466)
+- [尼泊尔口岸一侧多个村镇不复存在](http://www.daogukj.com/6087099)
+- [【何同学】库克时代](http://www.daogukj.com/8759192)
 - [吉隆口岸上游堰塞湖已完全泄洪](http://www.daogukj.com/nzlnmzmb/)
 - [救援救援！再难也要继续](http://www.daogukj.com/6882941)
-- [这是个辅助万豪！？](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [高铁二等座变无座，12306 称临时调整无赔偿，此规定合理吗？](http://www.daogukj.com/9154473)
-- [日剧里经常出现的障子纸门有什么特别之处，为什么明明容易破但还是延续了几百年？](http://www.daogukj.com/4411404)
-- [尼泊尔泥石流灾害遇难人数升至1093人](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [“所以时间的参照物是什么”【原神混剪】](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [宁静回应花少2分析](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [苏州等多地初中出现超大校额](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [深圳校服真香](http://www.daogukj.com/aztauuey/)
-- [断亲潮 八成年轻人一年只联系一两次](http://www.daogukj.com/7343685)
-- [搜救犬在吉隆口岸搜救累到趴地](http://www.daogukj.com/dhbposmt/)
-- [苹果CEO特努斯入驻微博](http://www.daogukj.com/1538095)
-- [华为、小米、荣耀回应涨价](http://www.daogukj.com/uznikqxj/)
-- [《明日方舟：终末地》干员叙事 [提弗洛斯：萨米维格的孩子]](http://www.daogukj.com/5158126)
-- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.daogukj.com/3616935)
-- [顶流“傻鸟”承包了全网笑点](http://www.daogukj.com/pfvjuanz/)
+- [ai解答数学题已经达到博士水平？对于还在坚持手搓数学题的普通人数学爱好者来说，学数学的意义在哪里？](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [上海市教委明确，开学 1 个月内不得组织或变相组织任何形式的考试，如何看待这一规定？值得推广吗？](http://www.daogukj.com/9154473)
+- [女子当街被殴打扒裤 当地回应](http://www.daogukj.com/4411404)
+- [对话黄眉大王：《时空朋友圈》第二季 EP01](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [如何看待马丁内利离开阿森纳，加盟沙特球队利亚德新月？](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [微微一笑很倾城改名一笑倾城](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [20后入学家长年龄相差近30岁](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [三年之期已到，恭迎世一上归位！【第6集】](http://www.daogukj.com/aztauuey/)
+- [手机涨价 卖不动](http://www.daogukj.com/7343685)
+- [尼泊尔泥石流千人死亡四千失踪 天灾人祸的罪与罚](http://www.daogukj.com/dhbposmt/)
+- [曝花少2没有母带了](http://www.daogukj.com/1538095)
+- [美国银行副总裁在时报广场被刺身亡](http://www.daogukj.com/uznikqxj/)
+- [陕西咸阳「男子将妻子推下土崖致死」一案将择期宣判，被告人称女方有错在先，如何从法律角度解读？](http://www.daogukj.com/5158126)
+- [兰州大学连续四年为新生家长免费提供住宿，你对这种暖心举措有何评价？](http://www.daogukj.com/3616935)
+- [科威特多个美军基地发生爆炸](http://www.daogukj.com/pfvjuanz/)
 - [云南文山12级台风致人伤亡系谣言](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [把公司当成主题乐园](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [【铁豆钢蛋】你好 斌斌！](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](http://www.daogukj.com/asaygxgb/)
-- [男子12年光荣退伍感谢父母妻子支持](http://www.daogukj.com/zxvfwrkb/)
-- [吉隆受灾核心区遭泥石流两次过境](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [如何提高日语听力？看汉语字幕听日语是否可行？](http://www.daogukj.com/7717389)
-- [国内品牌金饰价格高位回落](http://www.daogukj.com/9746581)
-- [官方通报女子被踢845个群被迫离职](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [特斯拉在港澳推出更平价版 Model3，最低售价不足18万元，这个价格竞争力如何？会有人愿意买单吗？](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [为啥总觉得虚竹、金轮法王、张无忌实战差？](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [刘晓庆330万元借贷纠纷案二审败诉](http://www.daogukj.com/7650204)
-- [皇马 中国西藏](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [杨洋花少口碑](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [女子携儿子闺蜜出游 酒后跳河失联](http://www.daogukj.com/0995452)
-- [还是穿不了“大人”的衣服](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [苏州拼盘演唱会被曝两小时休息80分钟](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [年薪60+万，一手提拔我的领导跟公司大老板有分歧，要我辞职跟他去创业，我该怎么办？](http://www.daogukj.com/fivnrrsp/)
-- [越南批量设立直辖市，这对其经济发展和承接中国产业转移意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [手机涨价](http://www.daogukj.com/hldbetht/)
-- [伊朗一婚礼因美军袭击4死50伤](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [“云南文山12级台风致人伤亡”不实](http://www.daogukj.com/phqakpps/)
-- [退伍老兵回家 父亲举着横幅接站](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [女生穿高跟鞋机场捧花接退伍男友](http://www.daogukj.com/adpyviat/)
+- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [08年美国讽刺金曲《朋友的酒》（英语填词cover）“空城计の小曲”](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [来这吃牛肉，格局和肚子都大了…](http://www.daogukj.com/asaygxgb/)
+- [32岁美国银行副总裁时代广场被刺身亡](http://www.daogukj.com/zxvfwrkb/)
+- [教育局回应一小学部分班级无教室上课](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [我们到底应该怎么评价《钢铁是怎样炼成的》？](http://www.daogukj.com/7717389)
+- [这制作水平，当C忍是不是太屈才了](http://www.daogukj.com/9746581)
+- [全麦面包 染色](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [绝味鸭脖半年报营业收入下降10.82%，平均每天关掉7家门店，哪些数据值得关注？线下卤味卖不动了吗？](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [12年老兵退伍妻子带定制海报迎接](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [何超莲陈妍希不是打架是跳舞](http://www.daogukj.com/7650204)
+- [中国制造的“机器鸭”卖断货](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [曝千元酒店用刷马桶刷子清洁坐垫](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](http://www.daogukj.com/0995452)
+- [GPT-6 灰测 demo 刷屏，预计在周四发布，你对这款 AI 模型有哪些期待？](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [毛阿敏 许晴](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [蔚来单车成本下半年至少再涨2000元](http://www.daogukj.com/fivnrrsp/)
+- [为什么鲁菜身为八大菜系之首，我们却很少见到鲁菜馆呢？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [家长反对交600元请保洁扫教室被禁言](http://www.daogukj.com/hldbetht/)
+- [于东来痛批明星扎堆直播带货](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [开学了这些谣言家长要警惕](http://www.daogukj.com/phqakpps/)
+- [男子12年光荣退伍感谢父母妻子支持](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [怀孕妻子迎参军12年小伙退伍回家](http://www.daogukj.com/adpyviat/)
 - [透视暑期消费新变化](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [中国制造的“机器鸭”卖断货](http://www.daogukj.com/1571628)
-- [女子流产4次找不到病因 结果崩溃](http://www.daogukj.com/9492876)
+- [黄磊回应做饭不好吃](http://www.daogukj.com/1571628)
+- [网红村支书因女儿重度抑郁决定辞职](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [为什么鲁菜身为八大菜系之首，我们却很少见到鲁菜馆呢？](https://www.zhihu.com/question/1918046967973523615)
+- [劝退应届生事件后，星宇股份外包工涨薪1元/小时，中介称有争议舆论不好招，所以涨薪，如何看待此事？](https://www.zhihu.com/question/2078252318882116393)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ce91103e4746eb884fcd -->
+<!-- content-fingerprint: 94d8f9f9c215a7d2e921 -->
