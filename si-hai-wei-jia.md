@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？
+# 皮鞋大王奥康国际四年亏 9 亿，红蜻蜓连年亏损，为啥中国男人不爱买皮鞋了？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：424 万热度 · 分类：问答 · 更新：2026-09-02T09:19:20+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：971 万热度 · 分类：问答 · 更新：2026-09-02T14:03:44+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？”位列第 1 位，公开热度指标为 424 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“皮鞋大王奥康国际四年亏 9 亿，红蜻蜓连年亏损，为啥中国男人不爱买皮鞋了？”位列第 1 位，公开热度指标为 971 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月1日，车企密集公布8月份销售数据。 零跑汽车8月全球交付量达103129台，同比增长80.7%，单月交付再次突破10万大关。 极氪汽车8月交付新车36981辆，同比增长109.8%。1-8月，极氪共交付25.1万辆，同比增长100.4%。 上汽通用五菱8月全球销量130870辆，海外累计销量突破160万辆。 小米汽车8月交付量超过30000台。 鸿蒙智行8月交付42101台，年内累计交付同比增长10.8%。截至目前，鸿蒙智行全系累计交付已突破152万台。 深蓝汽车8月全球销量28659辆，1-8月全球累计销量222,028辆，同比增长11.77%；全
+来源公开摘要显示：影视剧里，一套笔挺西装搭配锃亮皮鞋，是男性在商务场合的标志性配置。但现实中，传统正装皮鞋，正在被越来越多中国男人“抛弃”。 在“皮鞋大王”奥康国际的业务版图里，男鞋占比超六成。从2022年至2025年，奥康国际已连续四年亏损，亏损金额累计超9亿元。 近期，奥康国际交出2026半年成绩单，实现营收7.69亿元，同比下滑28.88%；净利润1757.43万元，虽结束连续四年亏损的局面，但扣除非经常性损益之后，代表主业真实经营水平的扣非净利润依旧亏损660.70万元。 无独有偶，2019年富贵鸟退市破产，红蜻蜓2024年和2025年连续两年业绩亏损，一批曾经风
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [西西弗斯推的石头，居然是孙悟空......【AI全民制作人】#SpecialForAAIFF](wu-gu-feng-deng.md)
-- [秘鲁宣布与伊朗断绝外交关系](liu-shen-wu-zhu.md)
-- [早春晴朗第九集抽烟镜头被删了](qi-shang-ba-xia.md)
-- [32岁美国银行副总裁时代广场被刺身亡](ba-mian-ling-long.md)
+- [《异环》灵可角色PV丨宇宙的频段](wu-gu-feng-deng.md)
+- [微信新增2个功能](liu-shen-wu-zhu.md)
+- [花儿与少年2026官宣](qi-shang-ba-xia.md)
+- [黄之锋当庭认罪](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [劝退应届生事件后，星宇股份外包工涨薪1元/小时，中介称有争议舆论不好招，所以涨薪，如何看待此事？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [上海市教委明确，开学 1 个月内不得组织或变相组织任何形式的考试，如何看待这一规定？值得推广吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [有人说「江浙沪小县城工资崩塌了」，是真的么？如果是，为什么会出现这种情况？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [陕西咸阳「男子将妻子推下土崖致死」一案将择期宣判，被告人称女方有错在先，如何从法律角度解读？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [如何看待马丁内利离开阿森纳，加盟沙特球队利亚德新月？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [华为、小米、荣耀手机集体调价，华为 Mate80 全系涨价，最高涨 1000 元，普通人换机该怎么选？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [08年美国讽刺金曲《朋友的酒》（英语填词cover）“空城计の小曲”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [美被刺身亡银行副总裁刚休完产假](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [有个人定制了几万只右脚的鞋，这是不是什么圈套？](http://www.daogukj.com/7394302)
-- [【蕾米埃尔】：入木三分，原来是字面意思？](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [尼泊尔泥石流千人死亡四千失踪 天灾人祸的罪与罚](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [劝退应届生事件后，星宇股份外包工涨薪1元/小时，中介称有争议舆论不好招，所以涨薪，如何看待此事？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [女子当街被殴打扒裤警方已介入](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [纯手搓的视频，初音会喜欢吗？【bilibilionly同人扶持计划】](http://www.daogukj.com/thgdlrxk/)
-- [张一山演技](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [女子流产4次找不到病因 结果崩溃](http://www.daogukj.com/qqvbmaen/)
-- [花少2被爆料大量未播细节](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [早春晴朗第九集抽烟镜头被删了](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [皇马将西藏与尼泊尔并列拒绝改正](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [【何同学】库克时代](http://www.daogukj.com/6313812)
-- [《爱情公寓》中曾小贤明明和胡一菲互相喜欢，为什么却在中途突然和诺澜在一起了？](http://www.daogukj.com/wczbkkvt/)
-- [吉隆受灾核心区遭泥石流两次过境](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [男子盘手串包浆后被妻子用刷子搓干净](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [吉隆口岸上游堰塞湖已完全泄洪](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [西西弗斯推的石头，居然是孙悟空......【AI全民制作人】#SpecialForAAIFF](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [深圳校服火了背后是教育边界问题](http://www.daogukj.com/jjlkzcvz/)
-- [绝味鸭脖半年报营业收入下降10.82%，平均每天关掉7家门店，哪些数据值得关注？线下卤味卖不动了吗？](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [08年美国讽刺金曲《朋友的酒》（英语填词cover）“空城计の小曲”](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [中国制造的“机器鸭”卖断货](http://www.daogukj.com/drcaefzl/)
-- [于东来痛批明星扎堆直播带货](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [开学了这些谣言家长要警惕](http://www.daogukj.com/rrxeunix/)
-- [云南文山12级台风致人伤亡系谣言](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [智驾强制国标来了](http://www.daogukj.com/qekijaaa/)
-- [曼城1.25亿英镑签下恩佐](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [透视暑期消费新变化](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [高圆圆：最好我先走赵又廷收拾后续](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [金价下跌 油价大涨](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [以军袭击已致黎巴嫩8920死](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [来这吃牛肉，格局和肚子都大了…](http://www.daogukj.com/4880877)
-- [微微一笑很倾城改名一笑倾城](http://www.daogukj.com/gyblgzpw/)
-- [老款手机集体涨价](http://www.daogukj.com/3742193)
-- [日语版《朋友的酒》citypop remix（空城计の小曲）](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [日本投降仪式结束在9时18分](http://www.daogukj.com/yhmvbvtt/)
-- [兰州大学连续四年为新生家长免费提供住宿，你对这种暖心举措有何评价？](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [12年老兵退伍妻子带定制海报迎接](http://www.daogukj.com/4405323)
-- [有人说「江浙沪小县城工资崩塌了」，是真的么？如果是，为什么会出现这种情况？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [男子爱车贴膜忘去水印满车字母](http://www.daogukj.com/ydbbqbuc/)
-- [第二集。](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [把公司当成主题乐园](http://www.daogukj.com/5927597)
-- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](http://www.daogukj.com/3691526)
-- [多去接近你根本配不上的人](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [开疆拓土特朗普，可算美国总统GOAT？](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [“我现在被撞了，你意思是我活该吗？”女子骑电动自行车横穿机动车道，交警：全责！](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [大叔2600元买空调发现是8年前产品](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [全麦面包 染色](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [曝千元酒店用刷马桶刷子清洁坐垫](http://www.daogukj.com/9555051)
-- [曝花少2没有母带了](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [华强买瓜，但郝哥能控制AI](http://www.daogukj.com/7394302)
+- [爆款AI短剧/AI漫剧是怎么做出来的？0-1保姆级教程](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [库克 9 月 1 日卸任苹果 CEO，由苹果硬件工程负责人特努斯接棒，苹果接下来将发生哪些变化？](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [深圳校服为何让全网感叹真香](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [少↗TM↗飞↗滑↗，给↘我↘打↗，使↘↗劲↘打↗（使人震撼的分镜）（挨了一滑板）呃（捂头）](http://www.daogukj.com/thgdlrxk/)
+- [上官正义曝残障大叔无薪喂牛还挨打](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [美发动打击 伊将升级反击强度](http://www.daogukj.com/qqvbmaen/)
+- [李金铭护照被假婆家收了才没去花少2](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [花儿与少年2026官宣](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [家长投诉老师婚姻状况](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [西西弗斯推的石头，居然是孙悟空......【AI全民制作人】#SpecialForAAIFF](http://www.daogukj.com/6313812)
+- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](http://www.daogukj.com/wczbkkvt/)
+- [吉隆口岸核心区域救援通道已抢通](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [杨洋被落下堪比甄嬛第一次小产](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [万千气象看北京](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [iPhoneUltra 首发溢价](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [《异环》灵可角色PV丨宇宙的频段](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [39岁抗癌博主芳芳离世](http://www.daogukj.com/jjlkzcvz/)
+- [绝活](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [网红村支书因女儿重度抑郁决定辞职](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [早春晴朗](http://www.daogukj.com/drcaefzl/)
+- [现在网上有一种观点，给孩子补课不如把钱留着等孩子长大了给他，你怎么看？](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [如何看待Anthropic全面开放Claude Fable 5.1和Mythos 5.1？有哪些亮点？](http://www.daogukj.com/rrxeunix/)
+- [温州辟谣高速路口降雨致人死亡](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [“樊振东效应”在德国持续扩大](http://www.daogukj.com/qekijaaa/)
+- [从最期待变最难绷，一个城市还没做完就做第二个，没任何公开测试就宣布上线日期，无限大能好好把游戏做完吗？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [我国电力供给迎来新格局](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [菲律宾巨蟒在洪水中挨家挨户“串门”](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [香港武打巨星陈观泰去世](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [怀孕妻子迎参军12年小伙退伍回家](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [张一山新剧演技大受好评](http://www.daogukj.com/4880877)
+- [开学了这些谣言家长要警惕](http://www.daogukj.com/gyblgzpw/)
+- [失联人员深埋巨石和淤泥之下](http://www.daogukj.com/3742193)
+- [全面战场新地图【摩格旧城区】实录｜9月4日，战至终点！](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [于东来晒胖东来业绩，本年累计销售额达 195.15 亿元，同比增长 26.98%，如何评价这个成绩？](http://www.daogukj.com/yhmvbvtt/)
+- [普京硬核回应俄日关系恶化](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [“药中茅台”片仔癀跌落神坛](http://www.daogukj.com/4405323)
+- [美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [多去接近你根本配不上的人](http://www.daogukj.com/ydbbqbuc/)
+- [这制作水平，当C忍是不是太屈才了](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](http://www.daogukj.com/5927597)
+- [泡面巨头靠涨价赚翻，销量没大涨，业绩却回暖，部分高端泡面看齐外卖价格，方便面行业真的逆袭了吗？](http://www.daogukj.com/3691526)
+- [跟任何人相处都大大方方的秘诀](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [福建福鼎：全市停工停产停课休市](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [《明日方舟：终末地》提弗洛斯EP - Fragmented Dreams](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [武打巨星陈观泰去世 曾饰演马永贞](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [校服改革应把选择权交给家长学生](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [福建宁德暴雨内涝千余人转移](http://www.daogukj.com/9555051)
+- [原来银行卡上的金色卡片是真金](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？](https://www.zhihu.com/question/2078071279840651185)
+- [皮鞋大王奥康国际四年亏 9 亿，红蜻蜓连年亏损，为啥中国男人不爱买皮鞋了？](https://www.zhihu.com/question/2077710901293965870)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 35bb16ec3db26da09806 -->
+<!-- content-fingerprint: 8e86b082c6a620acd359 -->
