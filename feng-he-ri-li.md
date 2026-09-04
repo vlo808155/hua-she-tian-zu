@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 女高音歌唱家龚爽因病离世 年仅37岁
+# Pro Max大乱斗
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7521643 · 更新：2026-09-04T14:10:34+08:00
+> 来源：微博热搜 · 排名：第 4 位 · 热度：549829 · 分类：数码 · 更新：2026-09-04T19:23:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“女高音歌唱家龚爽因病离世 年仅37岁”位列第 3 位，公开热度指标为 7521643。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“Pro Max大乱斗”位列第 4 位，公开热度指标为 549829，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据多位业内人士消息，女高音歌唱家龚爽因病离世，年仅37岁。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `数码`
 
 ## 相关热点
 
-- [井柏然直播澄清](chun-nuan-hua-kai.md)
-- [朱忠明任上海市代市长](qiu-gao-qi-shuang.md)
-- [黄磊正式确认不再参与《向往的生活》后续录制，称核心原因是创作陷入瓶颈，怎样看待他的选择？](bing-tian-xue-di.md)
-- [【独家】时光代理人 第三季 PartOne 第5集 接风宴【8月国创】](ri-xin-yue-yi.md)
+- [菲律宾地方法院下令逮捕副总统莎拉](chun-nuan-hua-kai.md)
+- [央视晚会将「乡音无改鬓毛衰」读 shuāi 而非 cuī，为什么和早年学的不一样了？如何看待这一变化？](qiu-gao-qi-shuang.md)
+- [【独家】时光代理人 第三季 PartOne 第5集 接风宴【8月国创】](bing-tian-xue-di.md)
+- [新型“鼻炎针”进医保](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
-- [年薪可达百万！商业航天抢人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [循环校服 家长从觉得没面子到排队抢](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [俄军山毛榉导弹系统刚发射就被摧毁](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [华为国行 5G 疑似回归，Mate90 系列入网，为何在此时选择回归？其 5G 回归有何技术突破创新？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [「魔岩三杰」之一、摇滚歌手何勇去世，享年 57 岁，你对他的音乐有哪些深刻记忆？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [外交部回应52名新加坡人涉嫌在华传销](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [小姑娘第一天上幼儿园视频火了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [不敢相信这是合租房](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [拍下寿司郎儿童小便当事人再发声](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [女留学生被杀，凶手作案动机初步披露，系被害人要公开二人关系，凶手担心失去教职，还有哪些细节值得关注？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [华为国行 5G 疑似回归，Mate90 系列入网，为何在此时选择回归？其 5G 回归有何技术突破创新？](http://www.daogukj.com/2989641)
-- [许家印律师欲提120万港元被拒](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [麻了开学第一天被学姐立规矩](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [上海多家银行：办40年房贷需35岁以下](http://www.daogukj.com/5775563)
-- [女留学生被杀，凶手作案动机初步披露，系被害人要公开二人关系，凶手担心失去教职，还有哪些细节值得关注？](http://www.daogukj.com/1579567)
-- [如何评价智谱 9 月 3 日上线的夜间无限畅用活动？](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [老板在店门口滚屏抱怨被要求补缴社保](http://www.daogukj.com/rvgjqsig/)
-- [寿司郎 无权制止餐桌小便](http://www.daogukj.com/vcxumdys/)
-- [花少5是花少系列唯一一部获奖作品](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [龚爽去世](http://www.daogukj.com/4998351)
-- [外交部：已向韩方提出严正交涉](http://www.daogukj.com/puqecrgq/)
-- [「魔岩三杰」之一、摇滚歌手何勇去世，享年 57 岁，你对他的音乐有哪些深刻记忆？](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [陈学冬内娱“最惨打工人”](http://www.daogukj.com/mbleegev/)
-- [400万豪车被“蚂蚁搬家”式拆解](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [德克圣堂炸鸡中国首店开业，代排费炒至百元，如何看待如此热潮？](http://www.daogukj.com/9378743)
-- [婚外胚胎 重婚罪](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [桃花源记](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [全国唯一有两所211高校县级市迎新生](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [曝西贝拖欠离职补偿金，贾国龙称「要到2028年才能给」，这种行为在法律上如何定性？离职员工如何维权？](http://www.daogukj.com/4067994)
-- [花少2房车大战 未剪辑版](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [拍下寿司郎儿童小便当事人再发声](http://www.daogukj.com/2989641)
+- [古天乐被追债1.28亿元？旗下公司回应](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [Cybercab终于上路了](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [多国从美国运回黄金有何影响](http://www.daogukj.com/5775563)
+- [佟丽娅与陈思诚合体带娃吃饭](http://www.daogukj.com/1579567)
+- [宁静 谁说小爽坏了](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [评论员：日本从三方向冲击战后秩序](http://www.daogukj.com/rvgjqsig/)
+- [莆田村民：50多岁了没见过这么大洪水](http://www.daogukj.com/vcxumdys/)
+- [人民日报评环卫工坐三轮车休息遭罚款](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [《新闻联播》正在直播](http://www.daogukj.com/4998351)
+- [披荆斩棘](http://www.daogukj.com/puqecrgq/)
+- [女留学生被杀，凶手作案动机初步披露，系被害人要公开二人关系，凶手担心失去教职，还有哪些细节值得关注？](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [从某一刻开始，游戏的性质已经变了【B站笑点大赛】](http://www.daogukj.com/mbleegev/)
+- [当你觉得自己很没用时：](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [莆田暴雨一辆SUV开上人行天桥](http://www.daogukj.com/9378743)
+- [莆田内涝](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [人人影视回归变正版，会员定价 25 元/月，用户们还会为曾经的情怀买单吗？你看好其市场前景吗？](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [吴君如眼神就没离开邓为](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [张宏伟当选河南信阳市委书记](http://www.daogukj.com/4067994)
+- [直击福建莆田暴雨内涝现场](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
 - [如何看待王楚钦因伤退出 2026WTT 澳门冠军赛？会对他出战亚运会造成影响吗？](http://www.daogukj.com/0687577)
-- [Lisa曝BLACKPINK时期曾隐藏恋爱](http://www.daogukj.com/0028791)
-- [歌手何勇去世](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [《花少2》诞生的 “花学”](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [山东省委书记省长带头捐款](http://www.daogukj.com/0384955)
-- [多国从美国运回黄金](http://www.daogukj.com/yjaakhwu/)
-- [尽力了，没带攻击键，放跑了对面牢玩家](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [致热爱捉宠的你——《伊莫》幕后制作纪录片](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [年薪可达百万！商业航天抢人](http://www.daogukj.com/6760233)
-- [摇滚歌手何勇去世](http://www.daogukj.com/0471626)
-- [5个UP主决战电车难题！最终无人生还？](http://www.daogukj.com/znjtiiff/)
-- [苏州等地初中出现一个年级 90 多个班，为何会出现这种情况？超大规模办学会带来什么影响？](http://www.daogukj.com/dduwvxya/)
-- [中国广电一体化电视适配器集采公告正式发布，将告别传统机顶盒，未来电视的观看方式将如何发展？你会购买吗？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [贺娇龙归葬于父亲的墓旁](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [《绝区零》克拉蕾角色展示 | 不想培训，但攻略已写好](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
-- [《三角洲行动》全新【群星】赛季故事短片](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [直击莆田暴雨](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [iPhoneUltra 折痕](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [笑死~日本新发现一名铁血精中！！比98%的中国人都愿意爱中国！！](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [有人想靠复盘花少6洗白](http://www.daogukj.com/jmwlrqbo/)
-- [我在日本，找到了被李白杀死的遣唐使](http://www.daogukj.com/7834239)
-- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [郑钦文现场怒怼主裁双标](http://www.movie.hkepx.cn/movie/2182682.htm)
-- [【独家】时光代理人 第三季 PartOne 第5集 接风宴【8月国创】](http://www.daogukj.com/5450676)
+- [《为什么像我这样拉风的男人，却在当保安？》](http://www.daogukj.com/0028791)
+- [贵州秋假连着中秋国庆休13天系谣言](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [火锅店回应锅底爬出大量活蛆](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [曝西贝拖欠离职补偿金，贾国龙称「要到2028年才能给」，这种行为在法律上如何定性？离职员工如何维权？](http://www.daogukj.com/0384955)
+- [“林肯被人用手指抠死”、“店员抓贼反被开除”？良家子红线被击穿后社会会怎样？【毒舌的南瓜】](http://www.daogukj.com/yjaakhwu/)
+- [《马老师：这世上还是好人多呀》](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [如何评价《绝区零》克拉蕾角色展示“不想培训，但攻略已写好”？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [外交部回应52名新加坡人涉嫌在华传销](http://www.daogukj.com/6760233)
+- [阿诺撒……我让你站起来你耳朵🐉吗？](http://www.daogukj.com/0471626)
+- [尼泊尔泥石流已致1287人遇难](http://www.daogukj.com/znjtiiff/)
+- [已被结城理吓哭](http://www.daogukj.com/dduwvxya/)
+- [天 雷 滚 滚 纽 约 城【神奇组织53】](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
+- [工人被困莆田鞋厂宿舍 积水淹没1楼](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [“中国游”带火这门“新生意”](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [人贩子将出狱 孙海洋担心被报复](http://www.movie.hkepx.cn/movie/1344966.htm)
+- [男子肚子疼被误诊为胃癌，医院瞒着切全胃，为何会出现如此离谱的医疗事故？医院赔22万，能抵消男子损失吗？](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [【鬼谷闲谈】一个元素能在工作中捅多大娄子](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [苹果现在才做折叠屏，是来得太晚，还是正好等到了技术成熟？](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [井柏然直播澄清](http://www.daogukj.com/jmwlrqbo/)
+- [女生眼里进虫直接用手扒拉出来](http://www.daogukj.com/7834239)
+- [贪3180万 四川落马厅官宁坚获刑12年](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [女高音歌唱家龚爽去世 年仅37岁](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [新型“鼻炎针”进医保](http://www.daogukj.com/5450676)
 - [当我们决定：在村里给自己拍婚纱照，会发生什么？](http://www.movie.hkepx.cn/xiju/5833368.htm)
-- [吉隆泥石流灾害核心区恢复供电](http://www.daogukj.com/3022115)
-- [多国从美国运回黄金有何影响](http://www.daogukj.com/9730014)
-- [贵州秋假连着中秋国庆连休13天系谣言](http://www.daogukj.com/vgdwnerp/)
-- [王楚钦因伤退出澳门冠军赛](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [男子欠债想轻生学胖东来还清105万](http://www.daogukj.com/pmvtaymm/)
+- [深耕特色业态 激活文旅消费新动能](http://www.daogukj.com/3022115)
+- [如何看待今年的超级厄尔尼诺现象？](http://www.daogukj.com/9730014)
+- [福建受灾严重](http://www.daogukj.com/vgdwnerp/)
+- [【月行水上】SR-1至SR-8 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [教育部回应教师不敢管学生](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
 ## 原始来源
 
-- [女高音歌唱家龚爽因病离世 年仅37岁](https://www.baidu.com/s?wd=%E5%A5%B3%E9%AB%98%E9%9F%B3%E6%AD%8C%E5%94%B1%E5%AE%B6%E9%BE%9A%E7%88%BD%E5%9B%A0%E7%97%85%E7%A6%BB%E4%B8%96+%E5%B9%B4%E4%BB%8537%E5%B2%81&sa=fyb_news&rsv_dl=fyb_news)
+- [Pro Max大乱斗](https://s.weibo.com/weibo?q=Pro%20Max%E5%A4%A7%E4%B9%B1%E6%96%97)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 07cc1d3059e9ed2a7e69 -->
+<!-- content-fingerprint: bc5211ef4bdc738cfcb1 -->
