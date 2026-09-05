@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 特斯拉市值一夜蒸发超6000亿
+# 如何看待因被要求补缴社保，老板在店门口滚屏抱怨「选择员工需谨慎」？
 
-> 来源：今日头条热榜 · 排名：第 1 位 · 热度：5751568 · 更新：2026-09-05T17:11:40+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：367 万热度 · 分类：问答 · 更新：2026-09-05T20:46:20+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“特斯拉市值一夜蒸发超6000亿”位列第 1 位，公开热度指标为 5751568。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待因被要求补缴社保，老板在店门口滚屏抱怨「选择员工需谨慎」？”位列第 1 位，公开热度指标为 367 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，江苏徐州一家饭店停业后，在LED门头屏上滚动播放“店铺无法承担赔偿，被迫选择闭店。请各位餐饮老板擦亮眼睛，谨慎选择员工！” 餐馆老板表示，因饭店经营不善，原本计划于9月底正式闭店。后厨凉菜厨师得知这一消息后，提前找好了工作，于8月25日结清工资后离职，并在次日发来律师函，要求补缴这几年的社保，以及被迫解除劳动合同产生的赔偿金，总计约5.4万元。 饭店老板称，原本就职时双方约定，社保包含在工资内。 双方曾商定将企业福利、补助、社保费折算成工资直接发放，并在合同里作了说明。“这几年工资照发，但这份合同只签了一年，县城里都是熟人，又是小型餐饮业，没想过产
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](si-hai-wei-jia.md)
-- [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](wu-gu-feng-deng.md)
-- [男子撞上羊群 赔了钱为什么不能带走](liu-shen-wu-zhu.md)
-- [第一批戴运动手环的受害者出现了](qi-shang-ba-xia.md)
+- [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](si-hai-wei-jia.md)
+- [普京下令未来三天不打击基辅](wu-gu-feng-deng.md)
+- [披荆斩棘直播](liu-shen-wu-zhu.md)
+- [iPhone 18系列售价曝光](qi-shang-ba-xia.md)
 
 ## 站内推荐
 
-- [8月中国物流需求保持扩张](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [江苏一小学家长自费更换桌椅，校方称「学校提供桌椅，家长自主行为」，如何看待此事？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [新 生 开 学 有 多 爽 ？！！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [我好像找到了特别贴numb numb副歌音效的跳法…](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [LPL2026 赛季季后赛 iG 鏖战五局淘汰 TES，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [江西吉安遂川县高坪镇发生山体滑坡，十余人被埋，目前救援进展如何？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [慢下来，就会死！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [对面一个牢玩家李白，打我们这边4个牢玩家](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [DECO*27 - 洗脳 feat. 初音未来](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [羽衣甘蓝 农药](http://www.daogukj.com/dycpetil/)
-- [喝多了没人能制裁我 除了我老婆](http://www.movie.hkepx.cn/movie/5655338.htm)
-- [设计师称中国客厅已失去意义](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
-- [曝TES明年要解散了](http://www.daogukj.com/3221972)
-- [官方通报染色莴笋：6家企业被立案](http://www.movie.hkepx.cn/movie/8631365.htm)
-- [凌晨巨响 江西遂川一大桥被冲毁](http://www.movie.hkepx.cn/xiju/3338351.htm)
-- [葫芦娃真的“救”了爷爷](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
-- [对面一个牢玩家李白，打我们这边4个牢玩家](http://www.daogukj.com/vmuhfhdx/)
+- [避孕药 血栓](http://www.daogukj.com/dycpetil/)
+- [接了好多蝌蚪…](http://www.movie.hkepx.cn/movie/5655338.htm)
+- [才知道陈妍希儿子名字陈睦辰](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
+- [刘雯井柏然是姐夫而不是嫂子](http://www.daogukj.com/3221972)
+- [《周处除三害》导演新作《荡荡荡寇志》剧照流出，张家辉、阮经天、贾静雯造型颠覆，能复刻前作的口碑吗？](http://www.movie.hkepx.cn/movie/8631365.htm)
+- [尼泊尔获救中国公民讲述被救过程](http://www.movie.hkepx.cn/xiju/3338351.htm)
+- [泥石流获救中国公民：一度不敢相信](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
+- [万人追更的终南山怪虫，只有我们拍到了真相！](http://www.daogukj.com/vmuhfhdx/)
 - [如何看待乌克兰两大情报部门 GUR 和 SBU 爆发内讧，视频显示双方发生枪战？背后有何矛盾？](http://www.movie.hkepx.cn/xiju/7746644.htm)
-- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
-- [华为何庭波再提「本该烧毁的『τ芯片』」，这揭示了华为怎样的芯片自研能力？](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
-- [我们来做手替，帮你试了破窗锤了！](http://www.daogukj.com/4437175)
-- [两名美军水兵在巴达雅喝醉后打架](http://www.daogukj.com/lclnvtmc/)
-- [张雅琪被花少8剪掉了](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
-- [剧本杀 色情服务](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
-- [邓为的箱子快吐了](http://www.daogukj.com/0713363)
-- [为什么歌手上节目唱歌，总喜欢改编一下呢？为什么不按原版本好好唱呢？](http://www.movie.hkepx.cn/xiju/6077524.htm)
-- [陈丽君人走了手机落下了](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
-- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](http://www.daogukj.com/9378383)
-- [5岁女童电子病历被标注刁蛮 家长发声](http://www.movie.hkepx.cn/movie/3280477.htm)
-- [这种鞋子不要给孩子天天穿](http://www.movie.hkepx.cn/movie/9632113.htm)
-- [撒贝宁：只要不上班就来丹霞山](http://www.daogukj.com/6919034)
-- [刘雯 避嫌](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
-- [俄军对乌多地实施集群打击](http://www.daogukj.com/ttcnrbsi/)
-- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/movie/6836580.htm)
-- [联合国警告1.5度目标守不住了](http://www.daogukj.com/dfvjlhgg/)
-- [荷兰、法国等多国为什么要从美国运回黄金？这会对全球金融市场及美元体系产生什么影响？](http://www.movie.hkepx.cn/movie/8186104.htm)
-- [“梅姨”画像更新](http://www.movie.hkepx.cn/movie/9874745.htm)
-- [要不要取消英语主科地位](http://www.daogukj.com/nkpmcahd/)
-- [老楼加装电梯遭一楼住户反对](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
-- [IGN 为《鬼武者》新作打出 10 分满分，你如何看待这一评价？实际上手之后您觉得它真的好玩吗？](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
-- [张家齐13岁赚了81万](http://www.movie.hkepx.cn/movie/4332345.htm)
-- [8月中国物流需求保持扩张](http://www.movie.hkepx.cn/movie/8953215.htm)
-- [1岁裸体男童沙漠走失12小时被找到](http://www.daogukj.com/hhucwvns/)
-- [运营商晒iPhone18售价](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
-- [如何看待 Anthropic 利用 Claude 完成费马大定理的 lean4 形式化证明？](http://www.daogukj.com/lpvatlfx/)
-- [青春华章因创新更燃](http://www.daogukj.com/3115605)
-- [花600天做一道菜，切开的瞬间发光了！](http://www.movie.hkepx.cn/movie/1459959.htm)
-- [女子怀孕5个多月产下巴掌大宝宝](http://www.daogukj.com/6281492)
-- [港姐王菲与歌手张子丰宣布订婚](http://www.movie.hkepx.cn/xiju/4232291.htm)
-- [兰州榆中通报莴笋收购环节染色](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
-- [葫芦娃爷爷拒收礼摆手全退回](http://www.movie.hkepx.cn/movie/0376230.htm)
-- [员工因拒绝通宵出差安排，直接被公司以「不出差算旷工」为由开除，这合法吗？暴露出哪些问题？](http://www.movie.hkepx.cn/xiju/2775998.htm)
-- [打雷 拔插头](http://www.daogukj.com/8542217)
-- [江苏一小学家长自费更换桌椅，校方称「学校提供桌椅，家长自主行为」，如何看待此事？](http://www.movie.hkepx.cn/xiju/2386261.htm)
-- [专家：美访俄乌包含多重考量](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
-- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.movie.hkepx.cn/movie/8948693.htm)
-- [男子撞上羊群 赔了钱为什么不能带走](http://www.movie.hkepx.cn/movie/7516507.htm)
-- [《营救匪徒》](http://www.daogukj.com/3234327)
-- [世界末日，却打不通最后一通电话💔《Payphone》](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
+- [慢下来，就会死！](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
+- [【2026LPL第三赛段】9月5日 TES vs IG](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
+- [“8个鸡蛋”少年上大学前当了老师](http://www.daogukj.com/4437175)
+- [美林肯号水兵登陆芭提雅彻底放飞](http://www.daogukj.com/lclnvtmc/)
+- [DeepSeek被曝将采购16万颗华为芯片](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
+- [港姐王菲与歌手张子丰宣布订婚](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
+- [肖战给李宇春北京演唱会送花篮](http://www.daogukj.com/0713363)
+- [午夜轮班，伪人超市](http://www.movie.hkepx.cn/xiju/6077524.htm)
+- [金晨回应恋情传闻](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
+- [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](http://www.daogukj.com/9378383)
+- [福建男子给全屋家具家电上吊防洪](http://www.movie.hkepx.cn/movie/3280477.htm)
+- [全球黄金大迁徙](http://www.movie.hkepx.cn/movie/9632113.htm)
+- [樊振东vs鲁伊斯](http://www.daogukj.com/6919034)
+- [共筑亚太共同体繁荣之路](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
+- [特斯拉市值一夜蒸发超6000亿](http://www.daogukj.com/ttcnrbsi/)
+- [《沙丘》在西方被捧成神作，为什么我却觉得很一般、看不进去，是审美没到位吗？](http://www.movie.hkepx.cn/movie/6836580.htm)
+- [刘雯 避嫌](http://www.daogukj.com/dfvjlhgg/)
+- [今年为什么各大手机厂商都在出阔折叠？](http://www.movie.hkepx.cn/movie/8186104.htm)
+- [张雪机车获第三名](http://www.movie.hkepx.cn/movie/9874745.htm)
+- [菲法院为何下令逮捕副总统](http://www.daogukj.com/nkpmcahd/)
+- [“梅姨”画像更新](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
+- [女子40万租房2年退租被要求换新家具](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
+- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/movie/4332345.htm)
+- [LPL2026 赛季季后赛 iG 鏖战五局淘汰 TES，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/8953215.htm)
+- [中国会出现公认的第五个一线城市吗?](http://www.daogukj.com/hhucwvns/)
+- [女子吃避孕药后久坐旅游患肺栓塞](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
+- [花600天做一道菜，切开的瞬间发光了！](http://www.daogukj.com/lpvatlfx/)
+- [未来五年 健康生活“新”在哪](http://www.daogukj.com/3115605)
+- [全B站最垃圾的一期视频](http://www.movie.hkepx.cn/movie/1459959.htm)
+- [张雪机车法国站第一回合获季军](http://www.daogukj.com/6281492)
+- [为何张继科退役后体脂率还是这么低？](http://www.movie.hkepx.cn/xiju/4232291.htm)
+- [7500万乙肝患者有望告别终身服药](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
+- [明朝科技曾经领先世界，为啥没能像欧洲一样开启工业革命？是被清朝打断了，还是从根上就不行？](http://www.movie.hkepx.cn/movie/0376230.htm)
+- [我好像找到了特别贴numb numb副歌音效的跳法…](http://www.movie.hkepx.cn/xiju/2775998.htm)
+- [美汽车业协会促国会永久禁中国车](http://www.daogukj.com/8542217)
+- [江西吉安遂川县高坪镇发生山体滑坡，十余人被埋，目前救援进展如何？](http://www.movie.hkepx.cn/xiju/2386261.htm)
+- [邵永灵：美国稀土荒无解](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
+- [对于小学生下午放学后到托管班写作业，你是如何看待的？](http://www.movie.hkepx.cn/movie/8948693.htm)
+- [披荆斩棘直播](http://www.movie.hkepx.cn/movie/7516507.htm)
+- [WorkBuddy 金融版正式发布，可为券商提供覆盖投研、尽调支持，具体能力如何？](http://www.daogukj.com/3234327)
+- [喝多了没人能制裁我 除了我老婆](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
 
 </details>
 
 ## 原始来源
 
-- [特斯拉市值一夜蒸发超6000亿](https://www.toutiao.com/trending/7681750930408226870/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227681750930408226870%22%2C%22hot_board_impr_id%22%3A%2220260905171138D4EF0C64541D97EB85D9%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [如何看待因被要求补缴社保，老板在店门口滚屏抱怨「选择员工需谨慎」？](https://www.zhihu.com/question/2079235027733423233)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ea494c81dbc0c2927f3a -->
+<!-- content-fingerprint: da6949932323a9d691ca -->
