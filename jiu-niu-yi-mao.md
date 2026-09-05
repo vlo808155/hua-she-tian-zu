@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 家长在寿司郎餐位用杯子给孩童接尿，顾客称服务员未加制止，从海底捞到寿司郎，门店遇此类事该怎么妥善处理？
+# 如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：356 万热度 · 分类：问答 · 更新：2026-09-05T08:52:48+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：225 万热度 · 分类：问答 · 更新：2026-09-05T13:19:46+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“家长在寿司郎餐位用杯子给孩童接尿，顾客称服务员未加制止，从海底捞到寿司郎，门店遇此类事该怎么妥善处理？”位列第 2 位，公开热度指标为 356 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？”位列第 2 位，公开热度指标为 225 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月4日，有网友发布视频称，在北京一家寿司郎用餐时，遇到对面桌的小孩在座位上站着撒尿，家长还用喝完饮料的一次性塑料杯接尿，完全不顾及他人的感受。该寿司郎门店工作人员回应极目新闻记者称，事后已经对现场进行消毒。目前，当地市场监管部门已经介入调查。 视频中，一小孩站在餐位的卡座上，旁边一白衣女子用空的一次性饮料塑料杯接尿，一会儿已经接了小半杯。小孩在视频中喊：“谁要喝柠檬”。视频内的文字显示：服务员走过去两次，没有制止。 发布该视频的网友王女士向极目新闻记者讲述，3日晚，她到寿司郎海淀大悦城店用餐期间，听到对面餐位的孩子喊“妈妈我要尿尿”。然后孩子家长拿了一
+来源公开摘要显示：最新消息：近日，有网友反映，不少商家在二手平台公开出售王者荣耀高校认证资格。其中，普通院校认证售价数百元，部分985名校认证标价达上千元，有的甚至超过2000元，卖家还会放出学信网学籍截图当作凭证。 有网友曾表示，购买该服务需要登录、绑定他人实名学籍信息，极易造成个人账号被盗、隐私信息泄露等安全隐患。 9月4日，界面新闻在相关二手平台搜索“王者荣耀高校认证”等相关词条时，已经搜索不到。 针对王者荣耀高校认证被高价倒卖一事，腾讯客服对界面新闻表示，“目前高校频道/认证功能测试已正式结束，功能暂时已下线，后续若有该功能的相关活动，游戏内公告、官方公众号等渠道
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [美国总统爱吃的芝士牛排三明治，什么味儿？](shi-quan-shi-mei.md)
-- [今年的东博会、峰会有哪些不同](bai-fa-bai-zhong.md)
-- [全国多地迎来丰收季](qian-jun-wan-ma.md)
-- [稳步提升参保质量 推动“三医”协同发展](wan-zi-qian-hong.md)
+- [万人追更的终南山怪虫，只有我们拍到了真相！](shi-quan-shi-mei.md)
+- [未来五年医保改革划了哪些重点](bai-fa-bai-zhong.md)
+- [以旧换新激活消费新动能](qian-jun-wan-ma.md)
+- [8月大宗商品市场运行向好](wan-zi-qian-hong.md)
 
 ## 站内推荐
 
-- [为什么大部分老实人改不掉反应慢的毛病，被欺辱了不会当场反击，只会事后记仇？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [突然之间破亿，鸿蒙系统和开源鸿蒙为什么发展的如此之快？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [你往「快乐驿站」里加了什么！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [和五条人在完全没人认识他们的县城里做一场演出！丨HOPICO X 小鹿Lawrence](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [男子与前女友纠纷被其现男友压制致死](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [有什么XX把XX带到了不属于它高度的鲜活例子？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [中级会计 好难](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [为啥银行会出现「存 1 年利息高于存 5 年」的倒挂？会给普通储户带来哪些影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [你更愿意选择离家近但简单的工作还是离家远有挑战的工作？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [LCK 季后赛 DK 3:1 KT，DK 晋级 S16 全球总决赛，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [新华社评农村高额彩礼](http://www.movie.hkepx.cn/movie/4879804.htm)
-- [吴易昺0-3阿尔卡拉斯](http://www.movie.hkepx.cn/movie/5294565.htm)
-- [极限挑战 重拍](http://www.movie.hkepx.cn/xiju/8234213.htm)
-- [中国女篮不敌美国女篮](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
-- [“请与我一同，战胜时间的伟力。”](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
-- [联通在青岛大学与校方起冲突？假的](http://www.movie.hkepx.cn/xiju/2272650.htm)
-- [“张雪机车”再夺第1名](http://www.movie.hkepx.cn/movie/5183558.htm)
-- [这次是真玩爽了](http://www.daogukj.com/qcalvqip/)
-- [罗永浩称「谁做老人傻瓜电视，我免费带货一年」，商业上如何看电视越做越复杂，但想看电视却越来越麻烦？](http://www.daogukj.com/qsfzwgun/)
-- [你往「快乐驿站」里加了什么！](http://www.daogukj.com/broiawjw/)
-- [四川宜宾地震](http://www.movie.hkepx.cn/xiju/2682801.htm)
-- [刘雯 避嫌](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
-- [今年的东博会、峰会有哪些不同](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
-- [公司霸气回应日本打机床牌卡中国脖子](http://www.movie.hkepx.cn/xiju/8343373.htm)
-- [央视晚会将「乡音无改鬓毛衰」读 shuāi 而非 cuī，为什么和早年学的不一样了？如何看待这一变化？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
-- [葫芦娃爷爷30天后要拆掉葫芦](http://www.daogukj.com/8483541)
-- [2岁男童把家中百草枯当饮料喝下](http://www.daogukj.com/qxxcgldr/)
-- [真实事件改编！一口气抢268个银行保险柜，翻出公主私密照，官员play实录，有钱人玩儿得够花！《银行大劫案》](http://www.daogukj.com/9209363)
-- [井柏然孙千cp粉现状](http://www.movie.hkepx.cn/xiju/3158244.htm)
-- [和五条人在完全没人认识他们的县城里做一场演出！丨HOPICO X 小鹿Lawrence](http://www.daogukj.com/cyhwfhva/)
-- [“阔屏手机”风起 厂商纷纷跟进](http://www.daogukj.com/tfhkqorv/)
-- [菲法院为何下令逮捕副总统](http://www.movie.hkepx.cn/xiju/7580051.htm)
-- [男子被打持刀反抗却遭压制窒息而死](http://www.daogukj.com/knzztlfc/)
-- [云南人最宝贝的一根棍子，巨下饭！](http://www.movie.hkepx.cn/movie/0847264.htm)
-- [女子家中发现眼镜蛇徒手打包转移](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
-- [安静公主说王俊凯粉丝既要又要](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
-- [我儿子开学上初一了，大概从四年级开始成绩开始下滑，现在只能考70分了，我应该放手吗？](http://www.movie.hkepx.cn/movie/1751427.htm)
-- [美国拉斯维加斯有点爽！](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
-- [98岁老人25年捐款近6000万元](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
-- [皇马赛季首败 姆巴佩罚丢点球](http://www.movie.hkepx.cn/movie/1023624.htm)
-- [穆里尼奥遭遇回归皇马后首败](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
-- [赵心童1-5不敌特鲁姆普无缘半决赛](http://www.daogukj.com/7693477)
-- [福建老城墙秒变防洪堤隔40公分洪水](http://www.movie.hkepx.cn/xiju/2826252.htm)
-- [美存储芯片光通信集体暴涨](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
-- [全国多地迎来丰收季](http://www.daogukj.com/1461847)
-- [解毒大师](http://www.movie.hkepx.cn/xiju/0818230.htm)
-- [贺娇龙母亲拒立雕像：别给县里增负担](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
-- [这只猫，性格好到让我无语](http://www.daogukj.com/xoshfaqj/)
-- [史上最烂DC电影！万字赤石《超女》！](http://www.movie.hkepx.cn/xiju/4934568.htm)
-- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](http://www.daogukj.com/wiudnclj/)
-- [上海到成都被订硬座还打卡女子拒出差](http://www.movie.hkepx.cn/movie/0173822.htm)
-- [演员刘钧在公园跳广场舞被偶遇](http://www.daogukj.com/4402502)
-- [为什么现在这么流行耳夹式耳机](http://www.movie.hkepx.cn/xiju/3001134.htm)
-- [佟丽娅陈思诚边界感](http://www.daogukj.com/wkrcfluq/)
-- [刘雯评论区](http://www.movie.hkepx.cn/movie/6354712.htm)
-- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.movie.hkepx.cn/xiju/8131821.htm)
-- [如何评价电影《一刀倾城》（又名神州第一刀）？](http://www.daogukj.com/4751279)
-- [孩子上幼儿园想家上演“逃学威龙”](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
-- [员工拒坐硬座通宵出差被开除](http://www.daogukj.com/6772234)
-- [骗子假扮执法人员陪演半个月](http://www.movie.hkepx.cn/movie/1847830.htm)
+- [女儿40除以5得出62看呆爸妈](http://www.movie.hkepx.cn/movie/4879804.htm)
+- [多诺米骨牌](http://www.movie.hkepx.cn/movie/5294565.htm)
+- [我好像突然对钱有了概念](http://www.movie.hkepx.cn/xiju/8234213.htm)
+- [《沙丘》在西方被捧成神作，为什么我却觉得很一般、看不进去，是审美没到位吗？](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
+- [全B站最垃圾的一期视频](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
+- [刘雯 避嫌](http://www.movie.hkepx.cn/xiju/2272650.htm)
+- [江西遂川泥石流致1人死亡11人失联](http://www.movie.hkepx.cn/movie/5183558.htm)
+- [怎么看 GPT-6 Astra 在 AA 上评分指数不如 Muse Spark 1.3 ？](http://www.daogukj.com/qcalvqip/)
+- [剧本杀 色情服务](http://www.daogukj.com/qsfzwgun/)
+- [为啥银行会出现「存 1 年利息高于存 5 年」的倒挂？会给普通储户带来哪些影响？](http://www.daogukj.com/broiawjw/)
+- [为什么脱口秀演员徐志胜会这么火？](http://www.movie.hkepx.cn/xiju/2682801.htm)
+- [这一次我们能赢吗？](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
+- [未来五年医保改革划了哪些重点](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
+- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/xiju/8343373.htm)
+- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
+- [两岁男童误把百草枯当饮料喝下](http://www.daogukj.com/8483541)
+- [第一批戴运动手环的受害者出现了](http://www.daogukj.com/qxxcgldr/)
+- [父亲挑扁担送双胞胎姐妹上大学](http://www.daogukj.com/9209363)
+- [我们来做手替，帮你试了破窗锤了！](http://www.movie.hkepx.cn/xiju/3158244.htm)
+- [你更愿意选择离家近但简单的工作还是离家远有挑战的工作？](http://www.daogukj.com/cyhwfhva/)
+- [松岛辉空或登顶世界第一](http://www.daogukj.com/tfhkqorv/)
+- [江西遂川山体滑坡已致1死11失联](http://www.movie.hkepx.cn/xiju/7580051.htm)
+- [我们全班都在嘲笑物理老师那支丑爆了的棕色](http://www.daogukj.com/knzztlfc/)
+- [1岁裸体男童沙漠走失12小时被找到](http://www.movie.hkepx.cn/movie/0847264.htm)
+- [【花学12大历史事件逐帧解读】第一回：伦敦暖气致疯事件](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
+- [手机涨价 最先扛不住的竟是经销商](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
+- [王一博赛道打滑](http://www.movie.hkepx.cn/movie/1751427.htm)
+- [王思雨：美国女篮在身体上有绝对优势](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
+- [留⚡️学⚡️人⚡️能⚡️飞](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
+- [接了好多蝌蚪…](http://www.movie.hkepx.cn/movie/1023624.htm)
+- [孩子上幼儿园想家上演“逃学威龙”](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
+- [早春晴朗这尺度正片确实放不了](http://www.daogukj.com/7693477)
+- [花少2 母带](http://www.movie.hkepx.cn/xiju/2826252.htm)
+- [井柏然 毛阿敏同款发型](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
+- [以旧换新激活消费新动能](http://www.daogukj.com/1461847)
+- [A股又走出10倍大牛股](http://www.movie.hkepx.cn/xiju/0818230.htm)
+- [如何评价《凡人修仙传》第190集？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
+- [井柏然人气一夜之间回到十年前](http://www.daogukj.com/xoshfaqj/)
+- [为什么总感觉妈妈还是三十几岁，大家潜意识里的妈妈都是多大？](http://www.movie.hkepx.cn/xiju/4934568.htm)
+- [98岁老人25年捐款近6000万元](http://www.daogukj.com/wiudnclj/)
+- [联通在青岛大学与校方起冲突系谣言](http://www.movie.hkepx.cn/movie/0173822.htm)
+- [1米83的佩奇和2米23的张子宇比身高](http://www.daogukj.com/4402502)
+- [“梅姨”画像更新](http://www.movie.hkepx.cn/xiju/3001134.htm)
+- [我发现了动画最离谱的BUG？](http://www.daogukj.com/wkrcfluq/)
+- [江苏省委书记省长带头捐款](http://www.movie.hkepx.cn/movie/6354712.htm)
+- [学校通知HPV接种，很多家长明确不接种，为什么？](http://www.movie.hkepx.cn/xiju/8131821.htm)
+- [港姐王菲与歌手张子丰宣布订婚](http://www.daogukj.com/4751279)
+- [江苏一小学家长自费更换桌椅，校方称「学校提供桌椅，家长自主行为」，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
+- [新 生 开 学 有 多 爽 ？！！](http://www.daogukj.com/6772234)
+- [这次是真玩爽了](http://www.movie.hkepx.cn/movie/1847830.htm)
 
 </details>
 
 ## 原始来源
 
-- [家长在寿司郎餐位用杯子给孩童接尿，顾客称服务员未加制止，从海底捞到寿司郎，门店遇此类事该怎么妥善处理？](https://www.zhihu.com/question/2079182746052552575)
+- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](https://www.zhihu.com/question/2078869409796286323)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f660be96120805f5b5bc -->
+<!-- content-fingerprint: d671a97a210bdbeb8674 -->
