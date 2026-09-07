@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 小区禁止新能源汽车进地库 律师解读
+# 400元买块“塑料砖头”戒手机
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7809105 · 更新：2026-09-07T07:04:38+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7808908 · 更新：2026-09-07T09:01:30+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“小区禁止新能源汽车进地库 律师解读”位列第 1 位，公开热度指标为 7809105。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“400元买块“塑料砖头”戒手机”位列第 1 位，公开热度指标为 7808908。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月6日，福建南平一业主反映，小区业委会表决通过禁止新能源车驶入地下车库的决定，要求已停车辆10日内移出。物业称怕爆炸而出台该规定。律师指出，此“一刀切”规定侵犯业主停车使用权，业主可起诉确认决定无效。
+来源公开摘要显示：你愿意花400元买一个塑料块来戒手机吗？近日，一款约5厘米见方，无需充电，不需电池，仅藏着一块NFC芯片的灰色塑料块在社交平台火了——当手机碰上这款塑料块，即可锁定提前选定的App，让用户无法使用。想要解锁，只能再拿灰色塑料块碰回手机。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [官方回应赴港看演唱会被取消全家低保](yi-xin-yi-yi.md)
-- [多地严查赵一鸣等零食品牌](san-xin-er-yi.md)
+- [“葫芦娃爷爷”隔壁阳台挂起7个葫芦](san-xin-er-yi.md)
 - [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](si-hai-wei-jia.md)
-- [《下一个是谁》第七季（4）](wu-gu-feng-deng.md)
+- [当你吃出口腔溃疡时体内正在发生什么](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
-- [相约“青春华章”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [赴港看演唱会被取消低保？当地回应](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [“一吨旧手机提炼200克黄金”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [今日白露](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [民警“散装英语”被迫上线](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [“电动中国，靠你们了！”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [今日白露](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [陈晓陈妍希好体面](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [ETC该不该取消](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [张纪中妻子备孕5胎](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [多地严查赵一鸣等零食品牌](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [《圣斗士》作者被骗 46 亿，这部童年经典是否将面临烂尾结局？](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [ETC该不该取消](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [假如格林穿越到了re0的世界（王选篇3）](http://www.daogukj.com/ihcjjgzd/)
-- [为啥白宫开始流行吃酸菜了？万斯自称吃酸菜减重成功，酸菜真能减肥吗？](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [张纪中妻子备孕5胎](http://www.daogukj.com/hytgpxub/)
-- [LPL四强出炉](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [如何看待联合国倡导使用“平等地球投影法”，这会让统治地图圈几百年的“墨卡托投影”彻底退出历史舞台吗？](http://www.daogukj.com/8357764)
-- [青春华章向新而行](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [“塞夫”拍完告别戏崩溃大哭](http://www.daogukj.com/rdfrumhx/)
-- [网友便宜出售莆田泡水鞋 商家打假](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [陈妍希想认林心如女儿做儿媳妇](http://www.daogukj.com/lntrsvpz/)
-- [什么！“紫色的蜂蜜？如果给蜜蜂喂火龙果里的天然色素，会不会吧蜂巢里的“蜂蜜”也染色？今天就来做一下实验！看看会不会酿造出“紫色的蜂蜜”！](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [尿酸高的人适当多喝这3种粥](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [婚内强奸案男子性侵妻子拍下视频](http://www.daogukj.com/mofrooiq/)
+- [“葫芦娃爷爷”隔壁阳台挂起7个葫芦](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [井柏然的两次扔行李箱](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [伊朗将宣布霍尔木兹海峡禁区](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [张家齐一直在被妈妈吐槽](http://www.daogukj.com/ihcjjgzd/)
+- [谁在郑钦文低谷期选择了“不分手”](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [《圣斗士》作者被骗 46 亿，具体是什么情况？这部童年经典是否将面临烂尾结局？](http://www.daogukj.com/hytgpxub/)
+- [多家银行集中「清淤」，工行核销超 800 亿元，背后原因是什么？释放出哪些信号？](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [紧急公关！！！（加更）](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [农行拟募资不超过1600亿元，工行拟募资不超过1000亿元，均用于补充资本，如何解读？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [当你吃出口腔溃疡时体内正在发生什么](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [用手还原badapple-终于还是走到了这一步](http://www.daogukj.com/8357764)
+- [安徽造车F4齐聚中国科大](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [挖眼案男孩操作手机完成报到](http://www.daogukj.com/rdfrumhx/)
+- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [网上很多人批评星宇，星宇到底哪里错了？](http://www.daogukj.com/lntrsvpz/)
+- [王一博事故调查诉求](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [当地回应赴港看演唱会被取消低保](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [郭富城称碰到刘德华张学友会聊育女经](http://www.daogukj.com/mofrooiq/)
 - [大家不爱住民宿了吗](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [安徽 新“五子登科”](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [女生赴港看演唱会被取消低保](http://www.daogukj.com/8424365)
+- [陈晓妈妈仍会帮陈妍希带孩子](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [7个村庄采水点 一滴真实水样也没采](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [“姜健”号驱逐舰正式入列朝鲜海军](http://www.daogukj.com/8424365)
 - [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [中国需要多久达到或超过 GPT-6 Astra 级别的模型水平？](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [肖战背后拍爸妈看李宇春演唱会](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [财政部将发行3000亿特别国债](http://www.daogukj.com/4727274)
-- [男子对着英烈墙上4个同名烈士叫爷爷](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [中国女篮大概率小组出线](http://www.daogukj.com/2266153)
-- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](http://www.daogukj.com/3795795)
-- [怎么有网友让我走到西藏啊…](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [加时死里逃生，中国女篮 74-70 逆转捷克，韩旭砍 22+14，杨舒予 18分5助，如何评价本场？](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [单亲妈妈月捐数年无人问停捐后遭催捐](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [A股转折点：从水牛到盈利牛](http://www.daogukj.com/uhjkuxrm/)
-- [我把汉堡搬到了星星上](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [半个娱乐圈明星都去李宇春演唱会](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [民警“散装英语”被迫上线](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [校长回应开学一年级只有一个人报到](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [汪苏泷与粉丝互动被抓伤手腕](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [【2026LPL第三赛段】9月6日 IG vs WE](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [10大含微塑料的日用品](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [【早期视频】逃离电视宝宝联机，绝命逃亡](http://www.daogukj.com/4727274)
+- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [华为 韬定律](http://www.daogukj.com/2266153)
+- [王一博赛车被撞调查结果](http://www.daogukj.com/3795795)
+- [终南山“绿色怪虫”身份揭晓](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [独董上任1个月2次跷班被提请解职](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [他只用一首歌，就能让十四亿中国人乖乖回家](http://www.daogukj.com/uhjkuxrm/)
+- [“一吨旧手机提炼200克黄金”不实](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [吃天麻睡觉不做梦？植物学家帮你验证](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [张纪中妻子备孕5胎](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [王传福：一块拇指大小电池造就比亚迪](http://www.movie.hkepx.cn/movie/8064840.htm)
 - [华强买瓜，但死神来了](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
 - [【独家】牧神记 第99集 医毒斗法](http://www.daogukj.com/5905118)
-- [八国外长联合声明强烈谴责以色列](http://www.daogukj.com/gchjscql/)
-- [中国节水账本里的“节约密码”](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [除了惊天逆转 郑钦文还有高情商发言](http://www.daogukj.com/9269800)
-- [爷爷提前剪葫芦是给流量的一记耳光](http://www.daogukj.com/7091853)
-- [“东山再起”的东山在哪](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [俄新武器击碎乌民众“战局扭转”幻想](http://www.daogukj.com/2402025)
-- [北京的路边摊都去了哪儿](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [华为 韬定律](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [假如格林穿越到了re0的世界（王选篇3）](http://www.daogukj.com/gchjscql/)
+- [这里是中国科大](http://www.movie.hkepx.cn/xiju/1255661.htm)
+- [刘耀文说错话丁程鑫的表情](http://www.daogukj.com/9269800)
+- [奇瑞董事长幽默回应谁是最强劲对手](http://www.daogukj.com/7091853)
+- [葫芦爷爷提前剪葫芦 游客们表示理解](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [多地严查赵一鸣等零食品牌](http://www.daogukj.com/2402025)
+- [肖战背后拍爸妈看李宇春演唱会](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [单亲妈妈月捐数年无人问停捐后遭催捐](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [小区禁止新能源汽车进地库 律师解读](https://www.baidu.com/s?wd=%E5%B0%8F%E5%8C%BA%E7%A6%81%E6%AD%A2%E6%96%B0%E8%83%BD%E6%BA%90%E6%B1%BD%E8%BD%A6%E8%BF%9B%E5%9C%B0%E5%BA%93+%E5%BE%8B%E5%B8%88%E8%A7%A3%E8%AF%BB&sa=fyb_news&rsv_dl=fyb_news)
+- [400元买块“塑料砖头”戒手机](https://www.baidu.com/s?wd=400%E5%85%83%E4%B9%B0%E5%9D%97%E2%80%9C%E5%A1%91%E6%96%99%E7%A0%96%E5%A4%B4%E2%80%9D%E6%88%92%E6%89%8B%E6%9C%BA&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 918dbca1be453ed93f58 -->
+<!-- content-fingerprint: 1e63862eeb7a7f74b008 -->
