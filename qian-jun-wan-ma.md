@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 时代楷模王戟最想对年轻人说
+# 王戟说与其内耗不如放手去干
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：1120637 · 分类：民生新闻 · 更新：2026-09-08T09:21:11+08:00
+> 来源：微博热搜 · 排名：第 3 位 · 热度：642282 · 分类：民生新闻 · 更新：2026-09-08T14:14:05+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“时代楷模王戟最想对年轻人说”位列第 3 位，公开热度指标为 1120637，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“王戟说与其内耗不如放手去干”位列第 3 位，公开热度指标为 642282，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [让青春在科技强国征途中闪闪发光](wan-zi-qian-hong.md)
-- [美网女单第四轮，郑钦文 2-0 斯瓦泰克挺进 8 强，如何评价本场比赛？](niao-yu-hua-xiang.md)
-- [孤岛小夫 第三集](shan-qing-shui-xiu.md)
-- [赵一鸣致歉 承诺称错赔十倍](feng-he-ri-li.md)
+- [看我国数字贸易发展“成绩单”](wan-zi-qian-hong.md)
+- [赵一鸣致歉承诺出现称重问题时赔十倍差价，好想来回应将对涉事门店严肃整改处理，如何看待双方的回应？](niao-yu-hua-xiang.md)
+- [《鸣潮》共鸣者「景燃」PV | “问神”](shan-qing-shui-xiu.md)
+- [长江有多艘船10秒倒光不明黑色物质](feng-he-ri-li.md)
 
 ## 站内推荐
 
-- [郑钦文逆转震惊美网](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [刚刚：德国选择党历史性狂胜 选举结果显示什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [雷军“哭诉”：内存实在太贵](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [男子钓鱼时发现长约六七十厘米鳄鱼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [斯瓦泰克不敌郑钦文哭了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [早春晴朗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [霸王茶姬 茶叶蛋](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [美网赞叹郑钦文奇迹翻盘：惹不起](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [如何看待紫金矿业 2026 年半年度中被发现多处基础性文字错误？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [同事工资是我两倍，活儿却比我少一半，我该找领导谈吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [被父母花高价送进矫正机构，月交费高达1.5万元，这类针对「问题成年人」的特训学校，究竟是否有存在价值？](http://www.daogukj.com/8034746)
-- [赵一鸣致歉 承诺称错赔十倍](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
-- [二楼好用吗？试小米N90 Max探索版](http://www.daogukj.com/yjeybyqr/)
-- [连“一杆秤”都管不住算什么大品牌](http://www.movie.hkepx.cn/movie/0234270.htm)
-- [乌克兰的军统和中统内斗](http://www.movie.hkepx.cn/xiju/1436315.htm)
-- [杨洋 反正你也播不了](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
-- [【自制动画】聊斋志异之《李伯言》](http://www.movie.hkepx.cn/movie/0738215.htm)
-- [钧正平评郭德纲篡改抗战歌曲事件](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
-- [海归学历 还吃香吗](http://www.movie.hkepx.cn/xiju/4806301.htm)
-- [月捐数年“无人问” 停捐一月遭“催捐”？四川单亲妈妈自曝“寒心”经历 多名网友评论区晒同款经历](http://www.movie.hkepx.cn/xiju/7489093.htm)
-- [116号车手向王一博道歉](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
-- [偶像剧宣发 软色情](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
-- [郑钦文美网挑战莱巴金娜](http://www.movie.hkepx.cn/movie/1016973.htm)
-- [郑钦文实现千万分之一概率事件](http://www.movie.hkepx.cn/movie/8785597.htm)
-- [郑钦文逆转震惊美网](http://www.daogukj.com/uxoqsalx/)
-- [伊朗释放强硬信号在美舰上方测试导弹](http://www.movie.hkepx.cn/movie/2181882.htm)
-- [吃播网红干饭莹莹去世年仅 24 岁，其曾称「反复吃，钾流失」，钾流失有多危险？哪些因素可能导致钾流失？](http://www.movie.hkepx.cn/movie/6448079.htm)
-- [小米汽车最便宜车型出炉](http://www.movie.hkepx.cn/movie/4252904.htm)
-- [出界就死（2）](http://www.movie.hkepx.cn/movie/7165592.htm)
+- [对话汉斯·季默！如何用一段旋律创造一个电影宇宙？](http://www.daogukj.com/8034746)
+- [长江有多艘船10秒倒光不明黑色物质](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
+- [「中国女主播连续跳舞4到6小时，几乎不停歇」的视频在外网引发热议。网友辣评：这看起来简直像《黑镜》里的情节。](http://www.daogukj.com/yjeybyqr/)
+- [寒门子弟的逆袭路径，琅琊王氏的历史之巅【两晋悲歌】](http://www.movie.hkepx.cn/movie/0234270.htm)
+- [指控4岁男童摸屁股是纠缠式维权](http://www.movie.hkepx.cn/xiju/1436315.htm)
+- [东莞理工学院专插本虚假招生？假的](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
+- [考研圈大地震！顶尖名校陆续停招学硕](http://www.movie.hkepx.cn/movie/0738215.htm)
+- [心动的信号9](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
+- [倪虹洁随手扔烟头](http://www.movie.hkepx.cn/xiju/4806301.htm)
+- [赵一鸣致歉 承诺称错赔十倍](http://www.movie.hkepx.cn/xiju/7489093.htm)
+- [大量黄金正从美英运出](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
+- [男子偷拍未公开战机刚发布就被查](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
+- [郑钦文说逆转不是运气](http://www.movie.hkepx.cn/movie/1016973.htm)
+- [铜价“爆了”](http://www.movie.hkepx.cn/movie/8785597.htm)
+- [早春晴朗](http://www.daogukj.com/uxoqsalx/)
+- [如何看待华为首款阔直板Pura X View上市定价5999起，这个价格是否有竞争力？](http://www.movie.hkepx.cn/movie/2181882.htm)
+- [如何看待全国各地古镇相似度高达 99%，连「特色小吃」都一模一样？为何会出现这一局面？](http://www.movie.hkepx.cn/movie/6448079.htm)
+- [毛阿敏为什么要在镜头面前把许晴逼到崩溃？](http://www.movie.hkepx.cn/movie/4252904.htm)
+- [埃及女主持人涉毒被判绞刑 庭上落泪](http://www.movie.hkepx.cn/movie/7165592.htm)
 - [第2期（上）：“神秘技师”惊现按摩店？！【时差五小时3】](http://www.play.hengshemaoyi.cn/xiju/8975129.htm)
-- [大众汽车宣布行业有史以来最大规模重组，裁员10万、车型砍半、关停4厂，背后有哪些深层原因？](http://www.movie.hkepx.cn/xiju/1092537.htm)
-- [孤岛小夫 第三集](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
-- [用AI训练AI](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
-- [联合国发布了新版世界地图](http://www.daogukj.com/5516263)
-- [特朗普发布新版「美国总统从夯到拉排名」，自己夯爆了，拜登、奥巴马在「失败区」，你怎么看特朗普的排名？](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
-- [绝不允许歪曲篡改抗战歌曲](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
-- [倪妮井柏然分手原因](http://www.daogukj.com/dxqevygl/)
-- [青岛保时捷女销冠目前排名全球第一](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
-- [和偷外卖的较量一番](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
-- [美网回应郑钦文0比5逆转](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
-- [余承东建议苹果用户买华为备用机](http://www.daogukj.com/zkdbaajm/)
-- [总裁，在上海20平的“姐”景房别墅您喜欢吗？](http://www.movie.hkepx.cn/movie/3226951.htm)
-- [美网女单第四轮，郑钦文 2-0 斯瓦泰克挺进 8 强，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/8362863.htm)
-- [祖先如果真的早入轮回了，那祈祷祖宗保佑是不是也没什么用？](http://www.movie.hkepx.cn/movie/9956114.htm)
-- [宝格丽小公主缺席晚宴](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
-- [为什么国产偶像剧都喜欢把男女主的工作背景设定在广告、新闻、公关等传媒行业？](http://www.movie.hkepx.cn/xiju/7498992.htm)
-- [2026 女篮世界杯小组赛，中国女篮 71-51 意大利女篮 ，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/5631141.htm)
-- [美网赞叹郑钦文奇迹翻盘：惹不起](http://www.daogukj.com/1160189)
-- [全网首发！周年庆解密我们搞出来啦！居然是双模式！全服活动！这下知道为什么S11叫群星了，快来投稿！](http://www.movie.hkepx.cn/movie/6067790.htm)
-- [神兽厨房：给终南山来的神秘骑虎客人做饭](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
-- [郑钦文2比0斯瓦泰克晋级八强](http://www.movie.hkepx.cn/movie/3280328.htm)
-- [莱巴金娜说跟郑钦文打是艰难的对决](http://www.daogukj.com/fkubbivn/)
-- [费大厨该摘下“大厨”了](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
-- [《真千金她真没有背景通天》1-31](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
-- [4年前我设计的车，如今给小米量产了？！](http://www.daogukj.com/pdxfeqmt/)
-- [曝井柏然刘雯已领证](http://www.movie.hkepx.cn/xiju/4223434.htm)
-- [今年下半年最强冷空气来袭](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
-- [《解 救 姜 哥》](http://www.daogukj.com/9192187)
-- [花少5播放量](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
-- [江西遂川万安这些涉灾信息不实](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
+- [陪护阿姨总爱蔬菜里加姜，老人提醒多次后仍不改，被老人评价“脑子有病”后直接辞职，这件事到底是谁不对？](http://www.movie.hkepx.cn/xiju/1092537.htm)
+- [《鸣潮》共鸣者「景燃」PV | “问神”](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
+- [东北降温男子半袖搭配“聚酯纤维”](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
+- [成年后意识到世界根本没有大人](http://www.daogukj.com/5516263)
+- [立志成为恶兽第三集【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
+- [檀健次为拍电影吞下70包山楂粉](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
+- [尚雯婕公司起诉曾舜晞](http://www.daogukj.com/dxqevygl/)
+- [22岁男子看望生病奶奶过桥时坠亡](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
+- [4岁男童的手是碰还是摸不该情绪定罪](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
+- [如何看待「高盛预计人民币未来将持续有序升值，每年升幅约3%至5%，五年后升至5.5元人民币兑1美元」？](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
+- [如何看待「余承东建议苹果用户买华为备用机，备用几天就可能成为主力机」？你会购买吗？](http://www.daogukj.com/zkdbaajm/)
+- [二楼好用吗？试小米N90 Max探索版](http://www.movie.hkepx.cn/movie/3226951.htm)
+- [赵一鸣致歉承诺出现称重问题时赔十倍差价，好想来回应将对涉事门店严肃整改处理，如何看待双方的回应？](http://www.movie.hkepx.cn/movie/8362863.htm)
+- [手铐失灵无法解开 110求助119](http://www.movie.hkepx.cn/movie/9956114.htm)
+- [赵一鸣致歉：若称错差价十倍退还](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
+- [《真千金她真没有背景通天》1-31](http://www.movie.hkepx.cn/xiju/7498992.htm)
+- [广东人真正的执念太真实了](http://www.movie.hkepx.cn/movie/5631141.htm)
+- [《最会做菜の一集》](http://www.daogukj.com/1160189)
+- [赵一鸣螺蛳粉比商超少近100克](http://www.movie.hkepx.cn/movie/6067790.htm)
+- [江西遂川高坪镇泥石流已致5人遇难](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
+- [人民日报谈“葫芦娃爷爷”摘下葫芦](http://www.movie.hkepx.cn/movie/3280328.htm)
+- [华为鸿蒙 7 操作系统采用超空间存储技术，用户升级后最多可节省 109 GB存储空间，如何看待该性能？](http://www.daogukj.com/fkubbivn/)
+- [张极高会](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
+- [网红宣称捐款百万实际只捐1元](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
+- [现房销售开始站上“C位”](http://www.daogukj.com/pdxfeqmt/)
+- [网红宣传捐款百万实际只捐1元](http://www.movie.hkepx.cn/xiju/4223434.htm)
+- [郑钦文实现千万分之一概率事件](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
+- [美网8强](http://www.daogukj.com/9192187)
+- [小米澎程 N70 系列增程 SUV 发布，售价 20.99 万元起，怎样看待这一定价？竞争力有多强？](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
+- [小米18Fold中折叠评测](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
 
 </details>
 
 ## 原始来源
 
-- [时代楷模王戟最想对年轻人说](https://s.weibo.com/weibo?q=%E6%97%B6%E4%BB%A3%E6%A5%B7%E6%A8%A1%E7%8E%8B%E6%88%9F%E6%9C%80%E6%83%B3%E5%AF%B9%E5%B9%B4%E8%BD%BB%E4%BA%BA%E8%AF%B4)
+- [王戟说与其内耗不如放手去干](https://s.weibo.com/weibo?q=%E7%8E%8B%E6%88%9F%E8%AF%B4%E4%B8%8E%E5%85%B6%E5%86%85%E8%80%97%E4%B8%8D%E5%A6%82%E6%94%BE%E6%89%8B%E5%8E%BB%E5%B9%B2)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 385fd15c0fbdfa05818e -->
+<!-- content-fingerprint: 79bf4255e9238bed0d32 -->
