@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 华为与赛力斯确认将智选车合作模式调整为「轻资产」模式，这意味着什么？会带来哪些影响？
+# 如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：881 万热度 · 分类：问答 · 更新：2026-09-15T15:18:11+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：2202 万热度 · 分类：问答 · 更新：2026-09-15T20:45:52+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“华为与赛力斯确认将智选车合作模式调整为「轻资产」模式，这意味着什么？会带来哪些影响？”位列第 1 位，公开热度指标为 881 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？”位列第 1 位，公开热度指标为 2202 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：IT之家 9 月 15 日消息，据财联社今日援引知情人士消息，华为、赛力斯的智选车合作模式将在本周进行调整，未来华为将采用轻资产的方式与赛力斯合作，产品、营销、销售、服务等方面将由华为主导，调整为赛力斯主导，华为赋能。 报道称，此次调整，鸿蒙智行将聚焦资源，加速智界、享界、尊界、尚界品牌成功，从而进一步夯实鸿蒙智行的行业与市场地位。 综合IT之家此前报道，鸿蒙智行 2026 年 8 月交付 42,101 台，年内累计交付同比增长 10.8%。截至目前，鸿蒙智行全系累计交付已突破 152 万台。 赛力斯 2026 年 8 月新能源汽车销量 24,244 辆
+来源公开摘要显示：DeepSeek v4.1 的主 Attention 算子负责人刘胜与发了一篇 《我不得不把才华埋葬在昨天》，主要是说，半年到一年内，AI 写算子的水平就会追平甚至超过自己，目前人类受限于思考速度、输出节奏和并行上限，而模型可以在推理深度、工具调用、并行度上持续堆叠。 所以就算知道越优化算子、模型迭代越快、自己被替代越快，他还是选择全力投入，理由是“与其被别人革命，不如自己革自己的命”。https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](wu-gu-feng-deng.md)
-- [涉嫌猎杀玳瑁中国籍教练发声](liu-shen-wu-zhu.md)
-- [儿子去世孙子非亲生案孩子姑姑发声](qi-shang-ba-xia.md)
-- [公职人员醉驾致一对夫妻身亡，夫妻被判负次要责任引家属不满，如何从法律角度解读这一主次责任划分？](ba-mian-ling-long.md)
+- [一颗免费鸡蛋 “钓”走数万养老钱](liu-shen-wu-zhu.md)
+- [平台月付将退出支付选项](qi-shang-ba-xia.md)
+- [金正恩：始终不变地支持普京和俄人民](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [我来接受中国朋友们的挑战啦！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [挑战用24小时跑完世界最长地铁线](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [塔克拉玛干沙漠发现大型水源](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [血观音 翻红](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [娶山区媳妇 人口买卖](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [比亚迪高管称燃油车没有未来，如何看待这一言论？燃油车会快速退场吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [为什么重庆可以在山上建设城市，深圳香港不可以？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [「小白」天玑9600 Pro性能首测：能效亮眼 稳中有进！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [2亿灵活就业者社保不足 症结在哪](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [受贿5742万 毕井泉获刑14年](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [野人先生创始人回应太贵](http://www.daogukj.com/7394302)
-- [老人被弹窗广告困住无法联系家人](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [苹果回应iPhone 18 Pro破发](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [我来接受中国朋友们的挑战啦！](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [为什么《笑傲江湖》中岳不群在网络的风评这几年变好了？](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [一线城市房价涨了](http://www.daogukj.com/thgdlrxk/)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](http://www.daogukj.com/qqvbmaen/)
-- [医院误给婴儿注射10倍剂量肾上腺素](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [儿子去世孙子非亲生案孩子姑姑发声](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [杨洋陈都灵 等风热吻你](http://www.daogukj.com/6313812)
-- [雷军脚踹宇树机器人](http://www.daogukj.com/wczbkkvt/)
-- [汐见琴音——S.E.E.S.的活泼少女队长| P5X x P3P联动即将开启](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [胖东来“不续聘”违法吗？律师解读](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [关键词解锁服贸会上的经济新机遇](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [马珊珊任沈阳市副市长、代理市长](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [极兔快递员被指向外卖吐痰](http://www.daogukj.com/7394302)
+- [全网首发！感谢大家参与！二周年彩蛋我们解出来啦！大战场篇完事！三角洲真的太阴了！](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [陈伟霆何穗为儿子办周岁宴](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [比亚迪高管称燃油车没有未来，如何看待这一言论？燃油车会快速退场吗？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [欧洲学者：中国白皮书是世界未来关键](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [四川高校不允许中秋国庆连休？不实](http://www.daogukj.com/thgdlrxk/)
+- [玩《鬼武者》2 小时仍未掌握「一闪」，这个技巧的诀窍是什么？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [关个弹窗广告咋这么难](http://www.daogukj.com/qqvbmaen/)
+- [本来以为泡泡玛特赚不到我的钱](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [平台月付将退出支付选项](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [四川辟谣高校禁连放13天假](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [全网首发！二周年彩蛋解密完成！每个鸟窝都是入口！难度大大降低！这些东西速买！要爆！](http://www.daogukj.com/6313812)
+- [如何评价湘雅医院「23年未见父母，每天睡2小时」教师PPT争议？影响如何？是否存在夸大及其它相关问题？](http://www.daogukj.com/wczbkkvt/)
+- [“老虎”毕井泉贪5742万被判14年](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [王楚钦孙颖莎等5人放弃亚锦赛资格](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [长征高铁开行的背后](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [4问4答了解平陆运河为何而建](http://www.movie.hkepx.cn/xiju/4060100.htm)
 - [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？](http://www.daogukj.com/jjlkzcvz/)
-- [“四川芬达”恶搞杨坤被判赔31.5万](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [范丞丞人脉](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [刘翔口口声声说的“第三条路”到底是什么？](http://www.daogukj.com/drcaefzl/)
-- [为什么重庆可以在山上建设城市，深圳香港不可以？](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [全新【求生者】“神童”故事视频爆料：——“我们是奇迹的共谋……抑或共犯？”](http://www.daogukj.com/rrxeunix/)
-- [四川所有高校不许连放13天？不实](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [淋巴瘤的早期预警信号](http://www.daogukj.com/qekijaaa/)
-- [8岁女童被男孩推倒后用电话手表报警](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [理想等车企加速「去宁化」，其背后原因是什么？对行业有何影响？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [和五月天阿信见了他](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [井柏然写字孙千画画](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [超爽新模式 | 『异变轮战』即将全球上线！](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [杨洋李沁谈了五年](http://www.daogukj.com/4880877)
-- [为什么 BLG 在 2026 总决赛上会输给刚刚零封的 AL？他们输在哪？](http://www.daogukj.com/gyblgzpw/)
-- [我国人口总量14.05亿](http://www.daogukj.com/3742193)
-- [12306回应男子高铁喝白酒](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [最成功的“魔改”，恰恰背叛了原著？160年了，爱丽丝为什么总在被改写？【万字拉片】《爱丽丝梦游仙境》P1](http://www.daogukj.com/yhmvbvtt/)
-- [美国首次承认具备太空进攻能力](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [国家卫健委呼吁大家要多锻炼](http://www.daogukj.com/4405323)
-- [塔克拉玛干沙漠发现大型水源](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [新兵入伍现场送别人群迟迟不肯离开](http://www.daogukj.com/ydbbqbuc/)
-- [樊振东登上亚运会海报](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [微信AI 隐私](http://www.daogukj.com/5927597)
-- [樊振东不参赛却登上亚运会海报](http://www.daogukj.com/3691526)
-- [男子苦钓三天钓起118斤大青鱼](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [于东来回应“四年合同制”](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [本科生扎堆回炉读技校](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [锵锵锵](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [日本为啥很少有米线之类的米加工品？](http://www.daogukj.com/9555051)
-- [研究：得糖尿病的人大多离不开这4点](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [河北内卷网](http://www.daogukj.com/jjlkzcvz/)
+- [5名假军人怒闯警察局，让局长释放囚犯！演技堪比好莱坞！](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [上海诚邀时代少年团](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [日本共产党委员长落泪痛批高市政府](http://www.daogukj.com/drcaefzl/)
+- [浙大教授回应飘逸刘海：我本色表现](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [亚马尔称今年我配得上金球奖，「我和姆巴佩是世界上最好的两名球员」，如何看待亚马尔提到的金球奖归属问题？](http://www.daogukj.com/rrxeunix/)
+- [杨洋李沁谈了五年](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [教师PPT写23年未见父母每天睡2小时](http://www.daogukj.com/qekijaaa/)
+- [既然多巴胺使人快乐，那我开发多巴胺口服液，岂不是发财了？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [一组数据看8月份国民经济运行平稳](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [景区称30岁以上老人免费领登山杖](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [美国承认已拥有在轨「太空控制武器」，它可能会是种什么武器？太空军事化会加速到来吗？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [“日不落”要变成“小不列颠”吗](http://www.daogukj.com/4880877)
+- [黎明当选四川雅安市市长](http://www.daogukj.com/gyblgzpw/)
+- [新能源汽车 燃油车](http://www.daogukj.com/3742193)
+- [你在恐怖片里看到吐的四大烂梗，每一个在当年都是神来之笔！](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [从经济学意义上来说，到底是“物美价廉”靠谱？还是“一分钱，一分货”靠谱？](http://www.daogukj.com/yhmvbvtt/)
+- [211毕业生卖二手机年营业额两千万](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [挑战用24小时跑完世界最长地铁线](http://www.daogukj.com/4405323)
+- [「小白」天玑9600 Pro性能首测：能效亮眼 稳中有进！](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [樊振东未参赛登亚运会海报原因](http://www.daogukj.com/ydbbqbuc/)
+- [驯化西瓜：一颗苦涩有毒的野瓜，如何成为世界顶流](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [与印度人聊聊种姓制、恒河水、挂火车、仿制药、补习班、IT外包、彩礼嫁妆、干净又卫生……网络刻板印象是真是假？| 地球观察局EP01 【视频播客】](http://www.daogukj.com/5927597)
+- [海底捞股价创四年半来盘中新低，大股东折价大宗减持，哪些信息值得关注？](http://www.daogukj.com/3691526)
+- [娜扎被宋祖儿嘘过](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [张元英把手臂汗毛P掉了](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [《上吊比赛》](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [李大霄：A股牛市已经告一段落](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [二本文科女，没有任何技能，父母是农民，身体也不好，家里几乎没有存款，求助以后要怎么走，有什么出路？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [中国普通话普及率达到87.72％](http://www.daogukj.com/9555051)
+- [范丞丞回复现发团](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [华为与赛力斯确认将智选车合作模式调整为「轻资产」模式，这意味着什么？会带来哪些影响？](https://www.zhihu.com/question/2082906405447779781)
+- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](https://www.zhihu.com/question/2083123101873844765)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0593333964866ef81359 -->
+<!-- content-fingerprint: b31a608fc2a43adea178 -->
