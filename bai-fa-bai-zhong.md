@@ -2,11 +2,11 @@
 
 # 平陆运河“全能管家”有多硬核
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7618333 · 更新：2026-09-17T04:00:59+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7616624 · 更新：2026-09-17T06:53:22+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“平陆运河“全能管家”有多硬核”位列第 2 位，公开热度指标为 7618333。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“平陆运河“全能管家”有多硬核”位列第 2 位，公开热度指标为 7616624。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：9月16日，平陆运河正式通航，这项世纪工程的顺畅运转，离不开“全能管家”青年调度中心。青年调度中心作为国内首个全生命周期智慧运河数字孪生平台，可以实现一屏观全线、一脑统江海，对全流程业务进行一体化智能闭环管控。
 
@@ -20,72 +20,72 @@
 
 - [9图读懂平陆运河核心看点](qian-jun-wan-ma.md)
 - [夏粮收购总量超1亿吨](wan-zi-qian-hong.md)
-- [韩国 3000 元一针的「尸皮针」火了，把死人皮肤组织打进活人脸里真能抗衰老吗？会有安全和伦理风险吗？](niao-yu-hua-xiang.md)
-- [iPhone18 Pro性能分析：五年来最强的芯片升级！](shan-qing-shui-xiu.md)
+- [野人先生在沉默数日后首度发声，「感谢大家长期以来对野人先生的关心和支持」，你觉得这波公关处理怎么样？](niao-yu-hua-xiang.md)
+- [《鸣潮》动画短片 | 寻心](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
 - [大学毕业生举报资助人是间谍](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
 - [大一新生1000块一个月到底够花吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [北京任前公示：张朝阳拟任地区法院院长](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [学生党无力支付token费用怎么办？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [为什么观众和影评人都能看出的剧情硬伤，电影里却依然存在？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [中国体操队在机场等了6小时](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [坠亡学生姐姐发声](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [天安门广场大花篮启动施工](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [港中大（深圳）实行 9 个月工资制，并期望年轻教授 5 年内获诺奖，这会如何影响学术生态？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [谢霆锋称不断跨行是因为焦虑](http://www.daogukj.com/nksrlhgk/)
-- [北京任前公示：张朝阳拟任地区法院院长](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [如何评价全球首款AI智能体手机努比亚NaviX Ultra豆包手机发布开售？有什么亮点与不足？](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [王鹤棣方称已就网传不实聊天记录报警并完成取证，静和医疗否认王鹤棣曾就诊，到底发生了什么？](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [许嵩冯禧年龄相差14岁](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [终于不会点外卖就稀里糊涂“负债”了](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [怦然心动导演夫妇被儿子刺死案新进展](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [谭松韵演出生理性恐惧](http://www.daogukj.com/7870973)
-- [⚡️请被欧拉吧DIO大人！⚡️【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [HYROX 就「选手失禁夺冠」一事道歉并给下午场赛事运动员全额退费，你认为这次道歉＋退费能挽回口碑吗？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [iPhone 18 Pro 评测：献祭手感，换回超强性能和续航](http://www.daogukj.com/nksrlhgk/)
+- [中国体操队在机场等了6小时](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [超强厄尔尼诺将影响江苏](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [演员王凯在光明日报发文](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [谭松韵演出生理性恐惧](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [⚡️请被欧拉吧DIO大人！⚡️【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [性格决定命运这句话太残忍了](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [“30岁以上老人吃面送荷包蛋”](http://www.daogukj.com/7870973)
+- [深夜瓜地竟然闹出此事......](http://www.movie.hkepx.cn/movie/0510547.htm)
 - [烂烂烂烂烂烂活](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [崔天凯：一劳永逸解决台湾问题](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [为什么感觉现在的教育工作者都在吐槽小孩越来越笨了？究竟是个别现象被当普遍现象还是真的如此？](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [一点点 威胁员工](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [中国男子涉嫌在印尼渔猎玳瑁并烹饪，离境时被拦接受调查，玳瑁是什么动物？若属实他将承担什么责任？](http://www.daogukj.com/7724801)
-- [适当饿一点好处竟然这么多](http://www.daogukj.com/oxaknnjh/)
-- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.daogukj.com/kxqitgac/)
+- [iPhone18Duo评测](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [妈妈忘接孩子 男孩淡定躺台阶吃东西](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [坠亡幼童父亲被妻子打后扬言要报警](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [美联储今晚将公布 9 月利率决议，加息靴子会落地吗？今晚金融市场会如何走？](http://www.daogukj.com/7724801)
+- [幼童坠亡事发房间监控未插电](http://www.daogukj.com/oxaknnjh/)
+- [港中大（深圳）实行 9 个月工资制，并期望年轻教授 5 年内获诺奖，这会如何影响学术生态？](http://www.daogukj.com/kxqitgac/)
 - [9图读懂平陆运河核心看点](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [玻尿酸科普](http://www.daogukj.com/eymoxoal/)
-- [美联储宣布加息25个基点](http://www.daogukj.com/sblnbief/)
-- [“30岁以上老人吃面送荷包蛋”](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [啄木鸟维修更换开关收费 2800 元，投诉后仅退款 1000 元，这合理吗？家庭维修为啥难明码标价？](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [中国体操队在机场等了6小时](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [连休13天大学汇总](http://www.daogukj.com/mqwqpttl/)
-- [时速最少160以上飞过去了](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [聊天记录显示导师曾给坠亡学生转账关心](http://www.daogukj.com/dubydsdf/)
+- [官方辟谣国盛民安养老补贴惠民工程](http://www.daogukj.com/eymoxoal/)
+- [曝国乒落地名古屋被困机场](http://www.daogukj.com/sblnbief/)
+- [这夜坝真讷啊](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [倪虹洁模仿闫妮“微醺”](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [小车在高铁站停7年欠费近6万](http://www.daogukj.com/mqwqpttl/)
+- [《雍正王朝》中为什么康熙总是不急不慢、智珠在握的感觉，而雍正却动不动就发火大喊大叫？](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [南医大事件涉事导师门诊已约满](http://www.daogukj.com/dubydsdf/)
 - [女演员心脏骤停康复5年后重新拍戏](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [80后富豪要掏30亿救哪吒汽车图什么](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [韩国 3000 元一针的「尸皮针」火了，把死人皮肤组织打进活人脸里真能抗衰老吗？会有安全和伦理风险吗？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [铜价站上历史高位废铜也成“香饽饽”](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [曝国乒落地名古屋被困机场](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [「儿子去世孙子非亲生案」老人两度败诉，将召开再审听证会，希望获得对孙子探视权，再审听证会结果会怎样？](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [为什么观众和影评人都能看出的剧情硬伤，电影里却依然存在？](http://www.daogukj.com/oioomhrz/)
-- [父亲遛狗2岁幼童独留家中坠亡](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [演员王凯在光明日报发文](http://www.daogukj.com/btwajvnj/)
-- [深夜瓜地竟然闹出此事......](http://www.daogukj.com/8398590)
-- [“民政部组织国盛民安补贴工程”不实](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [“豆包手机”正式发售](http://www.daogukj.com/4390556)
-- [南京一高校学生晚上排长队洗澡，学生反映「每天排队都是一个小时起步」，真是这样吗？有哪些解决办法？](http://www.daogukj.com/skeidyel/)
-- [为什么QQ邮箱这么好用大家还是觉得它「档次不够高」？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [女儿撮合离异母亲与丧偶公公结婚](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [平陆运河正式通航，广西从此江海直连，这条设想了近百年的运河建设难度有多大？它能「带飞」中国西南吗？](http://www.daogukj.com/jdhlltmp/)
-- [iPhone18Pro炫光](http://www.daogukj.com/inrtjmju/)
-- [第一批穿德训鞋的受害者出现了](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [儿子用豆包选下葬母亲黄道吉日，因葬礼后亲戚遇车祸重伤决定起诉豆包，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [野人先生在沉默数日后首度发声，「感谢大家长期以来对野人先生的关心和支持」，你觉得这波公关处理怎么样？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [女儿撮合离异母亲与丧偶公公结婚](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [《鸣潮》动画短片 | 寻心](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [每天处理猫咪跟小小人类纠纷](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [“民政部组织国盛民安补贴工程”不实](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [天安门广场大花篮启动施工](http://www.daogukj.com/oioomhrz/)
+- [别惹奶奶！乡村丧尸大战！](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [朋友在国外呆了8年没回国](http://www.daogukj.com/btwajvnj/)
+- [南京一高校学生晚上排长队洗澡，学生反映「每天排队都是一个小时起步」，真是这样吗？有哪些解决办法？](http://www.daogukj.com/8398590)
+- [父亲遛狗2岁幼童从18楼坠亡](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [北京任前公示：张朝阳拟任地区法院院长](http://www.daogukj.com/4390556)
+- [女生花12小时做拼豆送姚安娜](http://www.daogukj.com/skeidyel/)
+- [伊朗单日击落 3 架美军 MQ-1 无人机，美军密集出动同一侦察机，想获取什么情报？还是试探伊朗防空？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [玻尿酸科普](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [适当饿一点好处竟然这么多](http://www.daogukj.com/jdhlltmp/)
+- [南京博物院 徐湖平](http://www.daogukj.com/inrtjmju/)
+- [父亲遛狗2岁幼童独留家中坠亡](http://www.movie.hkepx.cn/movie/4017423.htm)
 - [战火烧到波兰门口 乌还能撑多久](http://www.daogukj.com/9107163)
-- [王曼昱回应首次登顶女单世界第一](http://www.daogukj.com/ypwsrnna/)
+- [三年之期已到，恭迎世一上归位！【第9集】](http://www.daogukj.com/ypwsrnna/)
 - [《原神》薇斯纳角色PV——「『风』行迷踪」](http://www.daogukj.com/7314066)
-- [南方医科大学一学生坠楼身亡，其二姐称「导师对弟弟很关心」，导师辟谣「不给批假」，哪些信息值得关注？](http://www.daogukj.com/3027269)
-- [坠亡学生姐姐发声](http://www.daogukj.com/5993003)
+- [聊天记录显示导师曾给坠亡学生转账关心](http://www.daogukj.com/3027269)
+- [80后富豪要掏30亿救哪吒汽车图什么](http://www.daogukj.com/5993003)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ad1108dbc5775ca85bd5 -->
+<!-- content-fingerprint: 2b0cc1ab839bf445bce8 -->
