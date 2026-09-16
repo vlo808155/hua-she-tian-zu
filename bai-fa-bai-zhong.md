@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 对外贸易快速增长
+# 世纪工程4年完工
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：982937 · 分类：民生新闻 · 更新：2026-09-16T09:26:32+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7618653 · 更新：2026-09-16T14:39:08+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“对外贸易快速增长”位列第 3 位，公开热度指标为 982937，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“世纪工程4年完工”位列第 2 位，公开热度指标为 7618653。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月16日，平陆运河正式通航。这一全长134.2公里、总投资约727亿元的世纪工程，仅用4年建成。全线40个党支部、110余支党员突击队、1300余名党员干部火线集结，2万余名建设者组成“平陆运河战队”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [一组数据看8月份国民经济运行平稳](qian-jun-wan-ma.md)
-- [鸡如果吃了水蛭，水蛭可以钻破鸡的肠胃，长期在鸡的体内吸血吗？](wan-zi-qian-hong.md)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](niao-yu-hua-xiang.md)
-- [00后股民在上市公司“薅羊毛”](shan-qing-shui-xiu.md)
+- [平陆运河开通带来哪些新机遇](qian-jun-wan-ma.md)
+- [一组数字解码平陆运河](wan-zi-qian-hong.md)
+- [野人先生创始人曾回应 38 元一个冰淇淋太贵，称自己的品牌把行业价格打下来了，客观来看这个定价合理吗？](niao-yu-hua-xiang.md)
+- [S1赛季「逐风启程」——《伊莫》PC端今日上线](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [崔天凯：一劳永逸解决台湾问题](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [国乒出征亚运会大合影](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [男子30年前存一万定期忘取](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [白鹿走秀提鞋](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [阿根廷友谊赛名单](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [赵家驹 从外卖小哥到世界冠军](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [退休副省长家丢了243万元茅台名酒](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [早春晴朗2原班人马](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [曝许嵩冯禧结婚了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [王嘉尔拿新iPhone拍了啥](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [据统计，番茄AI文占比74.5%，起点仅10%，数据可靠吗？起点会因手搓文技术落后而完蛋吗？](http://www.daogukj.com/nksrlhgk/)
-- [男子30年前存一万定期忘取](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [范玮琪接到消息时被吓哭了](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [问界售后权责划分](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [范玮琪回应陈建州病情：血管堵到90%](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [南京一高校学生大晚上排长队洗澡](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [全网首发！感谢大家参与！二周年彩蛋我们解出来啦！大战场篇完事！三角洲真的太阴了！](http://www.daogukj.com/7870973)
-- [樊振东未参赛登亚运会海报原因](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [弟弟离世数周后社恐哥哥无法自理死亡](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [谭松韵10年4部爆款剧](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [存1万定期1年但忘了30年](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [重播率百分百](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [同事一起旅游，但是互相都在算计](http://www.daogukj.com/7724801)
-- [斐济宣布艾滋病疫情构成国家危机](http://www.daogukj.com/oxaknnjh/)
-- [罗永浩前脚拉踩野人先生称不如钟薛高，后脚钟薛高宣布「复活」并参加博览会，这会是巧合吗？](http://www.daogukj.com/kxqitgac/)
-- [一组数据看8月份国民经济运行平稳](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [为什么QQ邮箱这么好用大家还是觉得它「档次不够高」？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [新加坡总理已经是全球收入最高的政府首脑，为什么还要给自己涨64%的工资？](http://www.daogukj.com/nksrlhgk/)
+- [早春晴朗2原班人马](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [安克空气耳夹AeroClip2](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [南方医科大学 令人心动的offer](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [硕士考试第一名因专升本被取消资格](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [重播率百分百](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [“哥哥 我顺极了”文章演出加入名梗](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [华为高层：14亿人市场足以支撑生存](http://www.daogukj.com/7870973)
+- [「儿子去世孙子非亲生案」老人两度败诉，将召开再审听证会，希望获得对孙子探视权，再审听证会结果会怎样？](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [昔日“彩电大王”要退市了](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [巡视组正在南方医科大学开展工作](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [紫薯和红薯营养到底差在哪](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [范玮琪说陈建州差点像大S命丧日本](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [平陆运河正式通航，广西从此江海直连，这条设想了近百年的运河建设难度有多大？它能「带飞」中国西南吗？](http://www.daogukj.com/7724801)
+- [医生建议生气时暂停3秒](http://www.daogukj.com/oxaknnjh/)
+- [《雍正王朝》中为什么康熙总是不急不慢、智珠在握的感觉，而雍正却动不动就发火大喊大叫？](http://www.daogukj.com/kxqitgac/)
+- [平陆运河开通带来哪些新机遇](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
 - [不良信息一键举报 共建清朗空间](http://www.daogukj.com/eymoxoal/)
-- [中国为什么又和美国签署天然气长约](http://www.daogukj.com/sblnbief/)
-- [ai大概还要多久就可以取代程序员了?](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [南方医科大学学生发声](http://www.daogukj.com/sblnbief/)
+- [娃哈哈虎林工厂房产被查封，前员工称 100 多员工共被欠缴住房公积金 200 余万元，具体是怎么回事？](http://www.movie.hkepx.cn/xiju/6564425.htm)
 - [迎接崭新的融合超级机枪豌豆！【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [白垩纪遇盘古，谁能扛住他？](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [什么事比丈夫出轨还头疼？！年度8.7高分抓马韩剧万字详解](http://www.daogukj.com/mqwqpttl/)
-- [我国人口总量14.05亿](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [用AI裁了70多人利润就上去了](http://www.daogukj.com/dubydsdf/)
-- [隐翅虫是益虫](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [三河四省！板载！](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [“我的人生被那道数学题毁了”](http://www.daogukj.com/mqwqpttl/)
+- [女儿撮合离异母亲与丧偶公公结婚](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [易烊千玺最近到底经历了什么](http://www.daogukj.com/dubydsdf/)
+- [32岁教师因病去世 朋友圈留绝笔信](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
 - [如何看待厂二代拍工厂宣传视频被网友评论区追问「职工福利如何」？为啥大家开始反感这类厂二代视频了？](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [央视拿下日本名古屋亚运会主转播权](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [00后股民在上市公司“薅羊毛”](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [华为高层内部万字长文曝光](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [野人先生创始人曾回应 38 元一个冰淇淋太贵，称自己的品牌把行业价格打下来了，客观来看这个定价合理吗？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [韩国法院判朝鲜赔偿446亿韩元](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [警方调查“南方医科大学跳楼事件”](http://www.movie.hkepx.cn/movie/7336252.htm)
 - [不良信息一键举报 共建清朗网络空间](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [阿根廷友谊赛名单](http://www.daogukj.com/oioomhrz/)
-- [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [平陆运河今日通航 120秒高空俯瞰](http://www.daogukj.com/btwajvnj/)
-- [胡塞武装为何能在也门逼退沙特战机](http://www.daogukj.com/8398590)
-- [范玮琪透露陈建州血管堵到90%](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [为什么在北京，大家对于通勤的忍受度这么高？](http://www.daogukj.com/4390556)
-- [花少3众星捧月的是娜扎](http://www.daogukj.com/skeidyel/)
-- [与印度人聊聊种姓制、恒河水、挂火车、仿制药、补习班、IT外包、彩礼嫁妆、干净又卫生……网络刻板印象是真是假？| 地球观察局EP01 【视频播客】](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [内裤袜子一起洗？专家：可以](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [俄无人机差点打到英前首相？俄方回应](http://www.daogukj.com/jdhlltmp/)
-- [女律师被砸身亡凶手曾多次高空抛物](http://www.daogukj.com/inrtjmju/)
-- [女子被高空抛物致死抛砖男被执行死刑](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [如何评价湘雅医院「23年未见父母，每天睡2小时」教师PPT争议？影响如何？是否存在夸大及其它相关问题？](http://www.daogukj.com/9107163)
-- [【萌黄一槽】冰镜之间灵活穿梭，白[中秋限定]全技能爆料！](http://www.daogukj.com/ypwsrnna/)
-- [《上吊比赛》](http://www.daogukj.com/7314066)
-- [男子性侵15岁智力残疾少女获刑4年](http://www.daogukj.com/3027269)
-- [《女生VS男生》](http://www.daogukj.com/5993003)
+- [王嘉尔拿新iPhone拍了啥](http://www.daogukj.com/oioomhrz/)
+- [与印度人聊聊种姓制、恒河水、挂火车、仿制药、补习班、IT外包、彩礼嫁妆、干净又卫生……网络刻板印象是真是假？| 地球观察局EP01 【视频播客】](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [为工作23年未见父母也算先进事迹吗](http://www.daogukj.com/btwajvnj/)
+- [演员王凯在光明日报发文](http://www.daogukj.com/8398590)
+- [网友涌入南方医科大学招生办评论区](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [华为、赛力斯合作模式改变后，赛力斯官宣“问界大饭店”回归，推出免费错峰洗车、餐饮等服务，你怎么看？](http://www.daogukj.com/4390556)
+- [A股](http://www.daogukj.com/skeidyel/)
+- [小伙手机余额超过￥1000000时，手机会自动…… 荣耀MagicOS11深度体验](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [我不得不把才华埋葬在昨天](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [平陆运河将如何改变广西经济地理格局](http://www.daogukj.com/jdhlltmp/)
+- [一家三口打赏650万赖到女儿身上](http://www.daogukj.com/inrtjmju/)
+- [内裤袜子一起洗？专家：可以](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [一线城市房价涨了](http://www.daogukj.com/9107163)
+- [Find X10 Pro Max上手体验：续航优秀的影像旗舰](http://www.daogukj.com/ypwsrnna/)
+- [得来全部费功夫（95）](http://www.daogukj.com/7314066)
+- [曝许嵩冯禧结婚](http://www.daogukj.com/3027269)
+- [【终末地基建活动】一键搞定龙泡泡，摆完挂机集成援助！](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [对外贸易快速增长](https://s.weibo.com/weibo?q=%E5%AF%B9%E5%A4%96%E8%B4%B8%E6%98%93%E5%BF%AB%E9%80%9F%E5%A2%9E%E9%95%BF)
+- [世纪工程4年完工](https://www.baidu.com/s?wd=%E4%B8%96%E7%BA%AA%E5%B7%A5%E7%A8%8B4%E5%B9%B4%E5%AE%8C%E5%B7%A5&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b41e05febed8e61ff596 -->
+<!-- content-fingerprint: 4c1d46a844038733106b -->

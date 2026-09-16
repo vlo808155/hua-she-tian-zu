@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 当你和一百万人一起吃火锅【AI全民制作人】
+# 南方医科大学疑有一名本博连读医学生坠亡，警方正跟进处理，具体情况如何？怎样看待背后折射的医学教育窘境？
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：1432849 · 分类：同人·手书 · 更新：2026-09-16T09:26:32+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：5018 万热度 · 分类：问答 · 更新：2026-09-16T14:39:08+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“当你和一百万人一起吃火锅【AI全民制作人】”位列第 1 位，公开热度指标为 1432849，榜单分类为“同人·手书”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“南方医科大学疑有一名本博连读医学生坠亡，警方正跟进处理，具体情况如何？怎样看待背后折射的医学教育窘境？”位列第 1 位，公开热度指标为 5018 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：阿丸的十万人宿舍日常之火锅篇 （声明：本系列视频内容纯属虚构世界观，所有人物、情节、场景均为艺术创作，不影射任何现实中的个人、团体、机构或事件。请勿对号入座。视频中“十万人宿舍”及衍生环境的极端人数及规则仅为夸张表达，无任何现实指涉。本作品仅供娱乐，无不良引导。）
+来源公开摘要显示：9月15日，有网友发帖称，15日凌晨，南方医科大学白云校区一名临床医学八年制本博连读学生从宿舍楼坠亡。9月16日，现代快报致电‌广州市公安局白云区分局京溪派出所‌，工作人员表示，该事件派出所目前仍在跟进处理中，相关案件情况不便透露。关于后续是否会通报，工作人员称如有结果会发布具体通报。 同时，记者又拨打了南方医科大学多个部门，有的电话无人接听，有的接通后，工作人员表示不清楚相关情况。记者随后拨打了学校宣传部门电话，也未接通。警方回应南方医科大学疑坠楼事件 网传消息，9月15日凌晨，南方医科大学白云校区一名临床医学八年制本博连读学生从宿舍楼23楼坠亡。@中
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `同人·手书`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [西部多了一个“沿海城市”](wu-gu-feng-deng.md)
-- [隐翅虫被女生用手掐着玩](liu-shen-wu-zhu.md)
-- [中国为什么又和美国签署天然气长约](qi-shang-ba-xia.md)
-- [如何评价湘雅医院「23年未见父母，每天睡2小时」教师PPT争议？影响如何？是否存在夸大及其它相关问题？](ba-mian-ling-long.md)
+- [《鸣潮》动画短片 | 寻心](wu-gu-feng-deng.md)
+- [啄木鸟维修换1个开关收费2800](liu-shen-wu-zhu.md)
+- [南方医科大学学生发声](qi-shang-ba-xia.md)
+- [一线城市房价涨了](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [《上吊比赛》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [第一次坐公交坐崩溃了，忍不住哭了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [“我的人生被那道数学题毁了”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [全网首发！感谢大家参与！二周年彩蛋我们解出来啦！大战场篇完事！三角洲真的太阴了！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [野人先生创始人曾回应 38 元一个冰淇淋太贵，称自己的品牌把行业价格打下来了，客观来看这个定价合理吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [得来全部费功夫（95）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [看完大家的评论，我进化了！(重置版奉上)](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [第一次坐公交坐崩溃了，忍不住哭了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [华为高层：14亿人市场足以支撑生存](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [天玑9600 Pro前瞻上手：2nm旗舰手机能效如何？](http://www.daogukj.com/7394302)
-- [两次亲子鉴定确认孙子非亡父亲生](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [40年房贷全面落地](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [范玮琪曾说陈建州滴酒不沾](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [打了我，就不能去团战打我队友了](http://www.daogukj.com/7394302)
+- [周星驰御用配角成功应聘景区NPC](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [一毛钱奶奶被骂到没人买了](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [野人先生创始人曾回应 38 元一个冰淇淋太贵，称自己的品牌把行业价格打下来了，客观来看这个定价合理吗？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [文章再现名梗哥哥我顺极了](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
 - [不良信息一键举报 共建清朗空间](http://www.daogukj.com/thgdlrxk/)
-- [我国人口总量14.05亿](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [陈建州才四十多岁](http://www.daogukj.com/qqvbmaen/)
-- [华为高层内部万字长文曝光](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [中国为什么又和美国签署天然气长约](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [女儿撮合离异母亲与丧偶公公结婚](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [领衔主演傅诗淇](http://www.daogukj.com/qqvbmaen/)
+- [警方调查“南方医科大学跳楼事件”](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [南方医科大学学生发声](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
 - [不良信息一键举报 共建清朗网络空间](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [隐翅虫是益虫](http://www.daogukj.com/6313812)
-- [《复联5》剧情全泄露！太真了！谨慎观看！](http://www.daogukj.com/wczbkkvt/)
-- [如何看待英伟达、Palantir等金主集体限制Anthropic Claude使用？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [西部多了一个“沿海城市”意味着什么](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [一组数据看8月份国民经济运行平稳](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [女儿牵线 亲妈嫁给丈夫爸爸变婆婆](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [西部多了一个“沿海城市”](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [俄无人机差点打到英前首相？俄方回应](http://www.daogukj.com/jjlkzcvz/)
-- [《女生VS男生》](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [范玮琪回应陈建州病情：血管堵到90%](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [王力宏第一时间冲到医院](http://www.daogukj.com/drcaefzl/)
-- [花少3众星捧月的是娜扎](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [32岁教师因病去世 朋友圈留绝笔信](http://www.daogukj.com/6313812)
+- [《上吊比赛》](http://www.daogukj.com/wczbkkvt/)
+- [携程上架维珍银河 2027 太空旅行船票，510万元一张，亚轨道太空游能体验什么？值这个价吗？](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [崔天凯：一劳永逸解决台湾问题](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [平陆运河开通带来哪些新机遇](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [中国女排亚运会开门红](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [《鸣潮》动画短片 | 寻心](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [平陆运河将如何改变广西经济地理格局](http://www.daogukj.com/jjlkzcvz/)
+- [【终末地基建活动】一键搞定龙泡泡，摆完挂机集成援助！](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [硕士考试第一名因专升本被取消资格](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [小S感谢老天爷没把陈建州带走](http://www.daogukj.com/drcaefzl/)
+- [A股](http://www.movie.hkepx.cn/movie/8281256.htm)
 - [多所高校就「过紧日子」下发细则文件，有哪些信息值得关注？](http://www.daogukj.com/rrxeunix/)
-- [范玮琪透露陈建州血管堵到90%](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [女律师被砸身亡凶手曾多次高空抛物](http://www.daogukj.com/qekijaaa/)
-- [据统计，番茄AI文占比74.5%，起点仅10%，数据可靠吗？起点会因手搓文技术落后而完蛋吗？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [鸡如果吃了水蛭，水蛭可以钻破鸡的肠胃，长期在鸡的体内吸血吗？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [鸿蒙智行为何要在此时调整与赛力斯合作模式，并让华为隐居幕后？此次调整会影响「华为5年不下场造车」吗？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [发朋友圈要有滞后性](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [罗永浩前脚拉踩野人先生称不如钟薛高，后脚钟薛高宣布「复活」并参加博览会，这会是巧合吗？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [女子被高空抛物致死抛砖男被执行死刑](http://www.daogukj.com/4880877)
-- [男子性侵15岁智力残疾少女获刑4年](http://www.daogukj.com/gyblgzpw/)
-- [优酷2027年度片单](http://www.daogukj.com/3742193)
-- [一线城市二手房价连涨6个月](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [胡塞武装为何能在也门逼退沙特战机](http://www.daogukj.com/yhmvbvtt/)
-- [什么事比丈夫出轨还头疼？！年度8.7高分抓马韩剧万字详解](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](http://www.daogukj.com/4405323)
-- [第一次坐公交坐崩溃了，忍不住哭了](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [问界售后权责划分](http://www.daogukj.com/ydbbqbuc/)
-- [七旬老太入冰棺后又睁眼“复活”](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [亚运会 王楚钦“一老带四新”](http://www.daogukj.com/5927597)
-- [【萌黄一槽】冰镜之间灵活穿梭，白[中秋限定]全技能爆料！](http://www.daogukj.com/3691526)
-- [一线城市房价涨了](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [南京一高校学生大晚上排长队洗澡](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [00后股民在上市公司“薅羊毛”](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [新加坡总理已经是全球收入最高的政府首脑，为什么还要给自己涨64%的工资？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [樊振东未参赛登亚运会海报原因](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [阿根廷友谊赛名单](http://www.daogukj.com/9555051)
-- [女子冒充村干部带货被立案调查](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [网友涌入南方医科大学招生办评论区](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [一家三口打赏650万赖到女儿身上](http://www.daogukj.com/qekijaaa/)
+- [新加坡总理已经是全球收入最高的政府首脑，为什么还要给自己涨64%的工资？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [一组数字解码平陆运河](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [伊朗外长阿拉格齐于 9 月 16 日访华，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [井柏然孙千 二搭](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [《雍正王朝》中为什么康熙总是不急不慢、智珠在握的感觉，而雍正却动不动就发火大喊大叫？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [内裤袜子一起洗？专家：可以](http://www.daogukj.com/4880877)
+- [曝许嵩冯禧结婚](http://www.daogukj.com/gyblgzpw/)
+- [警方调查南方医科大学跳楼](http://www.daogukj.com/3742193)
+- [影院不再只放电影](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [演员王凯在光明日报发文](http://www.daogukj.com/yhmvbvtt/)
+- [“我的人生被那道数学题毁了”](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [重播率百分百](http://www.daogukj.com/4405323)
+- [看完大家的评论，我进化了！(重置版奉上)](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [南方医科大学 令人心动的offer](http://www.daogukj.com/ydbbqbuc/)
+- [女子凌晨回家 客厅有戴口罩陌生男子](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [中国男篮冲击四强](http://www.daogukj.com/5927597)
+- [Find X10 Pro Max上手体验：续航优秀的影像旗舰](http://www.daogukj.com/3691526)
+- [弟弟离世数周社恐哥哥无法自理死亡](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [“哥哥 我顺极了”文章演出加入名梗](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [宁德时代上半年营收利润双增股价却大跌，车企「去宁德化」如何影响其未来？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [「儿子去世孙子非亲生案」老人两度败诉，将召开再审听证会，希望获得对孙子探视权，再审听证会结果会怎样？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [王嘉尔拿新iPhone拍了啥](http://www.daogukj.com/9555051)
+- [赵家驹巨人之旅破纪录夺冠](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [当你和一百万人一起吃火锅【AI全民制作人】](https://b23.tv/BV1CSej6kETr)
+- [南方医科大学疑有一名本博连读医学生坠亡，警方正跟进处理，具体情况如何？怎样看待背后折射的医学教育窘境？](https://www.zhihu.com/question/2083262219391968613)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7bee493db084bdee8cb7 -->
+<!-- content-fingerprint: 2ad992aee87c71a05af2 -->
