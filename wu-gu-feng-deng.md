@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 一车人都买错票车站 12306有新显示
+# 8岁女孩被推倒报警 不是浪费警力
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7712049 · 更新：2026-09-17T09:18:24+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7712311 · 更新：2026-09-17T14:16:44+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“一车人都买错票车站 12306有新显示”位列第 1 位，公开热度指标为 7712049。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“8岁女孩被推倒报警 不是浪费警力”位列第 1 位，公开热度指标为 7712311。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月16日，记者发现在12306客户端购买前往泸州东站车票时新增弹窗，提示该站位于泸县云锦镇。此前，因泸州站与泸州东站相距约30公里，多名旅客买错票并建议改名。
+来源公开摘要显示：近日，上海一名8岁女孩在公园被男孩推倒并遭威胁，用电话手表报警。面对围观者“浪费警力”的议论，民警回应：“这不叫浪费警力，不管大人还是小孩，只要遇到伤害，警察一定过来。”获网友点赞。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [黄金](liu-shen-wu-zhu.md)
-- [黄金又要拿不住了吗](qi-shang-ba-xia.md)
-- [儿子用豆包选下葬母亲黄道吉日，因葬礼后亲戚遇车祸重伤决定起诉豆包，如何从法律角度解读？](ba-mian-ling-long.md)
-- [天津漫展手机事件](jiu-niu-yi-mao.md)
+- [儿子突然的离世父亲的天塌了](liu-shen-wu-zhu.md)
+- [高市内阁全体阁僚提交辞呈](qi-shang-ba-xia.md)
+- [国乒、国羽、中国体操队被困名古屋机场，现场只提供水无食品，为什么会这样？暴露出亚运会组织方的哪些问题？](ba-mian-ling-long.md)
+- [折叠还是直板？iPhone 18 Pro&Duo深度视频](jiu-niu-yi-mao.md)
 
 ## 站内推荐
 
-- [终于不会点外卖就稀里糊涂“负债”了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [曝国乒落地名古屋被困机场](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [井柏然第一次收官发女主](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [南医大事件涉事导师门诊已约满](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [美国房贷利率突破7%](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [于东来建议员工给家人花钱不超3成](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [全季酒店浴巾里掉出面膜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [胖东来员工中秋福利：每人7箱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [猪景房8888元一晚 送6888元两头乌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [英格兰一村庄宣布“独立”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [特朗普称利率应降至1%或更低](http://www.movie.hkepx.cn/xiju/9473962.htm)
-- [张一鸣成亚洲首富](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
-- [中国男子涉嫌在印尼渔猎玳瑁并烹饪，离境时被拦接受调查，玳瑁是什么动物？若属实他将承担什么责任？](http://www.daogukj.com/9950285)
+- [张一鸣成亚洲首富](http://www.movie.hkepx.cn/xiju/9473962.htm)
+- [炽日将烬 // 2026无畏契约全球冠军赛主题曲](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
+- [三亚机场口岸首次进口黄金](http://www.daogukj.com/9950285)
 - [举手式睡姿是身体在求救](http://www.daogukj.com/hdjwtczf/)
-- [王鹤棣方称已就网传不实聊天记录报警并完成取证，静和医疗否认王鹤棣曾就诊，到底发生了什么？](http://www.movie.hkepx.cn/xiju/3930873.htm)
-- [【何同学】很大胆。iPhone 18 Pro首发体验](http://www.daogukj.com/lahsyiok/)
-- [聊天记录显示导师曾给坠亡学生转账关心](http://www.movie.hkepx.cn/movie/2808271.htm)
-- [平陆运河“全能管家”有多硬核](http://www.daogukj.com/pdxtjjps/)
-- [男子酒驾发生事故主动报警“自首”](http://www.movie.hkepx.cn/movie/8646334.htm)
-- [1000万现金，引出两起命案，3条故事线，五路人马，揭开人性暗黑面！过度解读经典港片《夺命金》](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
-- [假警察收礼14万捞人 受害人也是骗子](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
-- [国庆假期首日火车票今日开售](http://www.daogukj.com/0662108)
-- [特朗普强烈反对美联储加息](http://www.daogukj.com/ytojyrlp/)
-- [谭松韵打破了女主遇事硬扛的套路](http://www.movie.hkepx.cn/xiju/5031303.htm)
-- [平陆运河改变了什么](http://www.movie.hkepx.cn/movie/6436180.htm)
-- [iPhone Duo上手](http://www.daogukj.com/3990167)
-- [如何评价 18.99 万起售的比亚迪方程豹轿车「方程 S」，有哪些亮点值得关注？](http://www.movie.hkepx.cn/xiju/2312432.htm)
-- [南医大事件涉事导师门诊已约满](http://www.movie.hkepx.cn/xiju/8661033.htm)
-- [时隔3年多 美联储加息25个基点](http://www.daogukj.com/0078862)
-- [美联储预计年底前还将加息一次](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
-- [张百乔小雪力破离婚传言](http://www.daogukj.com/4309889)
-- [怎么评价「回乡老博士」朱跃军出身农户、湘雅求学、交大博士结业等经历？是真的吗？](http://www.daogukj.com/nprhrdaf/)
-- [韩红基金会千万元捐赠落地青海玉树](http://www.movie.hkepx.cn/movie/1442506.htm)
-- [休产假的妈妈带2个月大的娃去上班](http://www.daogukj.com/4057647)
-- [英国：再不师华长技以制华我就成满清了](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
-- [车越大，车内越吵。一辆安静的MPV需要怎么做？](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
-- [为什么感觉现在的教育工作者都在吐槽小孩越来越笨了？究竟是个别现象被当普遍现象还是真的如此？](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
-- [儿子用豆包选下葬母亲黄道吉日，因葬礼后亲戚遇车祸重伤决定起诉豆包，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
-- [“如”字泛滥 “锦”字刷屏](http://www.movie.hkepx.cn/xiju/7985479.htm)
-- [井柏然第一次收官发女主](http://www.movie.hkepx.cn/movie/2019373.htm)
-- [曝国乒落地名古屋被困机场](http://www.daogukj.com/4851140)
-- [商家囤300台iPhone17 ProMax：会涨价](http://www.daogukj.com/ssypiueg/)
-- [黄金又要拿不住了吗](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
-- [老人手机130个流氓软件疯狂弹广告](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
-- [南医大坠亡事件导师学生聊天记录](http://www.daogukj.com/lzxgwnjt/)
-- [美股科技股大跌](http://www.movie.hkepx.cn/xiju/4607012.htm)
-- [炽日将烬 // 2026无畏契约全球冠军赛主题曲](http://www.movie.hkepx.cn/movie/8010450.htm)
+- [朝鲜国防省副相出席北京香山论坛](http://www.movie.hkepx.cn/xiju/3930873.htm)
+- [大禹看了沉默，愚公看了流泪](http://www.daogukj.com/lahsyiok/)
+- [小雪删除互动回复](http://www.movie.hkepx.cn/movie/2808271.htm)
+- [2000多年了 我们为什么执着于挖运河](http://www.daogukj.com/pdxtjjps/)
+- [中国运动员在日本机场干等6小时](http://www.movie.hkepx.cn/movie/8646334.htm)
+- [最近川渝方言「耍起」爆火，网友总结出「幸福者耍起」等口号，为啥这个梗火了？反映了怎样的生活态度？](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
+- [李宁户外山河入色系列](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
+- [新三国up锐评老三国18：一个是仁之陈宫，一个是义之陈宫](http://www.daogukj.com/0662108)
+- [《异环》1.4版本PV「祷歌为谁而诵」](http://www.daogukj.com/ytojyrlp/)
+- [马龙作为博士新生代表发言](http://www.movie.hkepx.cn/xiju/5031303.htm)
+- [范玮琪7年6大失言争议](http://www.movie.hkepx.cn/movie/6436180.htm)
+- [【何同学】很大胆。iPhone 18 Pro首发体验](http://www.daogukj.com/3990167)
+- [广电总局计划十五五推出100部好剧](http://www.movie.hkepx.cn/xiju/2312432.htm)
+- [猪景房8888元一晚 送6888元两头乌](http://www.movie.hkepx.cn/xiju/8661033.htm)
+- [机顶盒将成为历史](http://www.daogukj.com/0078862)
+- [月薪1万已超过80%的人](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
+- [日本高市内阁全体阁僚提交辞呈](http://www.daogukj.com/4309889)
+- [美联储加息对全球市场影响有多大](http://www.daogukj.com/nprhrdaf/)
+- [坠亡幼童父亲举报妻子侵犯肖像权](http://www.movie.hkepx.cn/movie/1442506.htm)
+- [影视飓风Tim称iPhoneDuo烫到握不住](http://www.daogukj.com/4057647)
+- [问一下大家，总层24，只剩18楼和5楼，选哪个比较好？](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
+- [有哪些演员让你觉得第一眼惊为天人，后面觉得很普通，甚至怪怪的？](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
+- [废品回收被中国人做成万亿级产业](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
+- [国乒、国羽、中国体操队被困名古屋机场，现场只提供水无食品，为什么会这样？暴露出亚运会组织方的哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
+- [我疯了！挑战1比1还原海绵宝宝浴室，打造专属菠萝屋](http://www.movie.hkepx.cn/xiju/7985479.htm)
+- [胖东来员工中秋福利：每人7箱](http://www.movie.hkepx.cn/movie/2019373.htm)
+- [全季酒店浴巾里掉出面膜](http://www.daogukj.com/4851140)
+- [烂烂烂烂烂烂活](http://www.daogukj.com/ssypiueg/)
+- [高市内阁全体阁僚提交辞呈](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
+- [《鸣潮》动画短片 | 寻心](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
+- [敬一丹告别仪式挽联令人动容](http://www.daogukj.com/lzxgwnjt/)
+- [用ATM机存钱1万多元“凭空消失”](http://www.movie.hkepx.cn/xiju/4607012.htm)
+- [超音速客机未来北京飞上海可能只需半小时，普通人还要等多久才能坐上？该技术商业化应用面临哪些挑战？](http://www.movie.hkepx.cn/movie/8010450.htm)
 - [美联储3年来首次加息，加息25个基点，将基准利率上调至3.75%-4.00%，会对市场有哪些影响？](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
-- [大禹看了沉默，愚公看了流泪](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
-- [中国运动员名古屋机场干等6小时](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
-- [官方辟谣国盛民安养老补贴惠民工程](http://www.movie.hkepx.cn/xiju/4057893.htm)
-- [男子多次高空抛物被判处拘役](http://www.daogukj.com/mgibxpfj/)
-- [女子在加勒比海买海螺 竟开出万元珠](http://www.movie.hkepx.cn/movie/3059200.htm)
-- [烂烂烂烂烂烂活](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
-- [美联储宣布加息25个基点](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
-- [百度搜索为什么没落了？](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
-- [王鹤棣被造谣维权难度](http://www.movie.hkepx.cn/xiju/2631994.htm)
-- [《鸣潮》动画短片 | 寻心](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
-- [三年之期已到，恭迎世一上归位！【第9集】](http://www.daogukj.com/qfedcfsy/)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.daogukj.com/djjsqhar/)
+- [英国可能解体又不太可能](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
+- [各省的刻板印象这一块](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
+- [不是不够努力：拆解后发国家工业化的结构性枷锁](http://www.movie.hkepx.cn/xiju/4057893.htm)
+- [KPL经典五人组重聚](http://www.daogukj.com/mgibxpfj/)
+- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.movie.hkepx.cn/movie/3059200.htm)
+- [天津漫展手机事件](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
+- [胡歌被排到了第八位](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
+- [一车人都买错票车站 12306新增提醒](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
+- [坠亡博士生家属：别再伤害我们和老师](http://www.movie.hkepx.cn/xiju/2631994.htm)
+- [HYROX 就「选手失禁夺冠」一事道歉并给下午场赛事运动员全额退费，你认为这次道歉＋退费能挽回口碑吗？](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
+- [为什么很多小说或电视剧里都是镇北侯，怎么没有镇南侯？](http://www.daogukj.com/qfedcfsy/)
+- [香港特区首个五年规划正式公布，哪些信息值得关注？](http://www.daogukj.com/djjsqhar/)
 
 </details>
 
 ## 原始来源
 
-- [一车人都买错票车站 12306有新显示](https://www.baidu.com/s?wd=%E4%B8%80%E8%BD%A6%E4%BA%BA%E9%83%BD%E4%B9%B0%E9%94%99%E7%A5%A8%E8%BD%A6%E7%AB%99+12306%E6%9C%89%E6%96%B0%E6%98%BE%E7%A4%BA&sa=fyb_news&rsv_dl=fyb_news)
+- [8岁女孩被推倒报警 不是浪费警力](https://www.baidu.com/s?wd=8%E5%B2%81%E5%A5%B3%E5%AD%A9%E8%A2%AB%E6%8E%A8%E5%80%92%E6%8A%A5%E8%AD%A6+%E4%B8%8D%E6%98%AF%E6%B5%AA%E8%B4%B9%E8%AD%A6%E5%8A%9B&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4c62496e6aa566028570 -->
+<!-- content-fingerprint: 44ed6e154e1eae1b5f50 -->
