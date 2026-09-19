@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# Tropical fruit slicing animation
+# 绘就丰收画卷 这四个地方给出答案
 
-> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：1447694 · 分类：野生技能协会 · 更新：2026-09-19T06:57:23+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7617163 · 更新：2026-09-19T09:07:01+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“Tropical fruit slicing animation”位列第 2 位，公开热度指标为 1447694，榜单分类为“野生技能协会”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“绘就丰收画卷 这四个地方给出答案”位列第 2 位，公开热度指标为 7617163。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：金秋时节，陕西延安、黑龙江北安、广东梅州与广西柳州四地迎来丰收。延安苹果全产业链产值突破600亿元；北安玉米全产业链带动种植户户均年增收2800元以上；梅州金柚通过科技赋能实现稳产提质；柳州粉用稻全产业链综合产值持续提升。四地通过延伸产业链等方式带动农户增收致富。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `野生技能协会`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [绘就丰收画卷 这四个地方给出答案](bai-fa-bai-zhong.md)
-- [斑驳旧物铭刻90多年前不屈抗争](qian-jun-wan-ma.md)
-- [平陆运河释放多重红利](wan-zi-qian-hong.md)
-- [睡觉时将双手举过头顶的「投降式」睡姿，其实是身体在求救，这是真的吗？会带来哪些影响？怎样的睡姿最科学？](niao-yu-hua-xiang.md)
+- [斑驳旧物铭刻90多年前不屈抗争](bai-fa-bai-zhong.md)
+- [平陆运河释放多重红利](qian-jun-wan-ma.md)
+- [泰国方面吐槽亚运会「选手在官方餐厅吃不饱，只能去外面吃吉野家」，本届亚运会的草台程度还能再上新高度？](wan-zi-qian-hong.md)
+- [1s~1h冰冻螺蛳粉挑战](niao-yu-hua-xiang.md)
 
 ## 站内推荐
 
-- [【我在现代当幽差】EP03 因果 【UP动画】【HiShorts!XupdreamAl短片大赛-剧情单元】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [男子30层高空作业绳子被2楼老人剪断](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [法考成绩](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [挑情丑闻](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [中国篮球之队回应负于日本男篮](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [百余年来首次 猫科再添现存新物种](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [亚运会餐食 减肥都吃得比这多](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [墨西哥阅兵现场惊现UFO？和军机同框](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [高校考试开考9分钟试卷就被外传](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [吉林出现野生东北虎“五虎同框”](http://www.daogukj.com/8025131)
-- [在岸、离岸人民币兑美元双双升破 6.7，创 2023 年以来新高，受哪些因素影响？](http://www.daogukj.com/1259810)
-- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](http://www.daogukj.com/3123281)
-- [陕西秦王级大墓或为秦始皇嫡祖母](http://www.movie.hkepx.cn/movie/0347416.htm)
-- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](http://www.daogukj.com/mojqmowq/)
-- [为什么生意再小，赚钱的速度都远超打工？](http://www.movie.hkepx.cn/movie/8583613.htm)
-- [阿祖从军记（二）](http://www.movie.hkepx.cn/movie/7389207.htm)
-- [“当确实型人格遇上反驳型人格”](http://www.movie.hkepx.cn/movie/7310795.htm)
-- [超慢跑是一种更加友好的运动方式](http://www.daogukj.com/7749326)
-- [挑情丑闻](http://www.daogukj.com/4323075)
-- [也门局势突变 又一个海峡危险了](http://www.movie.hkepx.cn/movie/9488458.htm)
+- [旧手机格式化也不安全](http://www.daogukj.com/8025131)
+- [【奥术之贼01】法师vs重甲，原创西幻cg影片](http://www.daogukj.com/1259810)
+- [【纪录片】生命奇观2 01 内蒙古高原](http://www.daogukj.com/3123281)
+- [许兰香被发卖青楼](http://www.movie.hkepx.cn/movie/0347416.htm)
+- [百余年来首次 猫科再添现存新物种](http://www.daogukj.com/mojqmowq/)
+- [2名外籍游客抱出侧翻被困车中老人](http://www.movie.hkepx.cn/movie/8583613.htm)
+- [「不打不相识」的对抗路友情可以算是作品中的老套路了，为什么我们还能看得津津有味？](http://www.movie.hkepx.cn/movie/7389207.htm)
+- [家委会私自用一千元班费给老师买礼物遭其他家长质疑，家委会有权这么做吗？类似事件层出不穷，根源在哪？](http://www.movie.hkepx.cn/movie/7310795.htm)
+- [亚运组委会致歉](http://www.daogukj.com/7749326)
+- [高校考试开考9分钟试卷就被外传](http://www.daogukj.com/4323075)
+- [“当确实型人格遇上反驳型人格”](http://www.movie.hkepx.cn/movie/9488458.htm)
 - [有消息传智谱Zcode会上传用户的全量Git操作，这是否属实？](http://www.movie.hkepx.cn/movie/2374212.htm)
-- [听说你最近一段时间一直在找我？【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
-- [中国工人为何成为蒙古外籍劳工主力](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
-- [男童在自家鱼塘触电截肢 索赔309万](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
-- [杨毅 中国男篮](http://www.movie.hkepx.cn/movie/6531033.htm)
-- [运动员展示亚运房间：全是纸板做的](http://www.daogukj.com/spbreewj/)
-- [《虱子大开口》](http://www.daogukj.com/gopjchhj/)
-- [【徐静雨】亚运会男篮不敌日本二队，全方位差距，根本打不过！](http://www.movie.hkepx.cn/xiju/5337621.htm)
-- [油价预计9月24日24时上调](http://www.daogukj.com/niwgdgqs/)
+- [中央日报：日本可能确实是亚运会最烂东道主](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
+- [曝 IG 投诉前 LPL 解说 Wayward 成功并致其无限期禁播，对电竞直播言论边界有何警示？](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
+- [吉林出现野生东北虎“五虎同框”](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
+- [油价预计9月24日24时上调](http://www.movie.hkepx.cn/movie/6531033.htm)
+- [中国的小偷为何断崖式下降](http://www.daogukj.com/spbreewj/)
+- [为什么这两年加多宝彻底销声匿迹了？](http://www.daogukj.com/gopjchhj/)
+- [拖欠员工公积金 娃哈哈致歉](http://www.movie.hkepx.cn/xiju/5337621.htm)
+- [生育后失明失聪女子妹妹父亲患罕见病](http://www.daogukj.com/niwgdgqs/)
 - [256G变512G再变1T，手机存储为什么永远不够？【差评君】](http://www.daogukj.com/nhoydtix/)
-- [池昌旭林珍娜太拼了吧](http://www.movie.hkepx.cn/xiju/9013758.htm)
-- [穴居人晚上去哪里拉屎？](http://www.daogukj.com/8222516)
-- [中央日报：日本可能确实是亚运会最烂东道主](http://www.daogukj.com/2198681)
-- [物业暴力阻拦业主回家](http://www.daogukj.com/qjzpvrwa/)
-- [中国男篮大比分不敌日本](http://www.movie.hkepx.cn/xiju/3667958.htm)
-- [其实王者账号是有耐久的，没耐久就玩不了了](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
-- [住建部：4楼及以上住宅都要加装电梯](http://www.movie.hkepx.cn/xiju/0423343.htm)
-- [佟丽娅回应在董璇婚礼上表情严肃](http://www.movie.hkepx.cn/xiju/6831166.htm)
-- [中国男篮比分被修正为77比97日本](http://www.movie.hkepx.cn/xiju/7701717.htm)
-- [法考](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
-- [男子高空作业绳子被2楼老人剪断](http://www.movie.hkepx.cn/xiju/8472152.htm)
-- [现在好多车灯都特别刺眼为什么？](http://www.daogukj.com/5336794)
-- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](http://www.daogukj.com/6170092)
-- [业主买下1层4户圈占公共走廊](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
-- [今年前8个月全国上线微短剧43万部，其中AI剧占比超九成，广电总局表示要大力扶持真人剧，透露哪些信号？](http://www.daogukj.com/3387155)
-- [韩国选手听到朝鲜国歌集体慌乱](http://www.movie.hkepx.cn/xiju/5963440.htm)
-- [拖欠员工公积金 娃哈哈致歉](http://www.daogukj.com/9693904)
-- [姐姐姐夫答应我上大学送我电脑，现在说只给5000块钱，这应该吗？](http://www.movie.hkepx.cn/movie/9348798.htm)
-- [郭士强成首位两输日本的中国男篮主帅](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
-- [宁德时代正在经历至暗时刻](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
-- [心梗脑梗与哪些因素有关](http://www.movie.hkepx.cn/movie/1705456.htm)
-- [高校考试开考9分钟试卷就被外传](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
-- [郑合惠子演技好牛](http://www.movie.hkepx.cn/xiju/4301515.htm)
-- [法考成绩](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
-- [郭士强 下课](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
-- [1s~1h冰冻螺蛳粉挑战](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
-- [亚运组委会致歉](http://www.movie.hkepx.cn/xiju/7431738.htm)
-- [绘就丰收画卷 这四个地方给出答案](http://www.daogukj.com/pmdpqyts/)
-- [秦始皇祖母陵墓或现世](http://www.movie.hkepx.cn/movie/5542629.htm)
+- [池昌旭林珍娜是关系很铁的好友关系](http://www.movie.hkepx.cn/xiju/9013758.htm)
+- [《兰香如故》：东方美学入戏入情入境](http://www.daogukj.com/8222516)
+- [琵琶曲丨悟空 VS 如来](http://www.daogukj.com/2198681)
+- [辟谣周榜｜江西多处堤坝溃决系谣言](http://www.daogukj.com/qjzpvrwa/)
+- [中国男篮 77-97 不敌日本男篮无缘决赛，失利的原因是什么？暴露了当下中国男篮的哪些问题短板？](http://www.movie.hkepx.cn/xiju/3667958.htm)
+- [《镜头之后#7》——老八](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
+- [如何解读住建部「4楼及以上住宅都要加装电梯，解决老年群体上下楼问题 」？具体实施存在什么难点？](http://www.movie.hkepx.cn/xiju/0423343.htm)
+- [亚运再次失利 中国男篮差距何在](http://www.movie.hkepx.cn/xiju/6831166.htm)
+- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.movie.hkepx.cn/xiju/7701717.htm)
+- [店主贴“回趟公安”被解读成拘留](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
+- [佟丽娅回应主持央视春晚相关传言](http://www.movie.hkepx.cn/xiju/8472152.htm)
+- [上海夫妇谈九一八事变：历史不要忘](http://www.daogukj.com/5336794)
+- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](http://www.daogukj.com/6170092)
+- [郭士强 下课](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
+- [【我在现代当幽差】EP03 因果 【UP动画】【HiShorts!XupdreamAl短片大赛-剧情单元】](http://www.daogukj.com/3387155)
+- [毛东东访朝在毛岸英烈士铜像前祭酒](http://www.movie.hkepx.cn/xiju/5963440.htm)
+- [第二赛季更新前瞻PV「奥托皮亚·地下之王」](http://www.daogukj.com/9693904)
+- [松岛辉空说亚运会日本男乒「只发挥50%-60%也有机会击败中国队」对此你怎么看？](http://www.movie.hkepx.cn/movie/9348798.htm)
+- [中国男篮队长胡明轩赛后发声](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
+- [在岸、离岸人民币兑美元双双升破 6.7，创 2023 年以来新高，受哪些因素影响？](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
+- [王一博嘉人十月刊封面宣发节奏](http://www.movie.hkepx.cn/movie/1705456.htm)
+- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
+- [于东来正被自己的人设绑架](http://www.movie.hkepx.cn/xiju/4301515.htm)
+- [墨西哥阅兵现场惊现UFO？和军机同框](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
+- [物业暴力阻拦业主回家](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
+- [数学老师投300万拍电影 8天票房2万](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
+- [杨毅谈中国男篮不敌日本](http://www.movie.hkepx.cn/xiju/7431738.htm)
+- [斑驳旧物铭刻90多年前不屈抗争](http://www.daogukj.com/pmdpqyts/)
+- [如何评价31岁博士辞医院工作去送外卖、做驻唱？现代社会如何看待人选择生活方式的自由，探索生活的可能性？](http://www.movie.hkepx.cn/movie/5542629.htm)
 
 </details>
 
 ## 原始来源
 
-- [Tropical fruit slicing animation](https://b23.tv/BV1ZueH6LEa6)
+- [绘就丰收画卷 这四个地方给出答案](https://www.baidu.com/s?wd=%E7%BB%98%E5%B0%B1%E4%B8%B0%E6%94%B6%E7%94%BB%E5%8D%B7+%E8%BF%99%E5%9B%9B%E4%B8%AA%E5%9C%B0%E6%96%B9%E7%BB%99%E5%87%BA%E7%AD%94%E6%A1%88&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d50787bd22934f64b255 -->
+<!-- content-fingerprint: ffaa300f450f3366bdad -->

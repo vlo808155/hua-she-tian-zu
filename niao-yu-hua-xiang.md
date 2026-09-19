@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 睡觉时将双手举过头顶的「投降式」睡姿，其实是身体在求救，这是真的吗？会带来哪些影响？怎样的睡姿最科学？
+# 1s~1h冰冻螺蛳粉挑战
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：184 万热度 · 分类：问答 · 更新：2026-09-19T06:57:23+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：2107145 · 分类：美食记录 · 更新：2026-09-19T09:07:01+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“睡觉时将双手举过头顶的「投降式」睡姿，其实是身体在求救，这是真的吗？会带来哪些影响？怎样的睡姿最科学？”位列第 3 位，公开热度指标为 184 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“1s~1h冰冻螺蛳粉挑战”位列第 3 位，公开热度指标为 2107145，榜单分类为“美食记录”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：川观新闻编辑 郭雨迪 综合央视新闻、生命时报、网友评论等 今天，“举手式睡姿是身体在求救”冲上微博热搜。 你有没有过这种经历：换了好几个姿势都睡不着，偶然把手举过头顶，突然觉得特别舒服，结果最后是被手臂麻醒的。 睡觉姿势示意图。图片由AI生成 如果你也有这个习惯，先别急着觉得“这只是睡得香”。有观点提醒：这种姿势让你觉得舒服，可能反而说明——你的呼吸模式出了问题。 不少网友表示：一直这样睡。 也有网友质疑：这说法可信吗？ 为什么有人睡觉爱把双手举过头顶？ 睡觉时不自觉向后举手，可能是因为颈肩部软组织过于紧张，导致入睡困难，把手举高后能暂时缓解。而肩颈僵硬
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `美食记录`
 
 ## 相关热点
 
-- [1s~1h冰冻螺蛳粉挑战](shan-qing-shui-xiu.md)
-- [中国男篮不敌日本无缘决赛](feng-he-ri-li.md)
-- [韩国选手听到朝鲜国歌集体慌乱](chun-nuan-hua-kai.md)
-- [中国男篮大比分不敌日本](qiu-gao-qi-shuang.md)
+- [数学老师投300万拍电影 8天票房2万](shan-qing-shui-xiu.md)
+- [韩国选手听到朝鲜国歌集体慌乱](feng-he-ri-li.md)
+- [毛东东访朝在毛岸英烈士铜像前祭酒](chun-nuan-hua-kai.md)
+- [中国男篮 77-97 不敌日本男篮无缘决赛，失利的原因是什么？暴露了当下中国男篮的哪些问题短板？](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
 - [有消息传智谱Zcode会上传用户的全量Git操作，这是否属实？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [有没有什么大部分人不知道的冷知识？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [这个小学生用烂梗骂人，惹怒7.8万人，满嘴烂梗的小学生，本质上就是油腻老登!](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [郭士强该下课吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [【纪录片】生命奇观2 01 内蒙古高原](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [【徐静雨】亚运会男篮不敌日本二队，全方位差距，根本打不过！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [变 形 强 强 【B站笑点大赛】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [《篡改正史 | 正史改竄》MV：本案，审查不合格【AI MV大赛】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [高中生自制综艺走红 邓超李晨也参与](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [如何看待住房城乡建设部称「我国房地产进入存量时代」？未来房地产行业将如何发展？房价如何变化？](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [中国男篮不敌日本无缘决赛](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [油价预计9月24日24时上调](http://www.daogukj.com/8743466)
-- [姐姐姐夫答应我上大学送我电脑，现在说只给5000块钱，这应该吗？](http://www.daogukj.com/6087099)
-- [兵马俑捡到游客手机，结果没想到......](http://www.daogukj.com/8759192)
-- [斑驳旧物铭刻90多年前不屈抗争](http://www.daogukj.com/nzlnmzmb/)
-- [绘就丰收画卷 这四个地方给出答案](http://www.daogukj.com/6882941)
-- [中国男篮比分被修正为77比97日本](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [更大的超级乌龙来了，亚运会曲棍球比赛，主办方将朝鲜国歌错当成韩国国歌播放，韩国计划抗议，对此你怎么看？](http://www.daogukj.com/9154473)
-- [《虱子大开口》](http://www.daogukj.com/4411404)
-- [猫科动物又上新了](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [小球迷看男篮输了哭到颤抖](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [佟丽娅回应在董璇婚礼上表情严肃](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [媒体：于东来正被自己的人设绑架](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [法考](http://www.daogukj.com/aztauuey/)
-- [住建部：支持老旧房屋原拆原建](http://www.daogukj.com/7343685)
-- [挑情丑闻](http://www.daogukj.com/dhbposmt/)
-- [菲船加速冲撞中国海警船现场视频](http://www.daogukj.com/1538095)
-- [养生的风终于吹到了月饼行业](http://www.daogukj.com/uznikqxj/)
-- [高校考试开考9分钟试卷就被外传](http://www.daogukj.com/5158126)
-- [郭士强该下课吗](http://www.daogukj.com/3616935)
-- [池昌旭林珍娜太拼了吧](http://www.daogukj.com/pfvjuanz/)
-- [绵阳一养猪场单日死亡500头猪不实](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [也门局势突变 又一个海峡危险了](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [男童在自家鱼塘触电截肢 索赔309万](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [男子30层高空作业绳子被2楼老人剪断](http://www.daogukj.com/asaygxgb/)
-- [住建部：4楼及以上住宅都要加装电梯](http://www.daogukj.com/zxvfwrkb/)
-- [穴居人晚上去哪里拉屎？](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [永和豆浆被指擦边，400 万粉授权账号播黑丝、洗澡内容，这算品牌营销的一次「翻车」吗？](http://www.daogukj.com/7717389)
-- [杨毅 中国男篮](http://www.daogukj.com/9746581)
-- [现在好多车灯都特别刺眼为什么？](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [这个小学生用烂梗骂人，惹怒7.8万人，满嘴烂梗的小学生，本质上就是油腻老登!](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [“青山作证水为媒，白头到老也无悔。”](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [为什么生意再小，赚钱的速度都远超打工？](http://www.daogukj.com/7650204)
-- [郭士强成首位两输日本的中国男篮主帅](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [物理学家：AI可能以巨大失望告终](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [郑合惠子演技好牛](http://www.daogukj.com/0995452)
-- [拖欠员工公积金 娃哈哈致歉](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [“当确实型人格遇上反驳型人格”](http://www.daogukj.com/fivnrrsp/)
-- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [业主买下1层4户圈占公共走廊](http://www.daogukj.com/hldbetht/)
-- [村民称在自家地烧1平米杂草被罚500](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [为什么英文称中国为 China，而不是按照中文读音叫 Zhongguo？](http://www.daogukj.com/phqakpps/)
-- [人民网评罗永浩说野人先生难吃](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [猫科动物百年来首现新物种](http://www.daogukj.com/adpyviat/)
-- [平陆运河释放多重红利](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [超慢跑是一种更加友好的运动方式](http://www.daogukj.com/1571628)
-- [郭士强 下课](http://www.daogukj.com/9492876)
+- [周翊然问孙怡的腿有没有一米二](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [男生的生活 VS 女生的生活](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [韩国选手听到朝鲜国歌集体慌乱](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [生育后失明失聪女子妹妹父亲患罕见病](http://www.daogukj.com/8743466)
+- [松岛辉空说亚运会日本男乒「只发挥50%-60%也有机会击败中国队」对此你怎么看？](http://www.daogukj.com/6087099)
+- [高中生自制综艺走红 邓超李晨也参与](http://www.daogukj.com/8759192)
+- [平陆运河释放多重红利](http://www.daogukj.com/nzlnmzmb/)
+- [斑驳旧物铭刻90多年前不屈抗争](http://www.daogukj.com/6882941)
+- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [兵马俑捡到游客手机，结果没想到......](http://www.daogukj.com/9154473)
+- [为什么这两年加多宝彻底销声匿迹了？](http://www.daogukj.com/4411404)
+- [产后失明失聪女子：从不后悔生娃](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [重生一次，我还是选她【01-11】【完结】](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [亚运再次失利 中国男篮差距何在](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [周鸿祎称 「吃过一次亏，不会再投资新能源车」，他在新能源赛道踩了什么坑？其投资逻辑发生了哪些转变？](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [店主贴“回趟公安”被解读成拘留](http://www.daogukj.com/aztauuey/)
+- [餐厅否认放炒菜录音冒充现炒](http://www.daogukj.com/7343685)
+- [高校考试开考9分钟试卷就被外传](http://www.daogukj.com/dhbposmt/)
+- [黄牛都不看的iPhone 18 Pro谁在买](http://www.daogukj.com/1538095)
+- [毛东东随团访朝 向毛岸英铜像祭酒](http://www.daogukj.com/uznikqxj/)
+- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](http://www.daogukj.com/5158126)
+- [《篡改正史 | 正史改竄》MV：本案，审查不合格【AI MV大赛】](http://www.daogukj.com/3616935)
+- [池昌旭林珍娜是关系很铁的好友关系](http://www.daogukj.com/pfvjuanz/)
+- [张凯毅官宣离婚](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [“当确实型人格遇上反驳型人格”](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [吉林出现野生东北虎“五虎同框”](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [亚运会餐食 减肥都吃得比这多](http://www.daogukj.com/asaygxgb/)
+- [如何解读住建部「4楼及以上住宅都要加装电梯，解决老年群体上下楼问题 」？具体实施存在什么难点？](http://www.daogukj.com/zxvfwrkb/)
+- [《兰香如故》：东方美学入戏入情入境](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [《埃 及 点 子 王》](http://www.daogukj.com/7717389)
+- [油价预计9月24日24时上调](http://www.daogukj.com/9746581)
+- [上海夫妇谈九一八事变：历史不要忘](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [变 形 强 强 【B站笑点大赛】](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [永和豆浆被指擦边，400 万粉授权账号播黑丝、洗澡内容，这算品牌营销的一次「翻车」吗？](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [2名外籍游客抱出侧翻被困车中老人](http://www.daogukj.com/7650204)
+- [中国男篮队长胡明轩赛后发声](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [孙千上过央视春晚哈尔滨分会场](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [于东来正被自己的人设绑架](http://www.daogukj.com/0995452)
+- [第二赛季更新前瞻PV「奥托皮亚·地下之王」](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [人民网评罗永浩说野人先生难吃](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [家委会私自用一千元班费给老师买礼物遭其他家长质疑，家委会有权这么做吗？类似事件层出不穷，根源在哪？](http://www.daogukj.com/fivnrrsp/)
+- [【纪录片】生命奇观2 01 内蒙古高原](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [郭士强 下课](http://www.daogukj.com/hldbetht/)
+- [吕蕺儿当花魁救了兰香](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [睡觉时将双手举过头顶的「投降式」睡姿，其实是身体在求救，这是真的吗？会带来哪些影响？怎样的睡姿最科学？](http://www.daogukj.com/phqakpps/)
+- [亚运会大巴迷路，司机打开纸质地图找方向，韩国选手吐槽「传奇司机」，日本不至于连导航都没普及吧？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [蒸十笼包子，最上面的先熟还是最下面的先熟？](http://www.daogukj.com/adpyviat/)
+- [泰国方面吐槽亚运会「选手在官方餐厅吃不饱，只能去外面吃吉野家」，本届亚运会的草台程度还能再上新高度？](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [亚运组委会致歉](http://www.daogukj.com/1571628)
+- [物业暴力阻拦业主回家](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [睡觉时将双手举过头顶的「投降式」睡姿，其实是身体在求救，这是真的吗？会带来哪些影响？怎样的睡姿最科学？](https://www.zhihu.com/question/2083956845534605480)
+- [1s~1h冰冻螺蛳粉挑战](https://b23.tv/BV1ZbY26yECF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: eca73c663477aa4fe11e -->
+<!-- content-fingerprint: 942f11f03442bf4075d0 -->
