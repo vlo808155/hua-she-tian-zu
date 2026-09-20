@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# Deepseek用现在的ds harness好还是zcode好？
+# 老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：305 万热度 · 分类：问答 · 更新：2026-09-20T09:41:10+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：442 万热度 · 分类：问答 · 更新：2026-09-20T15:04:50+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“Deepseek用现在的ds harness好还是zcode好？”位列第 2 位，公开热度指标为 305 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？”位列第 2 位，公开热度指标为 442 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：探索者，最近在用deepseek探索做AI项目，用deep thick harness去做的时候发现，经常出现崩溃，不稳定以及更新后就需要重新调试插件的问题。用现成zcode直接接deep seek就没这些烦恼，所以请教各位大神，用ds harness好，还是说用zcode比较好？ #AI 工具 #DeepSeek
+来源公开摘要显示：老板是一个AI迷，几年前就要求大家多学习多使用AI，这没啥问题。最近他用上了Claude，他非常兴奋，每天用到晚上2~3点不睡觉。然后每周邮件会发3份与AI的聊天记录，每份PDF有50页，要求大家学习其中的精神。 我看过大部分是车轱辘话，是AI对老板的不成熟意见的马屁而已，没有什么参考价值。 现在可怕的来了，老板在AI的引导下，产生了研发新产品想法。我研究过，这根本不可行，不仅技术上实现极其困难，商业价值也较弱。但老板认为这是不积极用AI的表现，AI比你们都厉害的多，这些问题只要靠多问AI就能解决的。 他现在每天都在用AI，我感觉到他很开心，只是我担心这
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [【2026LPL第三赛段】9月19日 IG vs JDG](shi-quan-shi-mei.md)
-- [体育赛事融合多领域发展](bai-fa-bai-zhong.md)
-- [前8月全国铁路发送旅客超33亿人次](qian-jun-wan-ma.md)
-- [各地开展不同形式国防教育活动](wan-zi-qian-hong.md)
+- [我们拍到了大翅鲸！](shi-quan-shi-mei.md)
+- [中国硬核科技与重大工程捷报频传](bai-fa-bai-zhong.md)
+- [2026世界市长对话武汉](qian-jun-wan-ma.md)
+- [五星红旗，闪耀亚运！](wan-zi-qian-hong.md)
 
 ## 站内推荐
 
-- [为什么很多过了35岁的女性会突然拼命想要孩子？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [【变奏群像篇】第一期 原来你是这样的小熊头！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [贾国龙 理记](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [许嵩冯禧婚礼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [何炅冲浪真的快](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [【微电影】星河外卖员：平台战争](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [年薪2000万总裁爱上二本实习生？大后果比大结果先来！《早春晴朗》吐槽](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [赵家驹否认背包里有裹尸布](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [券商员工代客操盘巨亏9206万元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [教育局回应护学岗加重双职工负担](http://www.movie.hkepx.cn/movie/4879804.htm)
-- [西贝门店员工称工资推迟了10天发放](http://www.movie.hkepx.cn/movie/5294565.htm)
-- [国乒被曝禁用1号球台](http://www.movie.hkepx.cn/xiju/8234213.htm)
-- [宁波夜市砸瓜事件，双方已签订调解协议书，动手一方赔偿西瓜摊主 6 万多元，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
-- [考试倒数第一，打架天下无敌？打翻校园霸凌，全程热血高能！爆爽漫改韩剧《学习小组》上](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
-- [舍友把宿舍改造成飞机](http://www.movie.hkepx.cn/xiju/2272650.htm)
-- [护学岗4人全是高龄老人 最大67岁](http://www.movie.hkepx.cn/movie/5183558.htm)
-- [易烊千玺短信](http://www.daogukj.com/qcalvqip/)
-- [彭州山区蛇患严重致人死亡系谣言](http://www.daogukj.com/qsfzwgun/)
-- [贾国龙 理记](http://www.daogukj.com/broiawjw/)
-- [金秀贤复出](http://www.movie.hkepx.cn/xiju/2682801.htm)
-- [特朗普称美国将获得对格陵兰岛安全「永久控制权」，丹麦称下周签署协议，保留主权，这是变相拿下格陵兰了吗？](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
-- [体育赛事融合多领域发展](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
-- [亚运会中国队首枚奖牌](http://www.movie.hkepx.cn/xiju/8343373.htm)
-- [字节跳动将飞书并入豆包，创始人张一鸣称「史上最大押注」意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
-- [如何看待名古屋亚运会开幕式被吐槽诡异、审美丑？此前东京奥运会也遭吐槽，为何日式审美总给人感觉很阴冷？](http://www.daogukj.com/8483541)
-- [被快递员看光女子称事发后长期失眠](http://www.daogukj.com/qxxcgldr/)
-- [亚运会吉祥物 诡异](http://www.daogukj.com/9209363)
-- [美色情电影制片人家藏失踪女子影像](http://www.movie.hkepx.cn/xiju/3158244.htm)
-- [许嵩冯禧婚礼](http://www.daogukj.com/cyhwfhva/)
-- [正颌手术做反当事人已清空作品，称达成和解，网友曝正颌手术并未做反，是术后拒绝正畸导致问题，具体咋回事？](http://www.daogukj.com/tfhkqorv/)
-- [空客A350直飞23076公里打破波音纪录](http://www.movie.hkepx.cn/xiju/7580051.htm)
-- [复仇者联盟内心独白belike](http://www.daogukj.com/knzztlfc/)
-- [张玺瑞铁人三项银牌](http://www.movie.hkepx.cn/movie/0847264.htm)
-- [厨师疑在店内扎血测艾滋 老板回应](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
-- [老板患上了AI狂热症，连决策都让AI来做。感觉公司快完蛋了，员工该怎么办？](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
-- [《花骨朵》亚细亚旷世奇才/洛天依](http://www.movie.hkepx.cn/movie/1751427.htm)
-- [张雪挑染头发嘴硬称老了白了](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
-- [父女在商场遭人围堵4岁女儿被吓哭](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
-- [平陆运河让巨轮在稻田上“航行”](http://www.movie.hkepx.cn/movie/1023624.htm)
-- [各家大模型已经很好用了，花大几千买台「豆包手机」，是效率刚需还是纯纯智商税？](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
-- [中国队2026亚运首金](http://www.daogukj.com/7693477)
-- [司美格鲁肽成变质回流药重灾区](http://www.movie.hkepx.cn/xiju/2826252.htm)
-- [亚马尔谈金球奖归属时直接无视凯恩，并称在所有比赛中都打败了姆巴佩，你怎么看他这一系列发言？](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
-- [前8月全国铁路发送旅客超33亿人次](http://www.daogukj.com/1461847)
-- [深圳一高中女老师上课讲话爆火](http://www.movie.hkepx.cn/xiju/0818230.htm)
-- [歌手许嵩官宣结婚，你有哪些祝福？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
-- [今起装修交物业费都能用这笔钱了](http://www.daogukj.com/xoshfaqj/)
-- [西贝 公关](http://www.movie.hkepx.cn/xiju/4934568.htm)
-- [承接别人情绪的聊天技巧](http://www.daogukj.com/wiudnclj/)
-- [【纪录片】中国救护2 01 在抵达之前](http://www.movie.hkepx.cn/movie/0173822.htm)
-- [【奥术之贼01】法师vs重甲，原创西幻cg影片](http://www.daogukj.com/4402502)
-- [北大复旦校长接连发出警告](http://www.movie.hkepx.cn/xiju/3001134.htm)
-- [40岁许嵩结婚 女方为00后主持人](http://www.daogukj.com/wkrcfluq/)
-- [突然发现“乘法交换律”好像并不总是成立，乘法分配律在较小数字上的成立都只是巧合吗？](http://www.movie.hkepx.cn/movie/6354712.htm)
-- [贵州一中学老师给女学生发「我从未停止过爱你」等骚扰信息，已被调岗，警方和纪委介入，他还将承担哪些责任？](http://www.movie.hkepx.cn/xiju/8131821.htm)
-- [“人性化假期不是简单的连休13天”](http://www.daogukj.com/4751279)
-- [我经常在闹钟响前几分钟自己醒来，这是巧合，还是身体真的会“算时间”？](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
-- [媒体：菲律宾防长的政治豪赌走不远](http://www.daogukj.com/6772234)
-- [LPL 2026 冒泡赛决赛 iG 3:1 淘汰 JDG 夺得最后一张世界赛门票，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/1847830.htm)
+- [秦始皇陵为什么不挖](http://www.movie.hkepx.cn/movie/4879804.htm)
+- [GLM-5.3-FlashX上线，如何评价该模型？](http://www.movie.hkepx.cn/movie/5294565.htm)
+- [湾区升明月官宣](http://www.movie.hkepx.cn/xiju/8234213.htm)
+- [《潜伏》中，晚秋最后也去了台湾，和余则成假扮夫妻，站长不会怀疑吗？](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
+- [中式魅魔挑战（你能闯到第几关？）](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
+- [蒯曼谈住游轮：我在船上睡得可好了](http://www.movie.hkepx.cn/xiju/2272650.htm)
+- [45岁配音演员赵然因病离世](http://www.movie.hkepx.cn/movie/5183558.htm)
+- [亚运会吉祥物 诡异](http://www.daogukj.com/qcalvqip/)
+- [iG 时隔 7 年再次晋级全球总决赛，你对他们的表现有哪些期待？](http://www.daogukj.com/qsfzwgun/)
+- [年薪2000万总裁爱上二本实习生？大后果比大结果先来！《早春晴朗》吐槽](http://www.daogukj.com/broiawjw/)
+- [超长蛋挞全国爆单 多地一货难求](http://www.movie.hkepx.cn/xiju/2682801.htm)
+- [曝冯禧西太后婚纱价值5万多](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
+- [中国硬核科技与重大工程捷报频传](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
+- [中国队夺金速度太快](http://www.movie.hkepx.cn/xiju/8343373.htm)
+- [宁波夜市砸瓜事件，双方已签订调解协议书，动手一方赔偿西瓜摊主 6 万多元，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
+- [猜数字游戏（曹刘版）](http://www.daogukj.com/8483541)
+- [调休为什么总能吵翻天](http://www.daogukj.com/qxxcgldr/)
+- [湖北省博卧薪尝胆棒棒糖走红](http://www.daogukj.com/9209363)
+- [春风得意到底是什么体验？](http://www.movie.hkepx.cn/xiju/3158244.htm)
+- [赵家驹否认背包里有裹尸布](http://www.daogukj.com/cyhwfhva/)
+- [印度杀猪盘盯上欧洲，爱沙尼亚被坑7000万？](http://www.daogukj.com/tfhkqorv/)
+- [董建华公祭仪式在港举行](http://www.movie.hkepx.cn/xiju/7580051.htm)
+- [郑丽文：100%把握让国民党2028上台](http://www.daogukj.com/knzztlfc/)
+- [918](http://www.movie.hkepx.cn/movie/0847264.htm)
+- [我拒绝了喜欢的明星加我微信](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
+- [美国为何要组建“人工智能部队”](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
+- [“人性化假期不是简单的连休13天”](http://www.movie.hkepx.cn/movie/1751427.htm)
+- [小米18Pro星河蓝](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
+- [60岁产妇生下女儿 2年前生下儿子](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
+- [许嵩冯禧伴手礼细节曝光](http://www.movie.hkepx.cn/movie/1023624.htm)
+- [陌生的女人，竟在我家偷偷住了二十年....](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
+- [中国连夺3金](http://www.daogukj.com/7693477)
+- [理记炮轰罗永浩毁掉贾国龙 30 年心血，真的是这样吗？这场风波中，贾国龙和罗永浩谁的责任更大？](http://www.movie.hkepx.cn/xiju/2826252.htm)
+- [如何看待水滴筹服务费上涨至 8 %，客服称为给用户提供高质量服务？这种收费与公益筹款性质是否存在冲突？](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
+- [2026世界市长对话武汉](http://www.daogukj.com/1461847)
+- [童心金牌](http://www.movie.hkepx.cn/xiju/0818230.htm)
+- [司机好心补路、拉绳警示，导致路过女子被绳索勒颈身亡，被以过失致人死亡罪逮捕，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
+- [一家7口人点8道菜只花了60元](http://www.daogukj.com/xoshfaqj/)
+- [调休 探亲刚需](http://www.movie.hkepx.cn/xiju/4934568.htm)
+- [《星布谷地》星空街市特别舞台「欢迎光临星布谷地」](http://www.daogukj.com/wiudnclj/)
+- [国乒3-0中国澳门迎开门红 王楚钦休战](http://www.movie.hkepx.cn/movie/0173822.htm)
+- [村干部辟谣“湘潭野外出现狗熊”](http://www.daogukj.com/4402502)
+- [王楚钦王曼昱身陷“死亡半区”](http://www.movie.hkepx.cn/xiju/3001134.htm)
+- [Deepseek用现在的ds harness好还是zcode好？](http://www.daogukj.com/wkrcfluq/)
+- [《红楼梦》现代短剧版](http://www.movie.hkepx.cn/movie/6354712.htm)
+- [四川一小学护学岗四人均为高龄老人，最大者 67 岁，教育局已督促整改，暴露了背后哪些问题？](http://www.movie.hkepx.cn/xiju/8131821.htm)
+- [许嵩与冯禧官宣结婚，女方是其多年粉丝且两人相差 14 岁，你如何看待这对「偶像与粉丝」的结合？](http://www.daogukj.com/4751279)
+- [莎拉做好接任总统准备？菲总统府回应](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
+- [阿尔茨海默病患者好像越来越多了，这是真的吗？为什么会这样？](http://www.daogukj.com/6772234)
+- [今起公积金提取场景6变9](http://www.movie.hkepx.cn/movie/1847830.htm)
 
 </details>
 
 ## 原始来源
 
-- [Deepseek用现在的ds harness好还是zcode好？](https://www.zhihu.com/question/2081862888633922641)
+- [老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？](https://www.zhihu.com/question/2084250106556067853)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bf47befd79fdad67f557 -->
+<!-- content-fingerprint: 198d151bc1e5ddbf6d87 -->
