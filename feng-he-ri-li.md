@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 朱广权 秋天的秋到底是什么秋
+# 安徽、河南、福建省委书记调整
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7523915 · 更新：2026-09-23T09:25:38+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7524154 · 更新：2026-09-23T14:35:54+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“朱广权 秋天的秋到底是什么秋”位列第 3 位，公开热度指标为 7523915。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“安徽、河南、福建省委书记调整”位列第 3 位，公开热度指标为 7524154。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月23日是秋分，朱广权用古诗词解读秋天的“秋”字内涵。不同的人爱不同的秋，秋沉心底是离人心上秋，一叶落知天下秋，秋风徐徐是天凉好个秋，秋遇到口是长空雁过声啾啾，秋旁有目是烟淡烟浓远近秋。
+来源公开摘要显示：日前中共中央决定：李乐成任安徽省委书记，梁言顺不再担任；周祖翼任河南省委书记，刘宁不再担任；赵龙任福建省委书记。安徽、河南、福建3省省委主要负责同志职务发生调整。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [今年中秋节我就不回家了](chun-nuan-hua-kai.md)
-- [今日秋分](qiu-gao-qi-shuang.md)
-- [酒店推出「月租房」抢租客，相较传统租房有何优劣？月租最低1500元起、配备品牌家电等，你会选择入住吗？](bing-tian-xue-di.md)
+- [苹果CEO谈要不要每年换iPhone](chun-nuan-hua-kai.md)
+- [中秋节的人情生意装不下去了吗](qiu-gao-qi-shuang.md)
+- [闲鱼称「涉未成年人淫秽」不实，已就引流行为报案，这算反转了吗？「来自其他平台」的违规截图是谁的责任？](bing-tian-xue-di.md)
 - [【独家】镇魂街第五季 王国纷争篇定档12月11日！](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
-- [马斯克建议有时间一定要去中国](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [11岁男孩一口流利英语帮邻居谈下大单](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [男子4.5元网购“聚能环”致妻儿身亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [多家银行存款利息涨了释放何信号](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [还有一批超级工程即将改变中国](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [“黑老大”黄大发被判死刑立即执行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [黄大发被判死刑立即执行](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [魏无羡重修金丹](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [陈伟霆你早该演这种了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [雾里青的尺度](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [多家银行存款利息涨了释放何信号](http://www.daogukj.com/2989641)
-- [王玉雯 杨玏](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [潘玮柏演唱会10点整戛然而止](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [为什么说秋分是最公平的一天](http://www.daogukj.com/5775563)
-- [歼-35装上涡扇-19发动机有多猛](http://www.daogukj.com/1579567)
-- [男子不抽烟少饮酒坚持长跑突发心梗](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [苹果不建议给iPhone贴膜](http://www.daogukj.com/rvgjqsig/)
-- [杨幂说短发是自己剪的](http://www.daogukj.com/vcxumdys/)
-- [王皓质问林诗栋](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [日本女排颁奖礼全员黑脸](http://www.daogukj.com/4998351)
-- [小米首发第六代骁龙8超级至尊版](http://www.daogukj.com/puqecrgq/)
-- [还有一批超级工程即将改变中国](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [狼王传奇系列1-11集合集【AI全民制作人】](http://www.daogukj.com/mbleegev/)
-- [周也《一瓯春》片段被群嘲出圈，演技遭质疑，不少观众觉得她很多表演观感别扭，问题根源在哪？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [军报评张又侠刘振立被开除党籍军籍](http://www.daogukj.com/9378743)
-- [中国女排夺冠！3-0横扫日本](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [敬一丹个人账号“节气”系列继续更新](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [中国死亡率最高徒步线鳌太线](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [秋分](http://www.daogukj.com/4067994)
-- [GPT-6 Sol和Luna发布 API价格降一半](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [民生银行位列中国民营企业500强67位](http://www.daogukj.com/0687577)
-- [交警隔空怒吼救下一家三口](http://www.daogukj.com/0028791)
-- [白鹿回复呵呵你是我最好的礼物](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [《穷亲戚》](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [日本已没有举办大型赛事的能力了吗](http://www.daogukj.com/0384955)
-- [高中校霸统领黑帮，看“职高武神”用禁招扫黑除恶！爆爽漫改韩剧《学习小组》中](http://www.daogukj.com/yjaakhwu/)
-- [医疗免费会带来什么？](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [马斯克建议有时间一定要去中国](http://www.daogukj.com/6760233)
-- [日本“台积电之城”变“鬼城”](http://www.daogukj.com/0471626)
-- [都说肯德基、华莱士等大品牌有无可比拟的低价进货渠道，那那些小的杂牌汉堡店是怎么生存下来的？](http://www.daogukj.com/znjtiiff/)
-- [《三国志》系列2026投票结果公布，如何评价《三国志11》成为了亚洲玩家心中的冠军？](http://www.daogukj.com/dduwvxya/)
-- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [赛枪证vs赛车证！在国内哪一个更难考？](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [比电影更夸张？专业保镖到底在做什么？](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
-- [好久不见啊，佐助](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [复仇者联盟](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [皮很大很薄，肉很小很小的馄饨是江浙一带特有的吗？](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [清淡饮食也会胖吗](http://www.daogukj.com/jmwlrqbo/)
-- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.daogukj.com/7834239)
-- [要是电池装在电车后备箱那，离人远一点会不会更安全啊？](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [杨幂回复李现](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [陈伟霆你早该演这种了](http://www.daogukj.com/2989641)
+- [2026央视中秋晚会阵容](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [为什么建议35岁就要开始控糖](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [陪看U23国足vsU23阿联酋](http://www.daogukj.com/5775563)
+- [亚运会体操男团决赛](http://www.daogukj.com/1579567)
+- [兰香如故](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [23岁女子吃完外卖后肾损伤](http://www.daogukj.com/rvgjqsig/)
+- [每周至少半天校外实践将在全国推行](http://www.daogukj.com/vcxumdys/)
+- [叔侄同校只差五岁 课间小叔总去串门](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [闲鱼公布调查结果](http://www.daogukj.com/4998351)
+- [现在就出发](http://www.daogukj.com/puqecrgq/)
+- [雾里青的尺度](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [比电影更夸张？专业保镖到底在做什么？](http://www.daogukj.com/mbleegev/)
+- [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [《兰香如故》在台湾热播](http://www.daogukj.com/9378743)
+- [别让举报幼儿园的老师落寞离场](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [姆巴佩接受采访表示：自己的非洲血统对他意义重大，希望能把金球奖带回非洲。对此，你怎么看？](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [敬一丹个人账号“节气”系列继续更新](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [中秋国庆调休和高速政策提醒](http://www.daogukj.com/4067994)
+- [和同父异母的妹妹去旅游会发生什么？](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [王者客服回应孙尚香新皮肤被指敷衍](http://www.daogukj.com/0687577)
+- [异环 × 骁龙 × 虚幻引擎｜移动端 Lumen 及 ANF 效果演示](http://www.daogukj.com/0028791)
+- [0添加等于更安全、更健康吗](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [如何看待微软令动视负责《光环》项目，又让B社接管黑曜石工作室这一改动？](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [2天内6省份省委书记调整](http://www.daogukj.com/0384955)
+- [怎么看待《金融时报》报道俄罗斯已经摧毁了乌克兰全国超过一半，即210万平方米的仓储设施？](http://www.daogukj.com/yjaakhwu/)
+- [秋分时节安全提示请收好](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [日本已没有举办大型赛事的能力了吗](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [“黑老大”黄大发被判死刑立即执行](http://www.daogukj.com/6760233)
+- [复仇者联盟](http://www.daogukj.com/0471626)
+- [马克龙为巴勒斯坦人民生存权发声](http://www.daogukj.com/znjtiiff/)
+- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.daogukj.com/dduwvxya/)
+- [酒店推出「月租房」抢租客，相较传统租房有何优劣？月租最低1500元起、配备品牌家电等，你会选择入住吗？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
+- [蛋白质摄入不足会有哪些信号？](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [《异环》黑羽角色短片丨救世主的祭宴](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.movie.hkepx.cn/movie/1344966.htm)
+- [自驾旅行的费用是全程AA，还是谁开车谁少出一点更合适？](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [这是啥户型啊？](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [周也《一瓯春》片段被群嘲出圈，演技遭质疑，不少观众觉得她很多表演观感别扭，问题根源在哪？](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.daogukj.com/jmwlrqbo/)
+- [中房协：房地产行业正经历三大变革](http://www.daogukj.com/7834239)
+- [媒体：中国女排亚运第十冠价值千金](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [伊朗外长与美特使在纽约会晤](http://www.movie.hkepx.cn/movie/2182682.htm)
 - [【独家】镇魂街第五季 王国纷争篇定档12月11日！](http://www.daogukj.com/5450676)
-- [有哪些古迹，是李白、杜甫、苏轼等历史人物真正到访过，而今天我们仍可以去看的？](http://www.movie.hkepx.cn/xiju/5833368.htm)
-- [祝福祖国大花篮主体亮相](http://www.daogukj.com/3022115)
-- [中秋国庆调休和高速政策提醒](http://www.daogukj.com/9730014)
-- [北海铁山港区鲸鱼死亡？官方辟谣](http://www.daogukj.com/vgdwnerp/)
-- [多家银行存款利息涨了](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [马斯克感叹中国壮丽](http://www.daogukj.com/pmvtaymm/)
+- [也门胡塞武装为何如此难打](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [文化中国行秋分节气](http://www.daogukj.com/3022115)
+- [如何评价kimi在9月24日正式替代老套餐的新套餐？](http://www.daogukj.com/9730014)
+- [高市早苗要求删除敌国条款](http://www.daogukj.com/vgdwnerp/)
+- [老板买了10只海胆没卖出去，下班给它做成海胆水饺偷吃了，韭菜摊鸡蛋，铁板鱿鱼](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [女子回应丈夫离世6亿遗产全给自己](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
 ## 原始来源
 
-- [朱广权 秋天的秋到底是什么秋](https://www.baidu.com/s?wd=%E6%9C%B1%E5%B9%BF%E6%9D%83+%E7%A7%8B%E5%A4%A9%E7%9A%84%E7%A7%8B%E5%88%B0%E5%BA%95%E6%98%AF%E4%BB%80%E4%B9%88%E7%A7%8B&sa=fyb_news&rsv_dl=fyb_news)
+- [安徽、河南、福建省委书记调整](https://www.baidu.com/s?wd=%E5%AE%89%E5%BE%BD%E3%80%81%E6%B2%B3%E5%8D%97%E3%80%81%E7%A6%8F%E5%BB%BA%E7%9C%81%E5%A7%94%E4%B9%A6%E8%AE%B0%E8%B0%83%E6%95%B4&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bfd6a5f2b9b912922359 -->
+<!-- content-fingerprint: fb560f6233f0097023f8 -->
