@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 中国接受过高等教育人口达2.7亿
+# “小球接力” 见证友谊传承
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7618677 · 更新：2026-09-24T09:27:27+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7617991 · 更新：2026-09-24T14:41:38+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中国接受过高等教育人口达2.7亿”位列第 2 位，公开热度指标为 7618677。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““小球接力” 见证友谊传承”位列第 2 位，公开热度指标为 7617991。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：23日，教育部在国务院新闻办发布会上介绍，我国已建成世界规模最大且有质量的教育体系。目前，我国接受过高等教育的人口达2.7亿，基础教育达到高收入国家平均水平，总体近视率连续5年下降。
+来源公开摘要显示：年逾古稀的中美“乒乓外交”亲历者重返中国，将“小球转动大球”的友好火炬传递给青年一代；中美青年相聚匹克球赛场以心相交，让“友谊第一，比赛第二”的体育精神薪火相传。跨越半个多世纪的“小球接力”，生动诠释了中美人文交流生生不息的强大生命力，彰显了两国人民历久弥新的真挚情谊。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [一张物流网跑出中国加速度](qian-jun-wan-ma.md)
-- [世界技能博览会在上海开幕](wan-zi-qian-hong.md)
-- [央视解说吐槽「想格斗可以别的项目报名」，如何评价亚运男足中国vs阿联酋下半场对手和裁判的表现？](niao-yu-hua-xiang.md)
-- [还在肝破译点数？究极焚决！直接送1w破译点！挟持哈夫克网站！拿满奖励！](shan-qing-shui-xiu.md)
+- [卫星互联网低轨26组卫星成功发射](qian-jun-wan-ma.md)
+- [多地街道闪耀“中国红”](wan-zi-qian-hong.md)
+- [如何看待豆包被曝收缩对话团队，员工感慨豆包成「边缘产品」，公关负责人辟谣称只是分工的组织调整？](niao-yu-hua-xiang.md)
+- [小米澎程顶起来六台车，这很难吗？](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [习近平：中国和美国都是伟大的国家](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [沿途人群唱起《我的祖国》欢迎习主席](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [“十五五”时期将推动制定养老服务法](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [女生在日本点大份被劝点小份](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [花少2搬箱子楼梯实际长这样](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [习近平：中美应该成为伙伴而不是对手](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [升糖最快的主食不是米饭而是这6种](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [姚明做了7年篮协主席，无法改变中国男篮，中国男篮的病灶到底有多深？未来谁来破局？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [射手牢玩家通常非常低调，前期根本不发力](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [人生第一次骑行4000米海拔！遭遇冰雹大雨幸亏当地居民救我一命！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [王楚钦孙颖莎将对阵张本美和松岛辉空](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [Coser 兔娘称不希望粉丝为了签售名额产生没必要的大额消费（买手机），你怎么看？](http://www.daogukj.com/nksrlhgk/)
-- [“十五五”时期将推动制定养老服务法](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [王源为了拍汪苏泷同框也是绞尽脑汁](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [家族多人患癌后想做的事就去做](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [蒙古游泳运动员身材](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [白血病患儿出院两天突发脓毒症离世，殡葬人员承诺将骨灰撒江却被混合填埋，合理吗？各方应承担什么责任？](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [在华盛顿遇见中美人民友谊使者](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [现在人的价值观都怎么了？为什么这种视频会有这么多人点赞？](http://www.daogukj.com/7870973)
-- [教育部：学生要长得壮壮的练得棒棒的](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [王老菊教你阳痿少女](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [跨越太平洋的历史性握手](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [今天亚运会决出55金](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [整治物价](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [福建一中学新规定引发争议「走读生手机不能放家里，也要上交学校」，如何看待此事？学校要求是否合理？](http://www.daogukj.com/7724801)
-- [12306的“隐藏福利”别错过](http://www.daogukj.com/oxaknnjh/)
-- [国乒男女队将双双迎来“中日决战”](http://www.daogukj.com/kxqitgac/)
-- [一张物流网跑出中国加速度](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [智力越高数值越低，为啥连他都逃不过被削弱的命运？](http://www.daogukj.com/eymoxoal/)
-- [诺贝尔奖好像能保研](http://www.daogukj.com/sblnbief/)
-- [如何看待日本艺人水桥舞(美依礼芽)离婚一事?](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [任正非与东风汽车总经理冯长军会面，重申华为不造车，释放出哪些信号？](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [小米18 Pro系列上手体验：骁龙8E6有惊喜？！](http://www.daogukj.com/mqwqpttl/)
-- [医生：不易长结节的人有4个特征](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [杨幂被送马吉拉外套](http://www.daogukj.com/dubydsdf/)
-- [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [西贝若倒闭会造成中国餐饮的倒退吗](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [央视解说吐槽「想格斗可以别的项目报名」，如何评价亚运男足中国vs阿联酋下半场对手和裁判的表现？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [降压疫苗要来了](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [还在肝破译点数？究极焚决！直接送1w破译点！挟持哈夫克网站！拿满奖励！](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [特朗普抵达机场](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [重庆艾滋病告知配偶成法定义务](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [花少2搬箱子楼梯实际长这样](http://www.daogukj.com/oioomhrz/)
-- [为什么说狂犬病的一旦发病，体内细胞几乎没有翻盘机会](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [女子打车回家只剩13元司机仅收9元](http://www.daogukj.com/btwajvnj/)
-- [游客山西游玩拍到限定“古风美女”](http://www.daogukj.com/8398590)
-- [“民惠通APP可发高龄补贴”不实](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [中美元首半年内实现互访](http://www.daogukj.com/4390556)
-- [张雨霏刷新中国女子游泳亚运金牌纪录](http://www.daogukj.com/skeidyel/)
-- [腾讯 AI 放弃元宝，全力押注 WorkBuddy 了吗？这次战略转型算成功吗？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [王楚钦担心自己输球影响队友](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [BLG丹尼因BP分歧发火](http://www.daogukj.com/jdhlltmp/)
-- [美方现场鸣放礼炮 战机飞越致敬](http://www.daogukj.com/inrtjmju/)
-- [61岁董事长被妻子起诉离婚](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [习近平：中美应成为伙伴而不是对手](http://www.daogukj.com/9107163)
-- [凤凰传奇的玲花为什么不参加浪姐？](http://www.daogukj.com/ypwsrnna/)
-- [领导只口头安排工作，不肯留下文字记录，经常临时变卦，这种情况只能硬刚吗？](http://www.daogukj.com/7314066)
-- [多家银行存款利息涨了](http://www.daogukj.com/3027269)
-- [让你的手机隐私信息不再裸奔？鸿蒙7系统防窥功能大体验！！](http://www.daogukj.com/5993003)
+- [热烈欢迎易立竞！看看高智感的易老师在工作中和工作外的好东西！（期待我的笔上易老师的节目🙏](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [许兰香得知林锦岐当年替沈家收尸](http://www.daogukj.com/nksrlhgk/)
+- [姚明做了7年篮协主席，无法改变中国男篮，中国男篮的病灶到底有多深？未来谁来破局？](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [【逆水寒×盗墓笔记】新角色「张起灵」登场！实机试玩与联动关卡演示](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [智力越高数值越低，为啥连他都逃不过被削弱的命运？](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [如何看待日本艺人水桥舞(美依礼芽)离婚一事?](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [王祖贤回应变样了](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [为什么我家的猫每次拉完屎都要跑酷？](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [中秋假期将现大范围降雨](http://www.daogukj.com/7870973)
+- [“济公”游本昌去世](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [中国队两小时连夺9金](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [暗区突围X少女前线2：追放 联动访谈实录](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [男子造谣“店主回公安县被拘留”被罚](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [游本昌女儿：父亲睡着就去了](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [多家车企陆续「分手」宁德并自研电池，这场「供应链突围」是为了压缩造车成本？还是争夺产业话语权？](http://www.daogukj.com/7724801)
+- [央视解说吐槽「想格斗可以别的项目报名」，如何评价亚运男足中国vs阿联酋下半场对手和裁判的表现？](http://www.daogukj.com/oxaknnjh/)
+- [谁来管管现在的中秋福利](http://www.daogukj.com/kxqitgac/)
+- [卫星互联网低轨26组卫星成功发射](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [如何评价米哈游上交大校招宣讲会上刘伟关于米哈游大模型前景的发言？](http://www.daogukj.com/eymoxoal/)
+- [考研](http://www.daogukj.com/sblnbief/)
+- [郭宇欣否认违约](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [9月26日，全新干员研究外观【牧羊人-安魂】登场！](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [学者：“敌国条款”删不得也不会删](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [王楚钦孙颖莎将对阵张本美和松岛辉空](http://www.daogukj.com/mqwqpttl/)
+- [英国向中国返还12件流失文物艺术品](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [有这样的爸爸你就认了吧](http://www.daogukj.com/dubydsdf/)
+- [特朗普夫人说美方要拿出最高礼遇](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [考公上岸和互联网年薪50万，哪个才是真正的上岸？](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [如何看待豆包被曝收缩对话团队，员工感慨豆包成「边缘产品」，公关负责人辟谣称只是分工的组织调整？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [四个直辖市命名的大学，为什么只有上海大学不是985？](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [小米澎程顶起来六台车，这很难吗？](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [林绣茹 和离](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [沈鼓集团跌停](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [人生第一次骑行4000米海拔！遭遇冰雹大雨幸亏当地居民救我一命！](http://www.daogukj.com/oioomhrz/)
+- [王凯告别《交锋》角色](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [如何看待《金融时报》指出，乌克兰境内的钢铁工业已经被俄罗斯严重摧毁？](http://www.daogukj.com/btwajvnj/)
+- [《交锋》编剧发声](http://www.daogukj.com/8398590)
+- [迈克尔·许家印《朋友的酒DJ》史上经典！迈克尔杰克逊致敬过的演唱会开场！人生必看的现场](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [老人离世将6亿元遗产给再婚配偶，女儿起诉索要5734万元，称父亲患老年痴呆且死因存疑，法律上如何分析？](http://www.daogukj.com/4390556)
+- [6013栋逸夫楼，慈善零丑闻的秘密](http://www.daogukj.com/skeidyel/)
+- [日媒称日本青年把吃饭变成「可取消项目」，近四成人每周至少跳过一餐，为啥这会成为一种潮流？会影响健康吗？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [公司走下坡路真的是从严抓考勤开始吗？](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [还在肝破译点数？究极焚决！直接送1w破译点！挟持哈夫克网站！拿满奖励！](http://www.daogukj.com/jdhlltmp/)
+- [一笑倾城 王朱悦](http://www.daogukj.com/inrtjmju/)
+- [上海男子长期高血压确诊血管性痴呆，大脑萎缩如80岁，这真的是由熬夜导致的吗？为什么会造成相关损伤？](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [美总统亲赴机场迎接释放何种讯息](http://www.daogukj.com/9107163)
+- [张子宇12投10中](http://www.daogukj.com/ypwsrnna/)
+- [退伍女兵“走路带风”视频爆火](http://www.daogukj.com/7314066)
+- [林诗栋：日本队的厚度当今最强](http://www.daogukj.com/3027269)
+- [谭咏麟刘德华李克勤合唱《朋友》](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [中国接受过高等教育人口达2.7亿](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E6%8E%A5%E5%8F%97%E8%BF%87%E9%AB%98%E7%AD%89%E6%95%99%E8%82%B2%E4%BA%BA%E5%8F%A3%E8%BE%BE2.7%E4%BA%BF&sa=fyb_news&rsv_dl=fyb_news)
+- [“小球接力” 见证友谊传承](https://www.baidu.com/s?wd=%E2%80%9C%E5%B0%8F%E7%90%83%E6%8E%A5%E5%8A%9B%E2%80%9D+%E8%A7%81%E8%AF%81%E5%8F%8B%E8%B0%8A%E4%BC%A0%E6%89%BF&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a4f53376f7831883e3b7 -->
+<!-- content-fingerprint: 1135d401523b2c4bc784 -->
