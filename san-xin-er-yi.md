@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 印度选手：感觉根本没在参加亚运会
+# 陈妤颉再添一金
 
-> 来源：今日头条热榜 · 排名：第 1 位 · 热度：21459945 · 更新：2026-09-28T16:11:49+08:00
+> 来源：今日头条热榜 · 排名：第 1 位 · 热度：13672570 · 分类：热门事件 · 更新：2026-09-29T00:48:18+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“印度选手：感觉根本没在参加亚运会”位列第 1 位，公开热度指标为 21459945。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“陈妤颉再添一金”位列第 1 位，公开热度指标为 13672570，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [张雪机车团队多人在意大利被盗，所乘大巴车遭盗匪光顾，为啥意大利的小偷这么猖獗？没有能惩治他们的办法吗？](si-hai-wei-jia.md)
-- [《原神》六周年主题曲《风的来信》](wu-gu-feng-deng.md)
-- [对手穿错鞋子 中国队递补获得金银牌](liu-shen-wu-zhu.md)
-- [教练没有把家书给张家齐](qi-shang-ba-xia.md)
+- [2026亚运会乒乓球男单决赛，林诗栋 4-0 王楚钦夺得金牌，如何评价本场比赛？](si-hai-wei-jia.md)
+- [三幻魔集结！超越神的力量！【水无月菌】](wu-gu-feng-deng.md)
+- [骗子骗了8省11地超1亿元补贴](liu-shen-wu-zhu.md)
+- [王楚钦快速摘掉银牌](qi-shang-ba-xia.md)
 
 ## 站内推荐
 
-- [把中美民间友好的桥梁筑得更宽、更牢](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [对手穿错鞋中国队递补获金银牌](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [媒体：刘欢去世中文歌坛真神落幕](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [腾势总经理称有能力做1200公里续航](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [有哪些「小时候不以为意，长大后细思恐极」的影视情节？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [美中加强农业合作是双赢之举](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [日媒惊呼中国队出了怪物级天才](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [怎么看 OpenAI 的 Pro 订阅取消 5x 和 20x 的描述？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [杭州女子每月花3000元跨省2小时去上海上班，称「算了笔账总体是划算的」，真划算吗？怎样看待她的选择？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [有网友在雷军评论区下呼吁小米 18 系列推出无防窥版，防窥屏真的很影响体验吗？有啥解决的办法吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中国队亚运王者夺金](http://www.daogukj.com/dycpetil/)
-- [日本亚运会钱都花哪了](http://www.movie.hkepx.cn/movie/5655338.htm)
-- [王楚钦4比1伊朗老将 晋级男单决赛](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
-- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.daogukj.com/3221972)
-- [林诗栋王楚钦会师决赛](http://www.movie.hkepx.cn/movie/8631365.htm)
-- [抄袭者如何把原创者熬成山寨？奥利奥：这事儿我熟](http://www.movie.hkepx.cn/xiju/3338351.htm)
-- [国乒提前锁定男单冠亚军](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
-- [今年中秋国庆假期间仅隔 3 天，你有成功请到这 3 天的假吗？在这 3 天上班的人计划怎么「熬」过去？](http://www.daogukj.com/vmuhfhdx/)
-- [四线新高铁同日开通](http://www.movie.hkepx.cn/xiju/7746644.htm)
-- [媒体：刘欢去世中文歌坛真神落幕](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
+- [王楚钦说有人又要说我找客观原因](http://www.daogukj.com/dycpetil/)
+- [如何评价吴艳妮夺铜后发言「起跑慢因三年前的阴影，我没有被挫折和网暴打败」？](http://www.movie.hkepx.cn/movie/5655338.htm)
+- [中介带看三个月得知买卖双方已成交](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
+- [小学自愿捐款装空调却实名接龙](http://www.daogukj.com/3221972)
+- [女顾客吐槽Tiffany后账号被限制](http://www.movie.hkepx.cn/movie/8631365.htm)
+- [自制【飞行滑板】体感控制，科幻进入现实](http://www.movie.hkepx.cn/xiju/3338351.htm)
+- [林诗栋4比0王楚钦男单夺冠](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
+- [王楚钦本届亚运会一金未拿，怎样评价他的状态？打法上可能有哪些问题？](http://www.daogukj.com/vmuhfhdx/)
+- [美伊对峙七个月 双方博弈仍在持续](http://www.movie.hkepx.cn/xiju/7746644.htm)
+- [怎么看 OpenAI 的 Pro 订阅取消 5x 和 20x 的描述？](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
 - [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
-- [亚运乒乓球男单半决赛， 林诗栋 4-3 林昀儒，与王楚钦会师决赛，如何评价本场比赛？](http://www.daogukj.com/4437175)
-- [段永平再次买入茅台](http://www.daogukj.com/lclnvtmc/)
-- [日媒惊呼中国队出了怪物级天才](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
-- [广州地铁有“砍人”事件系谣言](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
-- [这机器人有点东西](http://www.daogukj.com/0713363)
-- [塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/6077524.htm)
-- [樊振东打球又把自己打立正了](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
-- [张雪机车团队多人在意大利被盗，所乘大巴车遭盗匪光顾，为啥意大利的小偷这么猖獗？没有能惩治他们的办法吗？](http://www.daogukj.com/9378383)
-- [如何评价吴艳妮夺铜后发言「起跑慢因三年前的阴影，我没有被挫折和网暴打败」？](http://www.movie.hkepx.cn/movie/3280477.htm)
-- [特别企划｜跨越山海，为逐梦亚运的选手们应援！第五人格群星合唱](http://www.movie.hkepx.cn/movie/9632113.htm)
-- [【新宿决战】DeepSeek娘VS豆包](http://www.daogukj.com/6919034)
-- [【特效向】蔡徐坤vs全明星 第二季](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
-- [林雨薇回应排第7：愧对国家多年培养](http://www.daogukj.com/ttcnrbsi/)
-- [林诗栋王楚钦会师男单决赛](http://www.movie.hkepx.cn/movie/6836580.htm)
-- [32岁，我成功没登上世界最高峰——珠穆朗玛峰](http://www.daogukj.com/dfvjlhgg/)
-- [刘欢：一副好嗓子一颗赤子心](http://www.movie.hkepx.cn/movie/8186104.htm)
-- [高晓松忆刘欢：郑钧车祸 他穿睡袍救人](http://www.movie.hkepx.cn/movie/9874745.htm)
-- [“严一枪”投哭日本奥运冠军](http://www.daogukj.com/nkpmcahd/)
-- [女子每月花3000元跨省2小时上班：划算](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
-- [无可替代早春晴朗2.0](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
-- [兰香林锦岐有女儿了](http://www.movie.hkepx.cn/movie/4332345.htm)
-- [把中美民间友好的桥梁筑得更宽、更牢](http://www.movie.hkepx.cn/movie/8953215.htm)
-- [段永平买入3万股贵州茅台](http://www.daogukj.com/hhucwvns/)
-- [中国队夺得亚运会王者荣耀金牌](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
-- [林雨薇发文告别亚运](http://www.daogukj.com/lpvatlfx/)
-- [商务部解读第八轮中美经贸磋商成果](http://www.daogukj.com/3115605)
-- [亚运会乒乓球男单半决赛，王楚钦4-1伊朗选手阿拉米扬，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/1459959.htm)
-- [博士就业，感觉二本待遇不差还轻松，为什么去985/211呢？](http://www.daogukj.com/6281492)
-- [曝李蠕蠕95生恋情](http://www.movie.hkepx.cn/xiju/4232291.htm)
-- [《坦克模拟器-增强版》](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
-- [华为mate90](http://www.movie.hkepx.cn/movie/0376230.htm)
-- [捷达M6正式开启预售](http://www.movie.hkepx.cn/xiju/2775998.htm)
-- [“仅退款”的风吹到内娱](http://www.daogukj.com/8542217)
-- [对手穿错鞋中国队递补获金银牌](http://www.movie.hkepx.cn/xiju/2386261.htm)
-- [阿根廷街头著名景点是中国工商银行](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
-- [游本昌离世前家人未强行喂食送医](http://www.movie.hkepx.cn/movie/8948693.htm)
-- [对手穿错鞋子 中国队递补获得金银牌](http://www.movie.hkepx.cn/movie/7516507.htm)
-- [武契奇总统任期最后一天深情祝福中国](http://www.daogukj.com/3234327)
-- [武契奇宣布辞职](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
+- [体育总局局长表示，亚运会部分传统优势项目遇到挑战，成绩不及预期，可能有哪些原因？](http://www.daogukj.com/4437175)
+- [山姆回应面包吃出蛆](http://www.daogukj.com/lclnvtmc/)
+- [Tiffany 小红书](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
+- [李蠕蠕收入比娱乐圈很多人高](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
+- [车企钱都被华为赚走了？华为高管回应](http://www.daogukj.com/0713363)
+- [如何评价《新大头儿子》系列电影被网友吐槽画风诡异、大头儿子像「鬼火少年」？](http://www.movie.hkepx.cn/xiju/6077524.htm)
+- [王楚钦虽一金未得仍当得起一个赞](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
+- [2026亚运会乒乓球男单决赛，林诗栋 4-0 王楚钦夺得金牌，如何评价本场比赛？](http://www.daogukj.com/9378383)
+- [三个两亿像素？OPPO Find X10 Pro Max上手](http://www.movie.hkepx.cn/movie/3280477.htm)
+- [⚡️她连唐笑都在调上⚡️](http://www.movie.hkepx.cn/movie/9632113.htm)
+- [“为什么她会在我家浴室啊！？”](http://www.daogukj.com/6919034)
+- [教育部：坚决拥护党中央决定](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
+- [中国男子百米接力金牌](http://www.daogukj.com/ttcnrbsi/)
+- [林诗栋4-0王楚钦夺冠](http://www.movie.hkepx.cn/movie/6836580.htm)
+- [你 傻 不 过 我 你 信 吗](http://www.daogukj.com/dfvjlhgg/)
+- [邓亚萍预测至少要跟日本运动员打10年](http://www.movie.hkepx.cn/movie/8186104.htm)
+- [夫妻把娃丢出租屋每月转几千生活费](http://www.movie.hkepx.cn/movie/9874745.htm)
+- [老人拍照半分钟被弹窗近20次](http://www.daogukj.com/nkpmcahd/)
+- [田曦薇 华鼎奖提名](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
+- [华为高管回应车企钱都被华为赚走](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
+- [涨薪意识](http://www.movie.hkepx.cn/movie/4332345.htm)
+- [美中加强农业合作是双赢之举](http://www.movie.hkepx.cn/movie/8953215.htm)
+- [黄金技术面全面破位](http://www.daogukj.com/hhucwvns/)
+- [女孩中秋节离世 母亲称不愿再过中秋](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
+- [怎么看待超长蛋挞的爆红？](http://www.daogukj.com/lpvatlfx/)
+- [平平福双已运至亚特兰大动物园](http://www.daogukj.com/3115605)
+- [双汇火腿肠销量连续下滑，传统火腿肠为何越来越卖不动？方便面触底反弹，火腿肠却持续下滑，问题出在哪里？](http://www.movie.hkepx.cn/movie/1459959.htm)
+- [蛙跳爬泰山](http://www.daogukj.com/6281492)
+- [林诗栋：没想到能4比0王楚钦](http://www.movie.hkepx.cn/xiju/4232291.htm)
+- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
+- [12306辟谣后台发信息就能抢到票](http://www.movie.hkepx.cn/movie/0376230.htm)
+- [电池越来越便宜 电车为何仍然修不起](http://www.movie.hkepx.cn/xiju/2775998.htm)
+- [5万亿元城市“开抢”年轻人](http://www.daogukj.com/8542217)
+- [日媒惊呼中国队出了怪物级天才](http://www.movie.hkepx.cn/xiju/2386261.htm)
+- [何猷君 矮人家半个头还要去追小明](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
+- [荣耀CEO听到新机销量笑到合不拢嘴](http://www.movie.hkepx.cn/movie/8948693.htm)
+- [骗子骗了8省11地超1亿元补贴](http://www.movie.hkepx.cn/movie/7516507.htm)
+- [张本美和四项全输给中国队](http://www.daogukj.com/3234327)
+- [曝携程推新规鼓励「无理由事假」，员工休1天无理由事假，团队得600元团建经费，如何看待这种激励方式？](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
 
 </details>
 
 ## 原始来源
 
-- [印度选手：感觉根本没在参加亚运会](https://www.toutiao.com/trending/7689547345340088329/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227689547345340088329%22%2C%22hot_board_impr_id%22%3A%22202609281611476D7FA0C63740FC71040D%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [陈妤颉再添一金](https://www.toutiao.com/trending/7690571775981407794/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227690571775981407794%22%2C%22hot_board_impr_id%22%3A%222026092900481315CE16EE6AC264AA4707%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0f086047faaf3abc2a4b -->
+<!-- content-fingerprint: e782866d37fc872e244d -->

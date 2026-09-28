@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？
+# 如何评价《新大头儿子》系列电影被网友吐槽画风诡异、大头儿子像「鬼火少年」？
 
-> 来源：知乎热榜 · 排名：第 4 位 · 热度：358 万热度 · 分类：问答 · 更新：2026-09-28T16:11:49+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：356 万热度 · 分类：问答 · 更新：2026-09-29T00:48:18+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？”位列第 4 位，公开热度指标为 358 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价《新大头儿子》系列电影被网友吐槽画风诡异、大头儿子像「鬼火少年」？”位列第 4 位，公开热度指标为 356 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间9月27日晚，塞尔维亚总统武契奇向民众发表讲话，宣布辞职。武契奇在讲话中感谢塞尔维亚民众两次在总统选举中给予他的信任。 随后，武契奇签署辞呈，正式辞去塞尔维亚总统职务，提前结束其第二个总统任期。根据此前宣布，他将竞选下届政府总理。武契奇表示，将于28日上午向国民议会议长布尔纳比奇移交总统职责，后者将代理总统职务。 本月5日，塞尔维亚前进党总委员会决定，推举武契奇为该党议会选举名单领衔人和总理候选人，武契奇随后接受推举。9日，武契奇签署总统令解散议会，并宣布于10月25日提前举行议会选举。 武契奇2017年4月当选总统，2022年5月连任。根据塞尔
+来源公开摘要显示：《新大头儿子和小头爸爸之天眼系列：失控的第七天》定档10月1日_影片_动画_魔法 《新大头儿子和小头爸爸之天眼系列：失控的第七天》定档10月1日
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [【剧情】终极恶女（2014）01【那维勋 / 蔡函岑】](ri-xin-yue-yi.md)
-- [国乒提前锁定男单冠亚军](hua-she-tian-zu.md)
-- [中国队亚运王者夺金](yi-xin-yi-yi.md)
-- [印度选手：感觉根本没在参加亚运会](san-xin-er-yi.md)
+- [林诗栋4比0王楚钦男单夺冠](hua-she-tian-zu.md)
+- [王楚钦说有人又要说我找客观原因](yi-xin-yi-yi.md)
+- [陈妤颉再添一金](san-xin-er-yi.md)
 
 ## 站内推荐
 
 - [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [今年中秋国庆假期间仅隔 3 天，你有成功请到这 3 天的假吗？在这 3 天上班的人计划怎么「熬」过去？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [如果选择一处古迹或古遗址，来回答我们为什么要访古，你会选择哪一个？为什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [有网友在雷军评论区下呼吁小米 18 系列推出无防窥版，防窥屏真的很影响体验吗？有啥解决的办法吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [不是！我是来修仙的，不是来结婚的啊！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [王楚钦本届亚运会一金未拿，怎样评价他的状态？打法上可能有哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [2026年10-12月国创秋季导视-哔哩哔哩版权国创](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [《鸣潮》共鸣者「心」PV | 梦阑珊](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [把ARRI装进口袋之后：荣耀 Magic 9系列首发体验](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [3秒一个水晶，廉颇超快的推塔速度](http://www.movie.hkepx.cn/movie/4471620.htm)
-- [印度选手：感觉根本没在参加亚运会](http://www.daogukj.com/xebdfgux/)
-- [“十一”前 减仓](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
-- [博士就业，感觉二本待遇不差还轻松，为什么去985/211呢？](http://www.movie.hkepx.cn/xiju/5621807.htm)
-- [亚运乒乓球女双中日争冠](http://www.daogukj.com/dzktieeu/)
-- [莎拉·布莱曼发文悼念刘欢](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
-- [媒体：刘欢去世中文歌坛真神落幕](http://www.movie.hkepx.cn/movie/4977487.htm)
-- [张雪团队被盗6个包破案无进展](http://www.movie.hkepx.cn/xiju/7776753.htm)
-- [特别企划｜跨越山海，为逐梦亚运的选手们应援！第五人格群星合唱](http://www.daogukj.com/0771353)
-- [王灿被骗灌肠](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
-- [抄袭者如何把原创者熬成山寨？奥利奥：这事儿我熟](http://www.movie.hkepx.cn/xiju/1266622.htm)
+- [“钻玉米地”不划脸教程](http://www.movie.hkepx.cn/movie/4471620.htm)
+- [陈妤颉再添一金](http://www.daogukj.com/xebdfgux/)
+- [购房者加价抢购上海“老破小”](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
+- [蛙跳爬泰山](http://www.movie.hkepx.cn/xiju/5621807.htm)
+- [印、美联合团队研究称「混凝土中掺入人粪，抗折强度提高 42%」，如何理解该研究的理论和现实意义？](http://www.daogukj.com/dzktieeu/)
+- [我国南疆塔克拉玛干沙漠发现两处大型地下水水源，这意味着什么？将对当地生态和经济带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
+- [怎么看 OpenAI 的 Pro 订阅取消 5x 和 20x 的描述？](http://www.movie.hkepx.cn/movie/4977487.htm)
+- [薛剑：日本在反华厌华方面获世界冠军](http://www.movie.hkepx.cn/xiju/7776753.htm)
+- [⚡️她连唐笑都在调上⚡️](http://www.daogukj.com/0771353)
+- [何猷君妈妈感谢奚梦瑶](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
+- [自制【飞行滑板】体感控制，科幻进入现实](http://www.movie.hkepx.cn/xiju/1266622.htm)
 - [【剧情】终极恶女（2014）01【那维勋 / 蔡函岑】](http://www.daogukj.com/bnubczgn/)
-- [四线新高铁同日开通](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
-- [无糖月饼可敞开吃？小心误区](http://www.movie.hkepx.cn/xiju/3833912.htm)
-- [外交部发视频：台湾回家的路 终将到达](http://www.daogukj.com/qygzdgwj/)
-- [把中美民间友好的桥梁筑得更宽、更牢](http://www.movie.hkepx.cn/movie/3609280.htm)
-- [兰香林锦岐有女儿了](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
-- [《坦克模拟器-增强版》](http://www.daogukj.com/dxagawao/)
-- [林诗栋王楚钦会师决赛](http://www.daogukj.com/qdpevqqj/)
-- [谁来管管现在的小说](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
-- [林雨薇发文告别亚运](http://www.daogukj.com/tpbetyah/)
+- [美伊对峙七个月 双方博弈仍在持续](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
+- [武契奇总统任期最后一天深情祝福中国](http://www.movie.hkepx.cn/xiju/3833912.htm)
+- [百元一斤大闸蟹节后价格降一半](http://www.daogukj.com/qygzdgwj/)
+- [美中加强农业合作是双赢之举](http://www.movie.hkepx.cn/movie/3609280.htm)
+- [涨薪意识](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
+- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.daogukj.com/dxagawao/)
+- [女顾客吐槽Tiffany后账号被限制](http://www.daogukj.com/qdpevqqj/)
+- [兰香如故韩粱被冻死了](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
+- [怎么看待超长蛋挞的爆红？](http://www.daogukj.com/tpbetyah/)
 - [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
-- [亚运乒乓球男单半决赛， 林诗栋 4-3 林昀儒，与王楚钦会师决赛，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/3442051.htm)
-- [当双方互相以为对方是同行3](http://www.movie.hkepx.cn/xiju/4635137.htm)
-- [《三角洲行动》群星计划—代号：蝶](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
-- [今年中秋国庆假期间仅隔 3 天，你有成功请到这 3 天的假吗？在这 3 天上班的人计划怎么「熬」过去？](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
-- [假如成年男性先占据优势体位，锁喉住成年老虎，有可能杀死老虎么？几率多大？](http://www.daogukj.com/eqtbqajy/)
-- [武契奇宣布辞职](http://www.movie.hkepx.cn/movie/5314158.htm)
-- [孙颖莎直言可能等不到下届亚运会了，并表示决赛时后半程能力有点跟不上，你怎么看？客观来看她现在状态如何？](http://www.movie.hkepx.cn/movie/1796986.htm)
-- [中国队夺得亚运会王者荣耀金牌](http://www.daogukj.com/yldwicuv/)
-- [花一万二买房 年轻人去大兴安岭隐居](http://www.movie.hkepx.cn/xiju/1923731.htm)
-- [对手穿错鞋子 中国队递补获得金银牌](http://www.movie.hkepx.cn/xiju/5823393.htm)
-- [国乒提前锁定男单冠亚军](http://www.daogukj.com/2626307)
-- [“严一枪”投哭日本奥运冠军](http://www.movie.hkepx.cn/xiju/9508117.htm)
-- [对手穿错鞋中国队递补获金银牌](http://www.movie.hkepx.cn/xiju/9262898.htm)
-- [有哪些「小时候不以为意，长大后细思恐极」的影视情节？](http://www.daogukj.com/tqdltahc/)
-- [为什么厂家不把预制菜直接卖给c端用户？省得我叫外卖了?](http://www.movie.hkepx.cn/xiju/9646924.htm)
-- [林诗栋王楚钦会师男单决赛](http://www.daogukj.com/1624901)
-- [游本昌离世前家人未强行喂食送医](http://www.movie.hkepx.cn/movie/6632805.htm)
-- [荣耀发布会](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
-- [前租客搬走后孩子独居房东陷收房难](http://www.daogukj.com/5122805)
-- [钓鱼被鱼揍了](http://www.movie.hkepx.cn/movie/7942093.htm)
-- [张雪机车团队多人在意大利被盗，所乘大巴车遭盗匪光顾，为啥意大利的小偷这么猖獗？没有能惩治他们的办法吗？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
-- [中美「300亿对300亿」对等降税框架公布，超90%产品将享受最惠国关税待遇，将带来哪些利好？](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
-- [终于看到张家齐爸爸了](http://www.daogukj.com/hdlfcclx/)
-- [段永平再次买入茅台](http://www.daogukj.com/1703206)
-- [曝李蠕蠕95生恋情](http://www.daogukj.com/1803044)
-- [我国南疆塔克拉玛干沙漠发现两处大型地下水水源，这意味着什么？将对当地生态和经济带来哪些影响？](http://www.daogukj.com/3520679)
-- [如果选择一处古迹或古遗址，来回答我们为什么要访古，你会选择哪一个？为什么？](http://www.movie.hkepx.cn/xiju/3318389.htm)
-- [女子每月花3000元跨省2小时上班：划算](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
+- [体育总局局长表示，亚运会部分传统优势项目遇到挑战，成绩不及预期，可能有哪些原因？](http://www.movie.hkepx.cn/xiju/3442051.htm)
+- [【特效向】蔡徐坤vs全明星 第二季](http://www.movie.hkepx.cn/xiju/4635137.htm)
+- [王曼昱蒯曼11比0](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
+- [王楚钦本届亚运会一金未拿，怎样评价他的状态？打法上可能有哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
+- [一个人开车跑高速犯困了，除了喝红牛和掐大腿，还有什么真正有效的提神方法？](http://www.daogukj.com/eqtbqajy/)
+- [曝携程推新规鼓励「无理由事假」，员工休1天无理由事假，团队得600元团建经费，如何看待这种激励方式？](http://www.movie.hkepx.cn/movie/5314158.htm)
+- [亚运会乒乓球女双决赛，王曼昱/蒯曼 4-0 战胜张本美和/早田希娜夺得金牌，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/1796986.htm)
+- [女孩中秋节离世 母亲称不愿再过中秋](http://www.daogukj.com/yldwicuv/)
+- [王楚钦本届0金上届4金](http://www.movie.hkepx.cn/xiju/1923731.htm)
+- [骗子骗了8省11地超1亿元补贴](http://www.movie.hkepx.cn/xiju/5823393.htm)
+- [林诗栋4比0王楚钦男单夺冠](http://www.daogukj.com/2626307)
+- [老人拍照半分钟被弹窗近20次](http://www.movie.hkepx.cn/xiju/9508117.htm)
+- [日媒惊呼中国队出了怪物级天才](http://www.movie.hkepx.cn/xiju/9262898.htm)
+- [有网友在雷军评论区下呼吁小米 18 系列推出无防窥版，防窥屏真的很影响体验吗？有啥解决的办法吗？](http://www.daogukj.com/tqdltahc/)
+- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.movie.hkepx.cn/xiju/9646924.htm)
+- [林诗栋4-0王楚钦夺冠](http://www.daogukj.com/1624901)
+- [荣耀CEO听到新机销量笑到合不拢嘴](http://www.movie.hkepx.cn/movie/6632805.htm)
+- [林诗栋偶像樊振东](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
+- [国乒 最后一届亚运](http://www.daogukj.com/5122805)
+- [中国队夺得男子4×100米接力金牌](http://www.movie.hkepx.cn/movie/7942093.htm)
+- [2026亚运会乒乓球男单决赛，林诗栋 4-0 王楚钦夺得金牌，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
+- [我觉得乾隆的字挺好看呀，为什么在书法界评价很低？](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
+- [李克勤帮唱歌手侯浪：骑着小黄车救场](http://www.daogukj.com/hdlfcclx/)
+- [山姆回应面包吃出蛆](http://www.daogukj.com/1703206)
+- [林诗栋：没想到能4比0王楚钦](http://www.daogukj.com/1803044)
+- [延续外观，影像升级？vivo X500 Pro Max 上手](http://www.daogukj.com/3520679)
+- [2026年10-12月国创秋季导视-哔哩哔哩版权国创](http://www.movie.hkepx.cn/xiju/3318389.htm)
+- [田曦薇 华鼎奖提名](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
 
 </details>
 
 ## 原始来源
 
-- [塞尔维亚总统武契奇宣布辞职，他此前表示将以普通公民身份参加竞选，还有哪些信息值得关注？](https://www.zhihu.com/question/2083115842678665845)
+- [如何评价《新大头儿子》系列电影被网友吐槽画风诡异、大头儿子像「鬼火少年」？](https://www.zhihu.com/question/2087565298354189686)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c350cd58f03a0c7771d4 -->
+<!-- content-fingerprint: 655bff24dc69d6ab4797 -->
