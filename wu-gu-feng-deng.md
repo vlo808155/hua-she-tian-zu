@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《原神》六周年主题曲《风的来信》
+# 自学动画 爆肝俩月 自创一集《猫和老鼠》【手搓动画大赛】
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：1865613 · 分类：手机游戏 · 更新：2026-09-29T06:19:07+08:00
+> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：353988 · 分类：综合 · 更新：2026-09-29T10:07:24+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《原神》六周年主题曲《风的来信》”位列第 1 位，公开热度指标为 1865613，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“自学动画 爆肝俩月 自创一集《猫和老鼠》【手搓动画大赛】”位列第 1 位，公开热度指标为 353988，榜单分类为“综合”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：旅途有你，就是意义。 —————————————————— 音乐出品：HOYO-MiX 作曲：赵鑫（HOYO-MiX） 中文演唱：孙晔 英文演唱：Griffin Burns 日文演唱：西川贵教 韩文演唱：南度亨 《原神》bilibili服下载地址： https://www.biligame.com/detail/?id=103496
+来源公开摘要显示：老艺人手搓不易，每一个背景图，每一帧都是手绘，祝各位为了梦想 继续坚持，继续发光发亮吧！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `综合`
 
 ## 相关热点
 
-- [骗子骗了8省11地超1亿元补贴](liu-shen-wu-zhu.md)
-- [Tiffany 小红书](qi-shang-ba-xia.md)
-- [新政后全国多个楼盘启动涨价](ba-mian-ling-long.md)
+- [羽毛球选手吐槽亚运会：要运动员的命](liu-shen-wu-zhu.md)
+- [曝张家齐一开始不同意和妈妈上节目](qi-shang-ba-xia.md)
+- [为什么越来越多人不愿交物业费了](ba-mian-ling-long.md)
 - [怎么看待超长蛋挞的爆红？](jiu-niu-yi-mao.md)
 
 ## 站内推荐
 
-- [【补档】CN零杠八单曲《大家一起十六强》完整版](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [老人拍照半分钟被弹窗近20次](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [教育部：坚决拥护党中央决定](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [乒乓球男单决赛四局总计耗时32分钟](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [中国队夺得男子4×100米接力金牌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [三幻魔集结！超越神的力量！【水无月菌】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [深圳一街道办深夜打麻将实为视觉误差](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [“钻玉米地”不划脸教程](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [⚡️她连唐笑都在调上⚡️](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [山姆回应面包吃出蛆](http://www.movie.hkepx.cn/xiju/9473962.htm)
-- [真的有人这样旅游吗？？？【雷霆姐妹花3】](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
-- [闫妮亮相金鹰节状态](http://www.daogukj.com/9950285)
-- [王楚钦快速摘掉银牌](http://www.daogukj.com/hdjwtczf/)
-- [邓亚萍预测至少要跟日本运动员打10年](http://www.movie.hkepx.cn/xiju/3930873.htm)
-- [曝携程推新规鼓励「无理由事假」，员工休1天无理由事假，团队得600元团建经费，如何看待这种激励方式？](http://www.daogukj.com/lahsyiok/)
-- [2岁娃疑连吃8个月银鳕鱼汞中毒](http://www.movie.hkepx.cn/movie/2808271.htm)
-- [三幻魔集结！超越神的力量！【水无月菌】](http://www.daogukj.com/pdxtjjps/)
-- [詹姆斯 76人](http://www.movie.hkepx.cn/movie/8646334.htm)
-- [我国南疆塔克拉玛干沙漠发现两处大型地下水水源，这意味着什么？将对当地生态和经济带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
-- [何猷君妈妈感谢奚梦瑶生了2个小孩](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
-- [钓鱼被鱼揍了](http://www.daogukj.com/0662108)
-- [《坦克模拟器-增强版》](http://www.daogukj.com/ytojyrlp/)
-- [自学动画 爆肝俩月 自创一集《猫和老鼠》【手搓动画大赛】](http://www.movie.hkepx.cn/xiju/5031303.htm)
-- [刘欢亲弟弟刘啸声音太像刘欢](http://www.movie.hkepx.cn/movie/6436180.htm)
-- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.daogukj.com/3990167)
-- [荣耀CEO听到新机销量笑到合不拢嘴](http://www.movie.hkepx.cn/xiju/2312432.htm)
-- [乒乓球男单决赛四局总计耗时32分钟](http://www.movie.hkepx.cn/xiju/8661033.htm)
-- [林诗栋4比0王楚钦男单夺冠](http://www.daogukj.com/0078862)
-- [王楚钦 名古屋亚运会](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
-- [SpaceX“星舰”首次成功进入地球轨道](http://www.daogukj.com/4309889)
-- [电池越来越便宜 电车为何仍然修不起](http://www.daogukj.com/nprhrdaf/)
-- [华鼎奖提名名单](http://www.movie.hkepx.cn/movie/1442506.htm)
-- [日媒惊呼中国队出了怪物级天才](http://www.daogukj.com/4057647)
-- [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
-- [亚运会乒乓球女双决赛，王曼昱/蒯曼 4-0 战胜张本美和/早田希娜夺得金牌，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
-- [对手穿错鞋中国队递补获金银牌](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
-- [新政后全国多个楼盘启动涨价](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
-- [六十无拘 六十而已](http://www.movie.hkepx.cn/xiju/7985479.htm)
-- [教育部：坚决拥护党中央决定](http://www.movie.hkepx.cn/movie/2019373.htm)
-- [老人拍照半分钟被弹窗近20次](http://www.daogukj.com/4851140)
-- [王楚钦本届亚运会一金未拿，怎样评价他的状态？打法上可能有哪些问题？](http://www.daogukj.com/ssypiueg/)
-- [Tiffany 小红书](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
-- [你管这叫只会一点点？？？](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
-- [【特效向】蔡徐坤vs全明星 第二季](http://www.daogukj.com/lzxgwnjt/)
-- [5万亿元城市“开抢”年轻人](http://www.movie.hkepx.cn/xiju/4607012.htm)
-- [怎么看 OpenAI 的 Pro 订阅取消 5x 和 20x 的描述？](http://www.movie.hkepx.cn/movie/8010450.htm)
-- [陈妤颉再添一金](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
-- [我觉得乾隆的字挺好看呀，为什么在书法界评价很低？](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
-- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
-- [2026年10-12月国创秋季导视-哔哩哔哩版权国创](http://www.movie.hkepx.cn/xiju/4057893.htm)
-- [中国女子百米接力金牌](http://www.daogukj.com/mgibxpfj/)
-- [《鸣潮》共鸣者「心」PV | 梦阑珊](http://www.movie.hkepx.cn/movie/3059200.htm)
+- [大降温来了：大范围降雨将持续并变冷，多台风酝酿超强台风东去](http://www.movie.hkepx.cn/xiju/9473962.htm)
+- [网友吐槽「毫无人性关怀的大厂却总致力于打造出充满人性光辉的产品」，你怎么看待这个观点？](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
+- [赵丽颖的实绩](http://www.daogukj.com/9950285)
+- [鲍师傅超长蛋挞被吐槽全是皮没蛋液](http://www.daogukj.com/hdjwtczf/)
+- [张继科说他与樊振东马龙是男单最强三人](http://www.movie.hkepx.cn/xiju/3930873.htm)
+- [你管这叫只会一点点？？？](http://www.daogukj.com/lahsyiok/)
+- [⚡️孙悟空 三界巡演⚡️](http://www.movie.hkepx.cn/movie/2808271.htm)
+- [《无敌超人》当你拥有无限增强的超能力，会做什么？【Hishorts! × updream AI短片大赛+剧情单元】](http://www.daogukj.com/pdxtjjps/)
+- [日方官员称特朗普表态让日本不舒服](http://www.movie.hkepx.cn/movie/8646334.htm)
+- [美联社：中国在亚运会持续占主导地位](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
+- [网购香菜仅退款 商家驾车上门要回](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
+- [面对「过紧日子」的要求，大学预算中哪些开支「该紧」，哪些「不该紧」？](http://www.daogukj.com/0662108)
+- [真实历史上的瞎子阿炳是怎样的人？](http://www.daogukj.com/ytojyrlp/)
+- [北京大学禁止赴风景名胜区开会](http://www.movie.hkepx.cn/xiju/5031303.htm)
+- [水贝金饰降价卖爆了](http://www.movie.hkepx.cn/movie/6436180.htm)
+- [浙江办不成事专窗太超前](http://www.daogukj.com/3990167)
+- [日本 地震](http://www.movie.hkepx.cn/xiju/2312432.htm)
+- [“钻玉米地”不划脸教程](http://www.movie.hkepx.cn/xiju/8661033.htm)
+- [Tiffany中国区负责人致歉](http://www.daogukj.com/0078862)
+- [地球上的所有动物都没有穿衣服，还不是活得好好的，为什么只有我们人类才穿衣服，难道不穿衣服就活不了吗？](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
+- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.daogukj.com/4309889)
+- [曝携程推新规鼓励「无理由事假」，员工休1天无理由事假，团队得600元团建经费，如何看待这种激励方式？](http://www.daogukj.com/nprhrdaf/)
+- [哆啦A梦明明拥有无数逆天道具，却似乎没怎么改变大雄的人生，创作者想表达什么？](http://www.movie.hkepx.cn/movie/1442506.htm)
+- [Tiffany散装桃酥致歉](http://www.daogukj.com/4057647)
+- [“给12306发信息能抢到票”不实](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
+- [法国为何要向沙特派兵](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
+- [奚梦瑶拿蛋糕这个动作](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
+- [为什么越来越多人不愿交物业费了](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
+- [如何看待联合国专家预测未来七年内全球性战争风险急速攀升？](http://www.movie.hkepx.cn/xiju/7985479.htm)
+- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.movie.hkepx.cn/movie/2019373.htm)
+- [深圳一街道办深夜打麻将实为视觉误差](http://www.daogukj.com/4851140)
+- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.daogukj.com/ssypiueg/)
+- [曝张家齐一开始不同意和妈妈上节目](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
+- [锤子科技前投资人郑刚实名举报罗永浩偷税漏税，罗永浩指其诬告，具体是什么情况？他俩有啥恩怨？](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
+- [应急办大楼传出麻将声？街道办回应](http://www.daogukj.com/lzxgwnjt/)
+- [12306辟谣后台发信息就能抢到票](http://www.movie.hkepx.cn/xiju/4607012.htm)
+- [樊振东德国梗被批](http://www.movie.hkepx.cn/movie/8010450.htm)
+- [接力夺冠姑娘们把国旗叠得方方正正](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
+- [多地贷款中介集体解散群聊、删除朋友圈，背后原因是什么？会带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
+- [女子欠房租搬走 留13岁儿子在出租屋](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
+- [张继科回应王楚钦银牌](http://www.movie.hkepx.cn/xiju/4057893.htm)
+- [中介带看三个月得知买卖双方已成交](http://www.daogukj.com/mgibxpfj/)
+- [要检查孩子作业，孩子回应「老师要求做完，又没要求做对」来回避检查作业，怎么纠正孩子更好呢？](http://www.movie.hkepx.cn/movie/3059200.htm)
 - [印、美联合团队研究称「混凝土中掺入人粪，抗折强度提高 42%」，如何理解该研究的理论和现实意义？](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
-- [“这三天谁能有心思上班”](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
-- [12306辟谣后台发信息就能抢到票](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
-- [女孩中秋节离世 母亲称不愿再过中秋](http://www.movie.hkepx.cn/xiju/2631994.htm)
-- [体育总局局长表示，亚运会部分传统优势项目遇到挑战，成绩不及预期，可能有哪些原因？](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
-- [杭州女子每月花3000元跨省2小时去上海上班，称「算了笔账总体是划算的」，真划算吗？怎样看待她的选择？](http://www.daogukj.com/qfedcfsy/)
-- [双汇火腿肠销量连续下滑，传统火腿肠为何越来越卖不动？方便面触底反弹，火腿肠却持续下滑，问题出在哪里？](http://www.daogukj.com/djjsqhar/)
+- [13岁男孩独居后洗手池全是霉菌](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
+- [2026年10-12月国创秋季导视-哔哩哔哩版权国创](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
+- [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.movie.hkepx.cn/xiju/2631994.htm)
+- [国庆大花篮里有什么花](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
+- [张雪机车在意大利被偷麻了](http://www.daogukj.com/qfedcfsy/)
+- [华为Mate90系列正式定档10月1日](http://www.daogukj.com/djjsqhar/)
 
 </details>
 
 ## 原始来源
 
-- [《原神》六周年主题曲《风的来信》](https://b23.tv/BV14Baa6JENd)
+- [自学动画 爆肝俩月 自创一集《猫和老鼠》【手搓动画大赛】](https://b23.tv/BV1E6aq6pEKR)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 14b772cdcff631e117a3 -->
+<!-- content-fingerprint: 9091382995f9f8afd241 -->
