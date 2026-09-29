@@ -2,11 +2,11 @@
 
 # 重大利好！央行“四箭齐发”
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7520737 · 更新：2026-09-29T23:03:56+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7524423 · 更新：2026-09-30T03:59:20+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“重大利好！央行“四箭齐发””位列第 3 位，公开热度指标为 7520737。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“重大利好！央行“四箭齐发””位列第 3 位，公开热度指标为 7524423。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：9月29日，央行“四箭齐发”：下调PSL利率0.25个百分点，增加科技创新再贷款2000亿元、支农支小再贷款5000亿元。同日，财政部等三部门发通知，10月1日起对新发放首套房贷实施贴息政策。
 
@@ -18,73 +18,73 @@
 
 ## 相关热点
 
-- [宋佳金鹰视后](chun-nuan-hua-kai.md)
-- [房贷贴息](qiu-gao-qi-shuang.md)
-- [如何看待 AMD 收购李飞飞创立的World Labs，李飞飞将任AMD执行副总裁兼首席科学家？](bing-tian-xue-di.md)
+- [林大爷死在兰香怀里](chun-nuan-hua-kai.md)
+- [房贷贴息后100万房贷月供能省多少](qiu-gao-qi-shuang.md)
+- [曾风靡全国的五笔为什么逐渐被拼音输入法取代了？](bing-tian-xue-di.md)
 - [【剧情】长生契（2026）11【方逸伦 / 谢可寅】](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
 - [于和伟获金鹰奖最佳男主角](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [重磅！贷款买房国家贴息](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [朱亚文获奖 宋佳哭了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [陈妤颉回应混合接力夺冠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [生命树](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [赵丽颖身体到底怎么了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [买新房贷款超一百万可获一万补贴](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [陈芋汐赛后落泪：跳水是生命重要部分](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [脑梗真的和洗澡有关吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [陈妤颉回应混合接力夺冠](http://www.daogukj.com/2989641)
-- [充电器忘拔烧毁整个家](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [家有儿女小雪刘星合体](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [李想回应“去XX化”争议](http://www.daogukj.com/5775563)
-- [网传大学生替缺课老师讲课一小时](http://www.daogukj.com/1579567)
-- [刘学义不认识杨迪何炅](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [中国男排3比2战胜韩国](http://www.daogukj.com/rvgjqsig/)
-- [【剧情】消失的裂痕（2026）01【杨谨华 / 张孝全】](http://www.daogukj.com/vcxumdys/)
-- [当三角洲开局没有声音！每击败一个敌人，就解锁一种声音，该如何百万撤离！](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [泰国洪灾后大量蛇和鳄鱼出没](http://www.daogukj.com/4998351)
-- [于和伟：奖项应该给吴石将军](http://www.daogukj.com/puqecrgq/)
-- [生命树](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [DeepSeek 弹性计算 (DSec)：面向大规模 Agent 训练的沙盒基础设施](http://www.daogukj.com/mbleegev/)
-- [国乒亚运会参加7项，拿下6金4银，仅男团未能夺金，如何评价本届亚运会国乒战绩？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [飞天奖](http://www.daogukj.com/9378743)
-- [“小孩姐”陈妤颉极限逆转](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [谁能享受房贷贴息](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [梅婷 金鹰奖最佳女配角](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [陈妤颉极限反超](http://www.daogukj.com/4067994)
-- [面具比命还重要？墨西哥摔跤手的生活，有多疯狂？](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [华为Mate90全系配置曝光](http://www.daogukj.com/0687577)
-- [动态视频｜泳池里究竟有多少尿？](http://www.daogukj.com/0028791)
-- [⚡️她连唐笑都在调上⚡️](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [如何让一个中学生看懂拉格朗日力学？](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [混合4×100中国夺冠 陈妤颉再添1金](http://www.daogukj.com/0384955)
-- [假如我在GPT3.5发布的第三天立刻上线性能对标DeepSeekV4.1的模型会怎么样？](http://www.daogukj.com/yjaakhwu/)
-- [李现李一桐合跳《学功夫练武术》](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [宫廷糕点 泼天流量](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [陈芋汐赛后落泪：跳水是生命重要部分](http://www.daogukj.com/2989641)
+- [朋友圈的贷款广告 为啥突然没了](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [陈妤颉最后一棒上演惊天逆转](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [陈妤颉领先泰国队0.09秒](http://www.daogukj.com/5775563)
+- [俄罗斯扩军到244万意味着什么](http://www.daogukj.com/1579567)
+- [张家齐说陈芋汐21岁状态可怕](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [陈梦福原爱第4次交手](http://www.daogukj.com/rvgjqsig/)
+- [《小巷人家》陪跑](http://www.daogukj.com/vcxumdys/)
+- [充电器忘拔烧毁整个家](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [于和伟2026白玉兰金鹰双料视帝](http://www.daogukj.com/4998351)
+- [宋佳获奖不会只说她自己](http://www.daogukj.com/puqecrgq/)
+- [脑梗真的和洗澡有关吗](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [六耳单曲《金钵之下》：真假皆由方寸起，阴阳只在一念间](http://www.daogukj.com/mbleegev/)
+- [第一视角带你沉浸式体验修家电师傅的一天](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [为什么越来越多人不愿交物业费了](http://www.daogukj.com/9378743)
+- [刘学义不认识杨迪何炅](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [怎么看媒体曝 Anthropic 提交 IPO 招股书，25年营收增长12倍，净亏损420亿美元？](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [周深唱了70首歌](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [朱亚文获金鹰最佳男配宋佳哭了](http://www.daogukj.com/4067994)
+- [北京办抓“毛毛虫”大赛 2天抓7万条](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [国家首次对个人商贷贴息](http://www.daogukj.com/0687577)
+- [艺术斗法](http://www.daogukj.com/0028791)
+- [网传“电竞将退出亚运会”不实](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [子怡一枪打破亚洲记录亚运会标枪夺冠！](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [房贷贴息](http://www.daogukj.com/0384955)
+- [小米澎程N90：这种车我真的开够了！！](http://www.daogukj.com/yjaakhwu/)
+- [秋意渐浓，你最近还能拍到什么花？](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [周围吵成一片时，我怎么还能一下听见有人叫我的名字？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
 - [于和伟获金鹰奖最佳男主角](http://www.daogukj.com/6760233)
-- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.daogukj.com/0471626)
-- [梅婷获金鹰奖最佳女配角奖](http://www.daogukj.com/znjtiiff/)
-- [媒体追问那英临时加唱是否罚款引热议，「举报式采访」为啥引发争议？媒体这样报道合理吗？](http://www.daogukj.com/dduwvxya/)
+- [⚡️她连唐笑都在调上⚡️](http://www.daogukj.com/0471626)
+- [杨紫张一山同框](http://www.daogukj.com/znjtiiff/)
+- [【矢量突破#3】拟生态全关卡 摆完挂机 简单好抄 核心突破/特别战线](http://www.daogukj.com/dduwvxya/)
 - [居民房贷贴息政策10月1日起实施，年化贴息1%、最长补贴5年，限定房价150万以内，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [到底是薪资决定了态度，还是态度决定了薪资？](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [自学动画 爆肝俩月 自创一集《猫和老鼠》【手搓动画大赛】](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
-- [这个量筒里到底有几毫升水？别笑，你也答不上来！](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [8.59 元香菜遭「仅退款」，商家驱车千里跨省讨回，如何评价？电商商家维权成本这么高，症结在哪？](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [2 岁娃疑似连吃 8 个月银鳕鱼汞中毒，生产商回应深海野生银鳕天然存在微量汞，儿童食用银鳕鱼安全吗？](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [陈芋汐赛后落泪：跳水是生命重要部分](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [带“独显”的随身游戏小平板，8.8英寸移动电竞新物种！iQOO Pad Ultra上手体验。](http://www.daogukj.com/jmwlrqbo/)
-- [国家首次对个人商贷贴息](http://www.daogukj.com/7834239)
-- [Dior大秀](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [草根歌手救场李克勤 演唱会导演发声](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [《绝区零》洛克茜角色PV | 发条骑士](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [自学动画 爆肝俩月 自创一集《猫和老鼠》【手搓动画大赛】](http://www.movie.hkepx.cn/movie/1344966.htm)
+- [三幻魔集结！超越神的力量！【水无月菌】](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [“柳条人年年立起，没人记得这火燃了几世”](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [于和伟、宋佳分封视帝、视后，如何评价第 33 届中国电视金鹰奖获奖名单？](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [李想回应“去XX化”争议](http://www.daogukj.com/jmwlrqbo/)
+- [“星舰”受控溅落时发生剧烈爆炸](http://www.daogukj.com/7834239)
+- [谁能享受房贷贴息](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [生万物](http://www.movie.hkepx.cn/movie/2182682.htm)
 - [【剧情】长生契（2026）11【方逸伦 / 谢可寅】](http://www.daogukj.com/5450676)
-- [杨德龙谈A股成交额创14个月新低](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [地球上的所有动物都没有穿衣服，还不是活得好好的，为什么只有我们人类才穿衣服，难道不穿衣服就活不了吗？](http://www.movie.hkepx.cn/xiju/5833368.htm)
 - [遵义三日](http://www.daogukj.com/3022115)
-- [陈妤颉最后一棒上演惊天逆转](http://www.daogukj.com/9730014)
-- [网传“电竞将退出亚运会”不实](http://www.daogukj.com/vgdwnerp/)
-- [欧洲扒手猖獗横行，这才是文明的底蕴？](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.daogukj.com/9730014)
+- [张家齐妈妈说不能和男孩子开玩笑](http://www.daogukj.com/vgdwnerp/)
+- [今天来到了苏州的吴江区，老板公司聚餐，订上两只正宗的新疆馕坑烤全羊#苏州烤全羊 #苏州馕坑烤全羊#无锡烤全羊#无锡馕坑烤全羊](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
 - [金鹰奖获奖名单](http://www.daogukj.com/pmvtaymm/)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3b271dc824ca18f7b6e6 -->
+<!-- content-fingerprint: 2187212836f9c1578fb3 -->
