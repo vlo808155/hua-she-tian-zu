@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 中国已建成世界规模最大的教育体系
+# 2500亿元国补资金已下达
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7616943 · 更新：2026-09-30T10:25:43+08:00
+> 来源：微博热搜 · 排名：第 3 位 · 热度：1727218 · 分类：国内时政 · 更新：2026-09-30T16:57:41+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中国已建成世界规模最大的教育体系”位列第 2 位，公开热度指标为 7616943。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“2500亿元国补资金已下达”位列第 3 位，公开热度指标为 1727218，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：在国务院新闻办公室9月29日举行的“开局起步‘十五五’”系列主题新闻发布会上，科技部部长阴和俊介绍，经过多年不懈努力，我国已建成全世界规模最大的教育体系，拥有学科门类最齐全的人才资源，拥有总量位居世界第一的研发人员队伍，为我国科技实力不断跃升提供有力保障，也为进一步推动一体发展奠定了坚实基础。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `国内时政`
 
 ## 相关热点
 
-- [英烈盼望的明天正是我们的今天](qian-jun-wan-ma.md)
-- [邓亚萍：国人没法接受我们输日本队](wan-zi-qian-hong.md)
-- [怎么看小米大模型负责人罗福莉晋升至 22 级？](niao-yu-hua-xiang.md)
-- [“柳条人年年立起，没人记得这火燃了几世”](shan-qing-shui-xiu.md)
+- [今天，向烈士致敬！](qian-jun-wan-ma.md)
+- [怎么看媒体曝小米大模型负责人罗福莉晋升至 22 级？](wan-zi-qian-hong.md)
+- [动态视频｜泳池里究竟有多少尿？](niao-yu-hua-xiang.md)
+- [“一年举报1520次”就该及时叫停](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [买房也有“国补”了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [今天 念给你听这八个年轻的名字](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [泰国洪灾大量蛇和鳄鱼出现在街道](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [《兰香如故》高开疯走](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [张国荣遗作《爱情小孩》将亮相](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [中国亚运男足遭韩国逆转 无缘决赛](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [现在就出发4定档](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [陈芋汐一天要称十次体重](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [孙怡曾称没有和董子健彻底掰了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [牛弹琴：蔚来与吉利的合作意味深长](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [谁能享受房贷贴息](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [房贷贴息](http://www.daogukj.com/nksrlhgk/)
-- [泰国洪灾大量蛇和鳄鱼出现在街道](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [北京办抓“毛毛虫”大赛 2天抓7万条](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [25岁抗癌博主去世 常熬夜12点到2点](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [《鸣潮》共鸣者「心」PV | 梦阑珊](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [亚运会男女MVP各奖25000美元](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [究竟是四神树还是四废树？一期视频带你全面了解暮色四圣树的全部知识](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [8.59 元香菜遭「仅退款」，商家驱车千里跨省讨回，如何评价？电商商家维权成本这么高，症结在哪？](http://www.daogukj.com/7870973)
-- [Faker亚运会首秀](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [【矢量突破#3】拟生态全关卡 摆完挂机 简单好抄 核心突破/特别战线](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [此刻是他们不曾到达的天明](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [金鹰奖最佳男女配角双双爆冷](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [国庆住酒店，你有哪些屡试不爽的省钱经验？](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [如何看待张继科评男单最强三人「横板是樊振东、马龙和我，直板也是我们三个 」？你心目中男单前三选手有谁？](http://www.daogukj.com/7724801)
-- [溶洞里动植物鲜活的秘密，藏着好空气的标准](http://www.daogukj.com/oxaknnjh/)
-- [伊朗队主教练问王楚钦怎么看伊朗队](http://www.daogukj.com/kxqitgac/)
-- [英烈盼望的明天正是我们的今天](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.daogukj.com/eymoxoal/)
-- [东航回应网传空姐跪地道歉](http://www.daogukj.com/sblnbief/)
-- [杨紫金鹰奖被cue清唱《好运来》](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [怎么评价陈妤颉在本届名古屋亚运会上的表现？](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [如何评价 OpenAI 在 9 月 30 日召开的 DevDay 2026 中发布的内容？](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [于和伟、宋佳分封视帝、视后，如何评价第 33 届中国电视金鹰奖获奖名单？](http://www.daogukj.com/mqwqpttl/)
-- [最强厄尔尼诺将影响我国秋冬](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [易会满被公诉](http://www.daogukj.com/dubydsdf/)
-- [【品城记】脾气越火爆手艺越好？带你了解“顺德炒王”是怎么练成的！](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [博主：金鹰奖去流量化最彻底的一次](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [怎么看小米大模型负责人罗福莉晋升至 22 级？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [2026世界互联网大会乌镇峰会时间](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [“柳条人年年立起，没人记得这火燃了几世”](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [董子健看孙怡获奖的眼神](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [妙瓦底电诈园区公开招募成员](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [张国荣遗作《爱情小孩》将亮相](http://www.daogukj.com/oioomhrz/)
-- [居民房贷贴息政策10月1日起实施，年化贴息1%、最长补贴5年，限定房价150万以内，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [欧洲扒手猖獗横行，这才是文明的底蕴？](http://www.daogukj.com/btwajvnj/)
-- [芒果的策划又封神了](http://www.daogukj.com/8398590)
-- [弹力袜是静脉曲张治疗神器？系夸大](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [水谷隼：中国男乒实力整体下滑](http://www.daogukj.com/4390556)
-- [缅甸妙瓦底电诈园公开招募成员](http://www.daogukj.com/skeidyel/)
-- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [你管这叫只会一点点？？？](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [游本昌遗体告别仪式今日举行](http://www.daogukj.com/jdhlltmp/)
-- [山河永念 我们从未忘记](http://www.daogukj.com/inrtjmju/)
-- [这个量筒里到底有几毫升水？别笑，你也答不上来！](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [陈妤颉：3金1银我真牛啊](http://www.daogukj.com/9107163)
-- [英超确认曼城9个赛季间违反财务规则指控全部成立，累计虚报收入超9亿英镑，曼城可能会面临怎样的处罚？](http://www.daogukj.com/ypwsrnna/)
-- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.daogukj.com/7314066)
-- [女生遭轮奸美国名校拒公布嫌犯身份](http://www.daogukj.com/3027269)
-- [如何评价OpenAI发布的GPT-6.1 Sol？](http://www.daogukj.com/5993003)
+- [为啥到底谁是中上985，谁是中下985，吵得不可开交，但几乎没人吵谁是中上211，谁是中下211？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.daogukj.com/nksrlhgk/)
+- [陈芋汐一天要称十次体重](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [为什么要在国庆前一天怀念烈士](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [Tiffany月饼事件当事人回应建群](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [俄裔机长和乌克兰裔副驾激烈争吵](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [90后，00的童年的含金量还在一步步提升](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [胡歌陈龙双双哭了](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [相继发现11具女性尸体 南非总统发声](http://www.daogukj.com/7870973)
+- [9 月 30 日房地产板块集体跳水，万科 A、深物业 A 跌停，招商蛇口等纷纷下挫，发生了什么？](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [“免费试用”被扣738元](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [韩国队 裁判](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [谁能享受房贷贴息](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [孙怡拿影后 前夫董子健台下鼓掌](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [5个月没浇水的造景，你们都渴了没？](http://www.daogukj.com/7724801)
+- [速效救心丸 金属瓶](http://www.daogukj.com/oxaknnjh/)
+- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.daogukj.com/kxqitgac/)
+- [今天，向烈士致敬！](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [弹力袜是静脉曲张治疗神器？系夸大](http://www.daogukj.com/eymoxoal/)
+- [东航通报“空姐下跪道歉”](http://www.daogukj.com/sblnbief/)
+- [手机的研究](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [龙泉印泥](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [广州楼市新政](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [惠英红团队在巴黎被抢劫](http://www.daogukj.com/mqwqpttl/)
+- [如何看待DeepSeek 开源昇腾基础组件？](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [惠英红团队在巴黎被砸车抢劫](http://www.daogukj.com/dubydsdf/)
+- [刘欢妻子辟谣网传临终传闻后事图片](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [动态视频｜泳池里究竟有多少尿？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [国内油价有望大幅下调](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [“一年举报1520次”就该及时叫停](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [美军灰溜溜走了 伊拉克全国放假4天](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [弹力袜是静脉曲张“治疗神器”？假的](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [牛弹琴：蔚来与吉利的合作意味深长](http://www.daogukj.com/oioomhrz/)
+- [参数天花乱坠，实测原形毕露！12款热门空气炸锅，谁是不虚标实力派？](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [这居然是林志玲](http://www.daogukj.com/btwajvnj/)
+- [鸣潮3.7版本「镜锁妄世，心照红尘」开启，前排围观的你有啥想说的？](http://www.daogukj.com/8398590)
+- [文春曝张本智和私生活](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [亚运会男足半决赛，中国 U23 1-2 韩国 U23，王钰栋单刀破门，如何评价本场比赛？](http://www.daogukj.com/4390556)
+- [马斯克：AI真正的挑战是电力](http://www.daogukj.com/skeidyel/)
+- [【给阿嬷的情书】做人得有情义](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [迪拜飞以色列航班疑遭劫持](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [今年下半年以来最强冷空气来袭](http://www.daogukj.com/jdhlltmp/)
+- [亚运国足vs韩国](http://www.daogukj.com/inrtjmju/)
+- [公安部通报重大战果：170余人被抓](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [如何看待张继科评男单最强三人「横板是樊振东、马龙和我，直板也是我们三个 」？你心目中男单前三选手有谁？](http://www.daogukj.com/9107163)
+- [跟我一起在农场度过一天](http://www.daogukj.com/ypwsrnna/)
+- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](http://www.daogukj.com/7314066)
+- [刘欢妻子辟谣网传刘欢后事画面](http://www.daogukj.com/3027269)
+- [⚡️门捷列夫 科学界巡演 怒唱元素周期表⚡️](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [中国已建成世界规模最大的教育体系](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E5%B7%B2%E5%BB%BA%E6%88%90%E4%B8%96%E7%95%8C%E8%A7%84%E6%A8%A1%E6%9C%80%E5%A4%A7%E7%9A%84%E6%95%99%E8%82%B2%E4%BD%93%E7%B3%BB&sa=fyb_news&rsv_dl=fyb_news)
+- [2500亿元国补资金已下达](https://s.weibo.com/weibo?q=2500%E4%BA%BF%E5%85%83%E5%9B%BD%E8%A1%A5%E8%B5%84%E9%87%91%E5%B7%B2%E4%B8%8B%E8%BE%BE)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 719853c894f473361a50 -->
+<!-- content-fingerprint: 96acd069feabf26e220f -->
