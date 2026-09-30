@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？
+# 美军灰溜溜走了 伊拉克全国放假4天
 
-> 来源：知乎热榜 · 排名：第 4 位 · 热度：619 万热度 · 分类：问答 · 更新：2026-09-30T16:57:41+08:00
+> 来源：今日头条热榜 · 排名：第 4 位 · 热度：14779330 · 更新：2026-09-30T23:51:23+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？”位列第 4 位，公开热度指标为 619 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“美军灰溜溜走了 伊拉克全国放假4天”位列第 4 位，公开热度指标为 14779330。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月29日，网红博主“嘻嘻徐宝”账号发布讣告：号主嘻嘻徐宝于2026年9月28日离开了我们。嘻嘻的一生自由，热烈，果敢，善良。感谢一路支持关心的所有人。 此前，辽宁25岁博主“嘻嘻徐宝”发视频反思自己不良的饮食习惯和生活作息，随后迅速登上热搜，引起大家的关注。 她表示：“自己每天基本在12点到2点间睡觉；一天吃2顿饭，中间间隔时间长；不爱喝水，一天2杯咖啡，一周喝3-4次奶茶，平时吃外卖或下馆子，喜欢重油重辣。” “嘻嘻徐宝”视频截图 有网友看完评论道：“完了，看完你的作息和饮食好像比我还健康点。”还有网友说，“我也刚查出胃癌，和她生活习惯差不多，难道得
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [【给阿嬷的情书】做人得有情义](bing-tian-xue-di.md)
-- [家中漏水 维修人员灌了50多斤胶水](ri-xin-yue-yi.md)
-- [中国亚运男足遭韩国逆转 无缘决赛](hua-she-tian-zu.md)
-- [东航通报空姐下跪事件](yi-xin-yi-yi.md)
+- [亚运会男足半决赛中国憾负韩国，最后时刻韩国逃掉疑似禁区手球，对此你怎么看，如何评价本场裁判的表现？](bing-tian-xue-di.md)
+- [【给阿嬷的情书】做人得有情义](ri-xin-yue-yi.md)
+- [“一年举报1520次”就该及时叫停](hua-she-tian-zu.md)
+- [孙颖莎 WTT](yi-xin-yi-yi.md)
 
 ## 站内推荐
 
-- [如何看待张继科评男单最强三人「横板是樊振东、马龙和我，直板也是我们三个 」？你心目中男单前三选手有谁？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [怎么评价Anthropic 称 GLM-5.3 已能具备高级网络攻击能力，开源权重可能扩散危险？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [“退钱哥”看完亚运国足直言缓不过来](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [解放军为何再次亮剑黄岩岛](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [昆明4.3级地震有房屋破损](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [学 以 乱 用](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [《善》善良是什么](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [广州楼市新政](http://www.movie.hkepx.cn/xiju/0178022.htm)
-- [谁能享受房贷贴息](http://www.play.hengshemaoyi.cn/xiju/5046145.htm)
-- [《最绝望の小兵》](http://www.play.hengshemaoyi.cn/xiju/9800998.htm)
-- [怎么看媒体曝小米大模型负责人罗福莉晋升至 22 级？](http://www.movie.hkepx.cn/xiju/3631672.htm)
-- [5个月没浇水的造景，你们都渴了没？](http://www.movie.hkepx.cn/movie/7462782.htm)
-- [飞天奖提名名单](http://www.movie.hkepx.cn/xiju/1015798.htm)
-- [东航通报空姐下跪事件](http://www.play.hengshemaoyi.cn/xiju/5643924.htm)
-- [现在就出发4定档](http://www.movie.hkepx.cn/movie/8759369.htm)
-- [媒体称有欧盟成员国呼吁加快制定欧版301工具，商务部回应若属实中方必将坚决予以回应，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/4432368.htm)
-- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.play.hengshemaoyi.cn/xiju/6073467.htm)
-- [刘欢妻子辟谣网传刘欢后事画面](http://www.movie.hkepx.cn/xiju/5980262.htm)
-- [国内油价有望大幅下调](http://www.play.hengshemaoyi.cn/xiju/2945070.htm)
-- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.play.hengshemaoyi.cn/xiju/1081763.htm)
-- [这不是黑暗料理！！](http://www.play.hengshemaoyi.cn/kongbu/6377457.htm)
-- [闫妮又在金鹰奖微醺上了](http://www.play.hengshemaoyi.cn/kongbu/9983084.htm)
-- [今天，向烈士致敬！](http://www.movie.hkepx.cn/movie/1590582.htm)
-- [在内蒙拥有2万亩草原的家庭, 过着什么样的生活！？](http://www.movie.hkepx.cn/movie/7344933.htm)
-- [解放军霸气回应菲律宾飞机侵权碰瓷](http://www.play.hengshemaoyi.cn/xiju/4915159.htm)
-- [胡歌现身游本昌遗体告别仪式](http://www.daogukj.com/7451395)
-- [艺术斗法](http://www.movie.hkepx.cn/xiju/0966300.htm)
-- [公安部通报重大战果：170余人被抓](http://www.play.hengshemaoyi.cn/kongbu/6634694.htm)
-- [买房也有“国补”了](http://www.play.hengshemaoyi.cn/xiju/5096361.htm)
-- [松岛辉空：张本说他一定能赢王楚钦](http://www.play.hengshemaoyi.cn/xiju/7469741.htm)
-- [《善》善良是什么](http://www.movie.hkepx.cn/movie/9026192.htm)
-- [惠英红团队在巴黎被抢劫](http://www.play.hengshemaoyi.cn/kongbu/5604991.htm)
-- [A股超2500只个股飘红](http://www.movie.hkepx.cn/movie/8308007.htm)
-- [刘欢妻子辟谣网传临终传闻后事图片](http://www.movie.hkepx.cn/xiju/7306986.htm)
-- [美军灰溜溜走了 伊拉克全国放假4天](http://www.movie.hkepx.cn/xiju/0257863.htm)
-- [时隔40年亚运男足再次攻破韩国球门](http://www.movie.hkepx.cn/xiju/6731294.htm)
-- [【鸣潮】心月狐攻略！双体系大C 完全体独断万古？！同奏体系讲解 细节养成作业+进阶技巧](http://www.play.hengshemaoyi.cn/xiju/4090588.htm)
-- [荷兰两岁癫痫患儿被实施安乐死，曾有医生建议先尝试药物和姑息治疗，这样处置合理吗？安乐死标准是什么？](http://www.play.hengshemaoyi.cn/kongbu/9168900.htm)
-- [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.daogukj.com/ncgkzwop/)
-- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.daogukj.com/jccbllpg/)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.play.hengshemaoyi.cn/xiju/0279974.htm)
-- [东方甄选回应劣质溜溜凳事件](http://www.play.hengshemaoyi.cn/xiju/3554241.htm)
-- [俄警告动用核武器保卫加里宁格勒](http://www.play.hengshemaoyi.cn/xiju/8459729.htm)
-- [“一年举报1520次”就该及时叫停](http://www.daogukj.com/pzlzbctx/)
-- [【给阿嬷的情书】做人得有情义](http://www.play.hengshemaoyi.cn/xiju/7377262.htm)
-- [如何评价DeepSeek Harness桌面版正式发布？](http://www.daogukj.com/6372329)
-- [网友称大批国乒资深国家队陪练辞职，是真的吗？国乒陪练体系为啥出现人员流失？国乒水平下降与此有关吗？](http://www.movie.hkepx.cn/movie/7614208.htm)
-- [9 月 30 日房地产板块集体跳水，万科 A、深物业 A 跌停，招商蛇口等纷纷下挫，发生了什么？](http://www.daogukj.com/2745725)
-- [国庆假期出行哪些城市最热门](http://www.movie.hkepx.cn/movie/9778579.htm)
-- [马斯克：AI真正的挑战是电力](http://www.play.hengshemaoyi.cn/kongbu/3554017.htm)
-- [鸣潮3.7版本「镜锁妄世，心照红尘」开启，前排围观的你有啥想说的？](http://www.movie.hkepx.cn/xiju/4074663.htm)
-- [相继发现11具女性尸体 南非总统发声](http://www.movie.hkepx.cn/xiju/6719507.htm)
-- [亚运国足vs韩国](http://www.play.hengshemaoyi.cn/xiju/7707387.htm)
-- [国足亚运队遭韩国逆转 无缘决赛](http://www.play.hengshemaoyi.cn/kongbu/3875519.htm)
-- [俄裔机长和乌克兰裔副驾激烈争吵](http://www.play.hengshemaoyi.cn/kongbu/8127611.htm)
-- [⚡️门捷列夫 科学界巡演 怒唱元素周期表⚡️](http://www.daogukj.com/oedjbnpj/)
-- [动态视频｜泳池里究竟有多少尿？](http://www.daogukj.com/tsdqguup/)
+- [建设方回应工地挂了上百个摄像头](http://www.movie.hkepx.cn/xiju/0178022.htm)
+- [美人余定档](http://www.play.hengshemaoyi.cn/xiju/5046145.htm)
+- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.play.hengshemaoyi.cn/xiju/9800998.htm)
+- [清澈的爱，只为中国！](http://www.movie.hkepx.cn/xiju/3631672.htm)
+- [25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？](http://www.movie.hkepx.cn/movie/7462782.htm)
+- [寒武纪：离职高管梁军索赔278.32亿元](http://www.movie.hkepx.cn/xiju/1015798.htm)
+- [孙颖莎 WTT](http://www.play.hengshemaoyi.cn/xiju/5643924.htm)
+- [监控拍下云南地震瞬间](http://www.movie.hkepx.cn/movie/8759369.htm)
+- [你知道最小众的冷知识是什么？](http://www.play.hengshemaoyi.cn/xiju/4432368.htm)
+- [昆明4.3级地震有房屋破损](http://www.play.hengshemaoyi.cn/xiju/6073467.htm)
+- [闫妮又在金鹰奖微醺上了](http://www.movie.hkepx.cn/xiju/5980262.htm)
+- [WTT回应王楚钦林诗栋退赛](http://www.play.hengshemaoyi.cn/xiju/2945070.htm)
+- [迪拜航空客机发出紧急信号返航，被曝俄裔机长与乌克兰裔副驾发生激烈争吵，还有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1081763.htm)
+- [家中漏水 维修人员灌了50多斤胶水](http://www.play.hengshemaoyi.cn/kongbu/6377457.htm)
+- [为啥到底谁是中上985，谁是中下985，吵得不可开交，但几乎没人吵谁是中上211，谁是中下211？](http://www.play.hengshemaoyi.cn/kongbu/9983084.htm)
+- [100秒看懂如何申办购房贷款贴息](http://www.movie.hkepx.cn/movie/1590582.htm)
+- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.movie.hkepx.cn/movie/7344933.htm)
+- [昆明4.3级地震 网友称震感强烈](http://www.play.hengshemaoyi.cn/xiju/4915159.htm)
+- [俄警告动用核武器保卫加里宁格勒](http://www.daogukj.com/7451395)
+- [虫子为啥不进化的可爱一点，这样人类就不忍心踩死了？](http://www.movie.hkepx.cn/xiju/0966300.htm)
+- [九毛九股价跌破“九毛九”](http://www.play.hengshemaoyi.cn/kongbu/6634694.htm)
+- [90后，00的童年的含金量还在一步步提升](http://www.play.hengshemaoyi.cn/xiju/5096361.htm)
+- [只有李一桐有艺名](http://www.play.hengshemaoyi.cn/xiju/7469741.htm)
+- [⚡️门捷列夫 科学界巡演 怒唱元素周期表⚡️](http://www.movie.hkepx.cn/movie/9026192.htm)
+- [日本运动员“冲撞”中国香港运动员](http://www.play.hengshemaoyi.cn/kongbu/5604991.htm)
+- [吉利与蔚来合作是好买卖吗](http://www.movie.hkepx.cn/movie/8308007.htm)
+- [《艾希》十周年续作《艾希：续》众筹开启](http://www.movie.hkepx.cn/xiju/7306986.htm)
+- [迪拜航空确认航班发生事故](http://www.movie.hkepx.cn/xiju/0257863.htm)
+- [胡歌与游本昌家人深深拥抱](http://www.movie.hkepx.cn/xiju/6731294.htm)
+- [面具比命还重要？墨西哥摔跤手的生活，有多疯狂？](http://www.play.hengshemaoyi.cn/xiju/4090588.htm)
+- [家长称2岁幼儿常吃银鳕鱼后汞中毒，这是银鳕鱼导致的吗？厂商称标注「儿童装」非宣传婴幼儿食物，算甩锅吗？](http://www.play.hengshemaoyi.cn/kongbu/9168900.htm)
+- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.daogukj.com/ncgkzwop/)
+- [解放军为何再次亮剑黄岩岛](http://www.daogukj.com/jccbllpg/)
+- [《善》善良是什么](http://www.play.hengshemaoyi.cn/xiju/0279974.htm)
+- [中国首位金牌电竞女选手桃晚安](http://www.play.hengshemaoyi.cn/xiju/3554241.htm)
+- [Tiffany月饼当事人已解散群聊](http://www.play.hengshemaoyi.cn/xiju/8459729.htm)
+- [EP06 首场新品秀来袭，美妆护肤新品是“翻车”or惊艳全场？](http://www.daogukj.com/pzlzbctx/)
+- [亚运会男足半决赛中国憾负韩国，最后时刻韩国逃掉疑似禁区手球，对此你怎么看，如何评价本场裁判的表现？](http://www.play.hengshemaoyi.cn/xiju/7377262.htm)
+- [国庆畅游千里江山领略家国之美](http://www.daogukj.com/6372329)
+- [王钰栋：有机会肯定会出国留洋](http://www.movie.hkepx.cn/movie/7614208.htm)
+- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.daogukj.com/2745725)
+- [内蒙古野生卤虫，真红啊！](http://www.movie.hkepx.cn/movie/9778579.htm)
+- [女子父亲突然离世邻居1分钟赶到帮忙](http://www.play.hengshemaoyi.cn/kongbu/3554017.htm)
+- [通勤很远的工作要不要舍弃？](http://www.movie.hkepx.cn/xiju/4074663.htm)
+- [成都大学一学院党委书记被免职](http://www.movie.hkepx.cn/xiju/6719507.htm)
+- [妈妈拿巨型碗劝2米01儿子好好吃饭](http://www.play.hengshemaoyi.cn/xiju/7707387.htm)
+- [解放军22架艘次军机舰船位台岛周边活动](http://www.play.hengshemaoyi.cn/kongbu/3875519.htm)
+- [赌王之女何超琼称遭骚扰恐吓](http://www.play.hengshemaoyi.cn/kongbu/8127611.htm)
+- [兄弟如手足](http://www.daogukj.com/oedjbnpj/)
+- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](http://www.daogukj.com/tsdqguup/)
 
 </details>
 
 ## 原始来源
 
-- [25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？](https://www.zhihu.com/question/2088560914861482255)
+- [美军灰溜溜走了 伊拉克全国放假4天](https://www.toutiao.com/trending/7690745612685364772/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227690745612685364772%22%2C%22hot_board_impr_id%22%3A%222026093023512242A689D47FA489309505%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 70f920aac48412c56b80 -->
+<!-- content-fingerprint: c3296fd3da5a1bbaad44 -->

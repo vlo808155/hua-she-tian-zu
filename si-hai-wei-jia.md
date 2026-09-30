@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？
+# 迪拜航空客机发出紧急信号返航，被曝俄裔机长与乌克兰裔副驾发生激烈争吵，还有哪些信息值得关注？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：850 万热度 · 分类：问答 · 更新：2026-09-30T16:57:41+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：1039 万热度 · 分类：问答 · 更新：2026-09-30T23:51:23+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？”位列第 1 位，公开热度指标为 850 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“迪拜航空客机发出紧急信号返航，被曝俄裔机长与乌克兰裔副驾发生激烈争吵，还有哪些信息值得关注？”位列第 1 位，公开热度指标为 1039 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[2 张图片]
+来源公开摘要显示：据以色列多家媒体今天（9月30日）报道称，一架从迪拜飞往特拉维夫的商业客机当天在飞行途中，以异常改道的方式突然飞往沙特阿拉伯，并发出紧急遇险信号。 据悉，该航班隶属迪拜航空，机上约载有180人，于当地时间7点05分从迪拜起飞，原计划于当地时间9点30分左右降落在特拉维夫本-古里安机场。但在飞行约一个半小时后，在约旦领空发出国际紧急遇险代码7700，随后又发出代码7500。在国际航空安全标准中，7500代码意味着飞机遭遇劫机或遭到非法干扰。此后飞机转向沙特阿拉伯方向。 据安全部门消息人士透露，目前尚无确凿证据表明发生劫机事件，目前无法与飞行员取得联系。以色
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [在内蒙拥有2万亩草原的家庭, 过着什么样的生活！？](wu-gu-feng-deng.md)
-- [飞天奖提名名单](liu-shen-wu-zhu.md)
-- [东航通报“空姐下跪道歉”](qi-shang-ba-xia.md)
-- [如何看待张继科评男单最强三人「横板是樊振东、马龙和我，直板也是我们三个 」？你心目中男单前三选手有谁？](ba-mian-ling-long.md)
+- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](wu-gu-feng-deng.md)
+- [寒武纪：离职高管梁军索赔278.32亿元](liu-shen-wu-zhu.md)
+- [第五人格中国队摘金](qi-shang-ba-xia.md)
+- [“退钱哥”看完亚运国足直言缓不过来](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [动态视频｜泳池里究竟有多少尿？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [时隔40年亚运男足再次攻破韩国球门](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [相继发现11具女性尸体 南非总统发声](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [我国最好吃的淡水鱼是什么鱼？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [艺术斗法](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [胡歌与游本昌家人深深拥抱](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [成都大学一学院党委书记被免职](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [这不是黑暗料理！！](http://www.daogukj.com/7394302)
-- [家中漏水 维修人员灌了50多斤胶水](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [飞往以色列航班遭遇劫机乌龙](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [动态视频｜泳池里究竟有多少尿？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [以媒：客机返航“不是劫机”](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [弹力袜是静脉曲张治疗神器？系夸大](http://www.daogukj.com/thgdlrxk/)
-- [如何看待DeepSeek 开源昇腾基础组件？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [解放军霸气回应菲律宾飞机侵权碰瓷](http://www.daogukj.com/qqvbmaen/)
-- [美军灰溜溜走了 伊拉克全国放假4天](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [东航通报“空姐下跪道歉”](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [弹力袜是静脉曲张“治疗神器”？假的](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [刘欢妻子辟谣网传临终传闻后事图片](http://www.daogukj.com/6313812)
-- [《最绝望の小兵》](http://www.daogukj.com/wczbkkvt/)
-- [网友称大批国乒资深国家队陪练辞职，是真的吗？国乒陪练体系为啥出现人员流失？国乒水平下降与此有关吗？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [唐湘龙：两岸统一已在有序进行中](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [今天，向烈士致敬！](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [东方甄选回应劣质溜溜凳事件](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [在内蒙拥有2万亩草原的家庭, 过着什么样的生活！？](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [今年下半年以来最强冷空气来袭](http://www.daogukj.com/jjlkzcvz/)
-- [⚡️门捷列夫 科学界巡演 怒唱元素周期表⚡️](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [俄裔机长和乌克兰裔副驾激烈争吵](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [胡歌现身游本昌遗体告别仪式](http://www.daogukj.com/drcaefzl/)
-- [马斯克：AI真正的挑战是电力](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.daogukj.com/rrxeunix/)
-- [文春曝张本智和私生活](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [亚运国足vs韩国](http://www.daogukj.com/qekijaaa/)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [怎么看媒体曝小米大模型负责人罗福莉晋升至 22 级？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [荷兰两岁癫痫患儿被实施安乐死，曾有医生建议先尝试药物和姑息治疗，这样处置合理吗？安乐死标准是什么？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [怪不得小诊所看病好得快](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [公安部通报重大战果：170余人被抓](http://www.daogukj.com/4880877)
-- [刘欢妻子辟谣网传刘欢后事画面](http://www.daogukj.com/gyblgzpw/)
-- [东航通报空姐下跪事件](http://www.daogukj.com/3742193)
-- [中方回应日方有关核武器狂言](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [鸣潮3.7版本「镜锁妄世，心照红尘」开启，前排围观的你有啥想说的？](http://www.daogukj.com/yhmvbvtt/)
-- [惠英红团队在巴黎被抢劫](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [90后，00的童年的含金量还在一步步提升](http://www.daogukj.com/4405323)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [Tiffany月饼事件当事人回应建群](http://www.daogukj.com/ydbbqbuc/)
-- [女子家里跳闸后发现被“寄生”18年](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [买房也有“国补”了](http://www.daogukj.com/5927597)
-- [跟我一起在农场度过一天](http://www.daogukj.com/3691526)
-- [松岛辉空：张本说他一定能赢王楚钦](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [胡歌陈龙双双哭了](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [“一年举报1520次”就该及时叫停](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [9 月 30 日房地产板块集体跳水，万科 A、深物业 A 跌停，招商蛇口等纷纷下挫，发生了什么？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [牛弹琴：蔚来与吉利的合作意味深长](http://www.daogukj.com/9555051)
-- [俄警告动用核武器保卫加里宁格勒](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [家中漏水 维修人员灌了50多斤胶水](http://www.daogukj.com/7394302)
+- [【给阿嬷的情书】做人得有情义](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [当女生频繁做美甲之后](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [博主：中国男足亚运队今天踢得不错](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.daogukj.com/thgdlrxk/)
+- [网友说熊比东北虎好整，碰上熊能悄悄退出其领地，只要别背对熊，但东北虎跑哪儿都能被撵着，这是真的吗？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [昆明4.3级地震 网友称震感强烈](http://www.daogukj.com/qqvbmaen/)
+- [迪拜航空确认航班发生事故](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [第五人格中国队摘金](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [郭晓东道歉](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [《艾希》十周年续作《艾希：续》众筹开启](http://www.daogukj.com/6313812)
+- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.daogukj.com/wczbkkvt/)
+- [王钰栋：有机会肯定会出国留洋](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [兰香如故为什么停更](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [100秒看懂如何申办购房贷款贴息](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [中国首位金牌电竞女选手桃晚安](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [飞天奖提名名单](http://www.daogukj.com/jjlkzcvz/)
+- [兄弟如手足](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [赌王之女何超琼称遭骚扰恐吓](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [俄警告动用核武器保卫加里宁格勒](http://www.daogukj.com/drcaefzl/)
+- [女子父亲突然离世邻居1分钟赶到帮忙](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [云南昆明市盘龙区发生 4.3 级地震，震源深度 10 千米，目前情况如何？你那里有震感吗？](http://www.daogukj.com/rrxeunix/)
+- [小龙虾的谣言别再信了](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [妈妈拿巨型碗劝2米01儿子好好吃饭](http://www.daogukj.com/qekijaaa/)
+- [《善》善良是什么](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [清澈的爱，只为中国！](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [家长称2岁幼儿常吃银鳕鱼后汞中毒，这是银鳕鱼导致的吗？厂商称标注「儿童装」非宣传婴幼儿食物，算甩锅吗？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [以总理称赴以航班飞行员“蓄意坠机”](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [昆明4.3级地震有房屋破损](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [九毛九股价跌破“九毛九”](http://www.daogukj.com/4880877)
+- [闫妮又在金鹰奖微醺上了](http://www.daogukj.com/gyblgzpw/)
+- [孙颖莎 WTT](http://www.daogukj.com/3742193)
+- [身高1米的他竟管着2000多人的“生死”！](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [通勤很远的工作要不要舍弃？](http://www.daogukj.com/yhmvbvtt/)
+- [日本运动员“冲撞”中国香港运动员](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.daogukj.com/4405323)
+- [艺术斗法](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [陈赫在意大利罗马被抢劫了两次](http://www.daogukj.com/ydbbqbuc/)
+- [7天穿越哀牢山!千万不要随便采菌子!](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [90后，00的童年的含金量还在一步步提升](http://www.daogukj.com/5927597)
+- [如何评价 OpenAI 推出个人 AI 助理Dot，可全天候自主执行任务并连接 4000 多款应用？](http://www.daogukj.com/3691526)
+- [只有李一桐有艺名](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [穆欣月首位亚运电竞女子冠军](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [EP06 首场新品秀来袭，美妆护肤新品是“翻车”or惊艳全场？](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [美军灰溜溜走了 伊拉克全国放假4天](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [《余红旧事》为何能击中观众](http://www.daogukj.com/9555051)
+- [Tiffany月饼当事人已解散群聊](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](https://www.zhihu.com/question/2088295452206523479)
+- [迪拜航空客机发出紧急信号返航，被曝俄裔机长与乌克兰裔副驾发生激烈争吵，还有哪些信息值得关注？](https://www.zhihu.com/question/2088649572151194406)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ce1f96c073bec28a5acc -->
+<!-- content-fingerprint: 8b62b8a65613e4ac43ca -->
