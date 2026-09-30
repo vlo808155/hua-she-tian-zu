@@ -2,11 +2,11 @@
 
 # 清澈的爱，只为中国！
 
-> 来源：今日头条热榜 · 排名：第 3 位 · 热度：16333685 · 更新：2026-09-30T23:51:23+08:00
+> 来源：今日头条热榜 · 排名：第 3 位 · 热度：17708358 · 更新：2026-10-01T04:31:38+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“清澈的爱，只为中国！”位列第 3 位，公开热度指标为 16333685。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“清澈的爱，只为中国！”位列第 3 位，公开热度指标为 17708358。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,74 +18,74 @@
 
 ## 相关热点
 
-- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](niao-yu-hua-xiang.md)
-- [EP06 首场新品秀来袭，美妆护肤新品是“翻车”or惊艳全场？](shan-qing-shui-xiu.md)
-- [以总理称赴以航班飞行员“蓄意坠机”](feng-he-ri-li.md)
-- [迪拜航空确认航班发生事故](chun-nuan-hua-kai.md)
+- [鸿蒙装机量突破 9000 万台，预计年底破亿，对移动操作系统格局有何影响？](niao-yu-hua-xiang.md)
+- [为什么仅凭这一个镜头，就让绝命毒师夯爆了](shan-qing-shui-xiu.md)
+- [寒武纪：离职高管梁军索赔278.32亿元](feng-he-ri-li.md)
+- [迪拜航空客机事故最新画面](chun-nuan-hua-kai.md)
 
 ## 站内推荐
 
-- [解放军22架艘次军机舰船位台岛周边活动](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [名古屋市长就亚运会运作问题致歉](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [农民交公粮能否视同缴社保为何引热议](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [美军灰溜溜走了 伊拉克全国放假4天](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
 - [国庆畅游千里江山领略家国之美](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [你知道最小众的冷知识是什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [90后，00的童年的含金量还在一步步提升](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [我家那闺女 剪辑](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [以总理称赴以航班飞行员“蓄意坠机”](http://www.play.hengshemaoyi.cn/kongbu/2243236.htm)
-- [兰香如故为什么停更](http://www.movie.hkepx.cn/xiju/6258682.htm)
-- [家中漏水 维修人员灌了50多斤胶水](http://www.daogukj.com/4199190)
-- [美人余定档](http://www.daogukj.com/ddksoogp/)
-- [亚运会男足半决赛中国憾负韩国，最后时刻韩国逃掉疑似禁区手球，对此你怎么看，如何评价本场裁判的表现？](http://www.daogukj.com/1151921)
-- [演员王凯谈隐蔽战线工作](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
-- [成都大学一学院党委书记被免职](http://www.daogukj.com/pclokhlt/)
-- [虫子为啥不进化的可爱一点，这样人类就不忍心踩死了？](http://www.daogukj.com/1912371)
-- [二洲年庆典｜二洲年音乐会](http://www.daogukj.com/1276372)
-- [EP06 首场新品秀来袭，美妆护肤新品是“翻车”or惊艳全场？](http://www.play.hengshemaoyi.cn/kongbu/3420758.htm)
-- [穆欣月首位亚运电竞女子冠军](http://www.movie.hkepx.cn/xiju/9275339.htm)
-- [内蒙古野生卤虫，真红啊！](http://www.play.hengshemaoyi.cn/kongbu/1292863.htm)
-- [王钰栋单刀破门打破40年魔咒](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
+- [寒武纪：离职高管梁军索赔278.32亿元](http://www.play.hengshemaoyi.cn/kongbu/2243236.htm)
+- [奚梦瑶给女儿买了可爱版菜篮子](http://www.movie.hkepx.cn/xiju/6258682.htm)
+- [俄警告动用核武器保卫加里宁格勒](http://www.daogukj.com/4199190)
+- [这种大大方方真的招人喜欢](http://www.daogukj.com/ddksoogp/)
+- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.daogukj.com/1151921)
+- [解放军为何再次亮剑黄岩岛](http://www.play.hengshemaoyi.cn/kongbu/6816049.htm)
+- [韩国为何不满乌克兰公开移交朝鲜战俘](http://www.daogukj.com/pclokhlt/)
+- [如何评价 OpenAI 发布的 GPT-6.1 sol？](http://www.daogukj.com/1912371)
+- [《艾希》十周年续作《艾希：续》众筹开启](http://www.daogukj.com/1276372)
+- [为什么仅凭这一个镜头，就让绝命毒师夯爆了](http://www.play.hengshemaoyi.cn/kongbu/3420758.htm)
+- [为什么进化中，没有将妊娠和哺乳工作分配给两性，而都由雌性进行？](http://www.movie.hkepx.cn/xiju/9275339.htm)
+- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.play.hengshemaoyi.cn/kongbu/1292863.htm)
+- [《善》善良是什么](http://www.play.hengshemaoyi.cn/kongbu/1918014.htm)
 - [闫妮又在金鹰奖微醺上了](http://www.play.hengshemaoyi.cn/xiju/0325633.htm)
-- [日本运动员“冲撞”中国香港运动员](http://www.daogukj.com/3321605)
-- [身高1米的他竟管着2000多人的“生死”！](http://www.movie.hkepx.cn/movie/8247920.htm)
-- [解放军为何再次亮剑黄岩岛](http://www.play.hengshemaoyi.cn/kongbu/8269947.htm)
+- [买房还是租房先算清这笔账](http://www.daogukj.com/3321605)
+- [“柳条人年年立起，没人记得这火燃了几世”](http://www.movie.hkepx.cn/movie/8247920.htm)
+- [昆明4.3级地震有房屋破损](http://www.play.hengshemaoyi.cn/kongbu/8269947.htm)
 - [英国首相：希望有生之年重入欧盟](http://www.daogukj.com/7559408)
-- [这种大大方方真的招人喜欢](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
-- [学 以 乱 用](http://www.daogukj.com/qygrqwfc/)
-- [孙颖莎 WTT](http://www.movie.hkepx.cn/movie/1898296.htm)
-- [女子父亲突然离世邻居1分钟赶到帮忙](http://www.movie.hkepx.cn/xiju/9208788.htm)
-- [“退钱哥”看完亚运国足直言缓不过来](http://www.play.hengshemaoyi.cn/kongbu/3841017.htm)
-- [只有李一桐有艺名](http://www.movie.hkepx.cn/movie/9300663.htm)
-- [《最绝望の小兵》](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
-- [九毛九股价跌破“九毛九”](http://www.daogukj.com/8278736)
-- [如何评价 OpenAI 推出个人 AI 助理Dot，可全天候自主执行任务并连接 4000 多款应用？](http://www.daogukj.com/8218886)
-- [WTT回应王楚钦林诗栋退赛](http://www.daogukj.com/etwnkcjm/)
-- [王钰栋：有机会肯定会出国留洋](http://www.daogukj.com/jbysyguh/)
-- [去年中国25至29岁结婚人数最多](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
-- [中国首位金牌电竞女选手桃晚安](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
-- [陈赫在意大利罗马被抢劫了两次](http://www.daogukj.com/9528300)
-- [建设方回应工地挂了上百个摄像头](http://www.movie.hkepx.cn/movie/6435439.htm)
-- [7天穿越哀牢山!千万不要随便采菌子!](http://www.movie.hkepx.cn/movie/4878992.htm)
+- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.play.hengshemaoyi.cn/xiju/3926941.htm)
+- [为什么不喜欢全民发钱](http://www.daogukj.com/qygrqwfc/)
+- [迪拜航空确认航班发生事故](http://www.movie.hkepx.cn/movie/1898296.htm)
+- [【申公豹】景区到底该给谁看？给游客，还是给验收的人？](http://www.movie.hkepx.cn/xiju/9208788.htm)
+- [解放军22架艘次军机舰船位台岛周边活动](http://www.play.hengshemaoyi.cn/kongbu/3841017.htm)
+- [马斯克称人人都会有全民高收入](http://www.movie.hkepx.cn/movie/9300663.htm)
+- [跟我一起在农场度过一天](http://www.play.hengshemaoyi.cn/xiju/8463817.htm)
+- [美国为何给人工智能改名](http://www.daogukj.com/8278736)
+- [为啥到底谁是中上985，谁是中下985，吵得不可开交，但几乎没人吵谁是中上211，谁是中下211？](http://www.daogukj.com/8218886)
+- [只有李一桐有艺名](http://www.daogukj.com/etwnkcjm/)
+- [男子用土豆当主食半年瘦25斤](http://www.daogukj.com/jbysyguh/)
+- [警号021544重启](http://www.play.hengshemaoyi.cn/kongbu/9270404.htm)
+- [能把一个刺头从个人贡献者培养成为团队管理者吗？?](http://www.play.hengshemaoyi.cn/kongbu/1379349.htm)
+- [怎么看媒体曝小米大模型负责人罗福莉晋升至 22 级？](http://www.daogukj.com/9528300)
+- [名古屋市长就亚运会运作问题致歉](http://www.movie.hkepx.cn/movie/6435439.htm)
+- [单人手搓F站！第一天就把自己干崩溃了...](http://www.movie.hkepx.cn/movie/4878992.htm)
 - [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/xiju/8029656.htm)
 - [我国最好吃的淡水鱼是什么鱼？](http://www.daogukj.com/4914176)
-- [迪拜航空确认航班发生事故](http://www.movie.hkepx.cn/xiju/5605421.htm)
-- [《火影忍者》中的我爱罗出场强得不行，后期为什么感觉变弱了？](http://www.movie.hkepx.cn/xiju/8838856.htm)
-- [为什么不喜欢全民发钱](http://www.movie.hkepx.cn/xiju/4562883.htm)
-- [解放军22架艘次军机舰船位台岛周边活动](http://www.play.hengshemaoyi.cn/xiju/9673613.htm)
-- [网友说熊比东北虎好整，碰上熊能悄悄退出其领地，只要别背对熊，但东北虎跑哪儿都能被撵着，这是真的吗？](http://www.daogukj.com/8978179)
-- [男子用土豆当主食半年瘦25斤](http://www.play.hengshemaoyi.cn/kongbu/9386523.htm)
-- [你知道最小众的冷知识是什么？](http://www.movie.hkepx.cn/movie/8202567.htm)
-- [“摸金”攻占中小学校园](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
-- [名古屋市长就亚运会运作问题致歉](http://www.movie.hkepx.cn/xiju/8258278.htm)
-- [如何看待王楚钦、林诗栋因伤退出 2026 WTT 中国大满贯，二者的正赛席位将由资格赛幸运落败者递补？](http://www.movie.hkepx.cn/movie/5226555.htm)
+- [迪拜航空客机事故最新画面](http://www.movie.hkepx.cn/xiju/5605421.htm)
+- [泰国洪灾](http://www.movie.hkepx.cn/xiju/8838856.htm)
+- [如何看待Manus重回中国市场并发布Manus 2.0和个人智能助理Cue？](http://www.movie.hkepx.cn/xiju/4562883.htm)
+- [农民交公粮能否视同缴社保为何引热议](http://www.play.hengshemaoyi.cn/xiju/9673613.htm)
+- [网媒“爆炸头”邓浩荣落网](http://www.daogukj.com/8978179)
+- [多位艺人巴黎遭盗抢](http://www.play.hengshemaoyi.cn/kongbu/9386523.htm)
+- [90后，00的童年的含金量还在一步步提升](http://www.movie.hkepx.cn/movie/8202567.htm)
+- [唐湘龙：两岸统一已在有序进行中](http://www.play.hengshemaoyi.cn/kongbu/7817316.htm)
+- [美军灰溜溜走了 伊拉克全国放假4天](http://www.movie.hkepx.cn/xiju/8258278.htm)
+- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.movie.hkepx.cn/movie/5226555.htm)
 - [老兵在天安门不肯坐轮椅起身敬礼](http://www.daogukj.com/danezrrx/)
-- [寒武纪：离职高管梁军索赔278.32亿元](http://www.play.hengshemaoyi.cn/kongbu/5916498.htm)
+- [警方破获跨国制毒案：退休教授参与](http://www.play.hengshemaoyi.cn/kongbu/5916498.htm)
 - [穆欣月成首位亚运电竞女子冠军](http://www.movie.hkepx.cn/xiju/2002414.htm)
-- [当女生频繁做美甲之后](http://www.movie.hkepx.cn/xiju/4878037.htm)
+- [张本智和被文春爆出私下频繁搭讪女性，酒后会爆粗，是真的吗？具体是咋回事？](http://www.movie.hkepx.cn/xiju/4878037.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f220af00ba5281c8d918 -->
+<!-- content-fingerprint: 9085bc689ac711fb8944 -->

@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 寒武纪：离职高管梁军索赔278.32亿元
+# 警方破获跨国制毒案：退休教授参与
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7713033 · 更新：2026-09-30T23:51:23+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7714656 · 更新：2026-10-01T04:31:38+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“寒武纪：离职高管梁军索赔278.32亿元”位列第 1 位，公开热度指标为 7713033。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“警方破获跨国制毒案：退休教授参与”位列第 1 位，公开热度指标为 7714656。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月30日寒武纪公告，原副总梁军变更诉讼请求，向公司索赔278.32亿元股权激励损失。此前梁军2022年离职后拒办股权回购手续，公司2023年起诉。目前双方相关案件已有6起梁军均败诉。本次劳动争议案尚处法院受理阶段未开庭，涉案金额仅为其单方主张。
+来源公开摘要显示：日前，山东警方侦破一起跨国制贩依托咪酯大案。退休化学教授吴某伙同黄某等人，在国内生产未列管的制毒前体，转运至境外合成毒品。2026年4月多国同步收网，抓获71人，涉案超亿元，主犯已被批捕。该案也揭示新型毒品犯罪专业化、产业化、国际化的特点。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [第五人格中国队摘金](qi-shang-ba-xia.md)
-- [“退钱哥”看完亚运国足直言缓不过来](ba-mian-ling-long.md)
-- [25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？](jiu-niu-yi-mao.md)
-- [内蒙古野生卤虫，真红啊！](shi-quan-shi-mei.md)
+- [副机长刺伤机长迪拜航空客机失控俯冲](qi-shang-ba-xia.md)
+- [解放军22架艘次军机舰船位台岛周边活动](ba-mian-ling-long.md)
+- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](jiu-niu-yi-mao.md)
+- [假如🤔...全世界发量下降一万倍，而俺不变！](shi-quan-shi-mei.md)
 
 ## 站内推荐
 
-- [以总理称赴以航班飞行员“蓄意坠机”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [寒武纪：离职高管梁军索赔278.32亿元](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
 - [英国首相：希望有生之年重入欧盟](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [林诗栋受伤](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [昆明4.3级地震 网友称震感强烈](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [吉利与蔚来合作是好买卖吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [踹翻孕妇电动车当事司机发声](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [孙中山在全世界华人中的地位，凭什么那么高？【历史调研室107】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [兄弟如手足](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.play.hengshemaoyi.cn/xiju/3146772.htm)
-- [兄弟如手足](http://www.play.hengshemaoyi.cn/xiju/7712592.htm)
-- [去年中国25至29岁结婚人数最多](http://www.play.hengshemaoyi.cn/xiju/2648727.htm)
-- [如何评价「原神」7.1版本的幽境危战？](http://www.daogukj.com/xohurmmj/)
-- [美人余定档](http://www.play.hengshemaoyi.cn/kongbu/8850864.htm)
-- [迪拜航空确认航班发生事故](http://www.daogukj.com/kzzeqcwk/)
+- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.play.hengshemaoyi.cn/xiju/3146772.htm)
+- [赌王之女何超琼称遭骚扰恐吓](http://www.play.hengshemaoyi.cn/xiju/7712592.htm)
+- [警号021544重启](http://www.play.hengshemaoyi.cn/xiju/2648727.htm)
+- [监控拍下云南地震瞬间](http://www.daogukj.com/xohurmmj/)
+- [这种大大方方真的招人喜欢](http://www.play.hengshemaoyi.cn/kongbu/8850864.htm)
+- [迪拜航空客机事故最新画面](http://www.daogukj.com/kzzeqcwk/)
 - [飞天奖提名名单](http://www.daogukj.com/umwjgpeo/)
-- [100秒看懂如何申办购房贷款贴息](http://www.daogukj.com/8310676)
-- [解放军为何再次亮剑黄岩岛](http://www.movie.hkepx.cn/xiju/9976192.htm)
-- [虫子为啥不进化的可爱一点，这样人类就不忍心踩死了？](http://www.play.hengshemaoyi.cn/xiju/4325686.htm)
-- [孙颖莎 WTT](http://www.daogukj.com/ufrbapxl/)
+- [少年儿童高唱我们是共产主义接班人](http://www.daogukj.com/8310676)
+- [昆明4.3级地震有房屋破损](http://www.movie.hkepx.cn/xiju/9976192.htm)
+- [如何评价 OpenAI 发布的 GPT-6.1 sol？](http://www.play.hengshemaoyi.cn/xiju/4325686.htm)
+- [迪拜航空确认航班发生事故](http://www.daogukj.com/ufrbapxl/)
 - [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.play.hengshemaoyi.cn/xiju/6851192.htm)
-- [林诗栋受伤](http://www.movie.hkepx.cn/movie/8079085.htm)
+- [踹翻孕妇电动车当事司机发声](http://www.movie.hkepx.cn/movie/8079085.htm)
 - [我国最好吃的淡水鱼是什么鱼？](http://www.movie.hkepx.cn/movie/5234433.htm)
-- [当女生频繁做美甲之后](http://www.play.hengshemaoyi.cn/xiju/9843728.htm)
-- [家中漏水 维修人员灌了50多斤胶水](http://www.movie.hkepx.cn/xiju/6033500.htm)
-- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.movie.hkepx.cn/xiju/9081129.htm)
-- [网友说熊比东北虎好整，碰上熊能悄悄退出其领地，只要别背对熊，但东北虎跑哪儿都能被撵着，这是真的吗？](http://www.movie.hkepx.cn/movie/5517559.htm)
-- [《艾希》十周年续作《艾希：续》众筹开启](http://www.play.hengshemaoyi.cn/kongbu/7660682.htm)
-- [日本运动员“冲撞”中国香港运动员](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
-- [你知道最小众的冷知识是什么？](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
-- [王钰栋：有机会肯定会出国留洋](http://www.daogukj.com/zzeaeilt/)
-- [昆明4.3级地震 网友称震感强烈](http://www.movie.hkepx.cn/xiju/1559845.htm)
-- [《最绝望の小兵》](http://www.daogukj.com/zaijvjby/)
-- [博主：中国男足亚运队今天踢得不错](http://www.play.hengshemaoyi.cn/xiju/6065498.htm)
-- [演员王凯谈隐蔽战线工作](http://www.movie.hkepx.cn/xiju/0592083.htm)
+- [张本智和被文春爆出私下频繁搭讪女性，酒后会爆粗，是真的吗？具体是咋回事？](http://www.play.hengshemaoyi.cn/xiju/9843728.htm)
+- [俄警告动用核武器保卫加里宁格勒](http://www.movie.hkepx.cn/xiju/6033500.htm)
+- [女子进矿山工作六年被亲戚羡慕](http://www.movie.hkepx.cn/xiju/9081129.htm)
+- [网媒“爆炸头”邓浩荣落网](http://www.movie.hkepx.cn/movie/5517559.htm)
+- [内蒙古野生卤虫，真红啊！](http://www.play.hengshemaoyi.cn/kongbu/7660682.htm)
+- [买房还是租房先算清这笔账](http://www.play.hengshemaoyi.cn/xiju/8131263.htm)
+- [90后，00的童年的含金量还在一步步提升](http://www.play.hengshemaoyi.cn/kongbu/2123517.htm)
+- [男子用土豆当主食半年瘦25斤](http://www.daogukj.com/zzeaeilt/)
+- [孙中山在全世界华人中的地位，凭什么那么高？【历史调研室107】](http://www.movie.hkepx.cn/xiju/1559845.htm)
+- [跟我一起在农场度过一天](http://www.daogukj.com/zaijvjby/)
+- [曾风靡全国的五笔为什么逐渐被拼音输入法取代了？](http://www.play.hengshemaoyi.cn/xiju/6065498.htm)
+- [解放军为何再次亮剑黄岩岛](http://www.movie.hkepx.cn/xiju/0592083.htm)
 - [清澈的爱，只为中国！](http://www.play.hengshemaoyi.cn/kongbu/3190158.htm)
-- [“退钱哥”看完亚运国足直言缓不过来](http://www.movie.hkepx.cn/xiju/8058403.htm)
+- [解放军22架艘次军机舰船位台岛周边活动](http://www.movie.hkepx.cn/xiju/8058403.htm)
 - [迪拜航空客机发出紧急信号返航，被曝俄裔机长与乌克兰裔副驾发生激烈争吵，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/0407134.htm)
-- [这种大大方方真的招人喜欢](http://www.play.hengshemaoyi.cn/xiju/3569500.htm)
-- [亚运会男足半决赛中国憾负韩国，最后时刻韩国逃掉疑似禁区手球，对此你怎么看，如何评价本场裁判的表现？](http://www.daogukj.com/tymyjwla/)
+- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.play.hengshemaoyi.cn/xiju/3569500.htm)
+- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.daogukj.com/tymyjwla/)
 - [【给阿嬷的情书】做人得有情义](http://www.play.hengshemaoyi.cn/kongbu/4739008.htm)
-- [解放军22架艘次军机舰船位台岛周边活动](http://www.daogukj.com/9650038)
+- [农民交公粮能否视同缴社保为何引热议](http://www.daogukj.com/9650038)
 - [穆欣月成首位亚运电竞女子冠军](http://www.movie.hkepx.cn/xiju/4399837.htm)
-- [⚡️门捷列夫 科学界巡演 怒唱元素周期表⚡️](http://www.daogukj.com/bodikkcn/)
-- [惠英红团队已报警并求助大使馆](http://www.play.hengshemaoyi.cn/kongbu/0936287.htm)
-- [面具比命还重要？墨西哥摔跤手的生活，有多疯狂？](http://www.play.hengshemaoyi.cn/kongbu/7557381.htm)
-- [WTT](http://www.daogukj.com/6136718)
-- [王钰栋单刀破门打破40年魔咒](http://www.play.hengshemaoyi.cn/xiju/2359694.htm)
-- [你再看看你后面呢！!](http://www.play.hengshemaoyi.cn/kongbu/4505915.htm)
-- [如何评价 OpenAI 推出个人 AI 助理Dot，可全天候自主执行任务并连接 4000 多款应用？](http://www.movie.hkepx.cn/movie/9172563.htm)
-- [《善》善良是什么](http://www.daogukj.com/psrubjka/)
-- [身高1米的他竟管着2000多人的“生死”！](http://www.movie.hkepx.cn/xiju/8460312.htm)
-- [监控拍下云南地震瞬间](http://www.movie.hkepx.cn/xiju/3343717.htm)
+- [中国首位金牌电竞女选手桃晚安](http://www.daogukj.com/bodikkcn/)
+- [日媒：张本智和常私信搭讪女性](http://www.play.hengshemaoyi.cn/kongbu/0936287.htm)
+- [当女生频繁做美甲之后](http://www.play.hengshemaoyi.cn/kongbu/7557381.htm)
+- [赛力斯华为合作模式变动](http://www.daogukj.com/6136718)
+- [《善》善良是什么](http://www.play.hengshemaoyi.cn/xiju/2359694.htm)
+- [郭晓东道歉](http://www.play.hengshemaoyi.cn/kongbu/4505915.htm)
+- [为啥到底谁是中上985，谁是中下985，吵得不可开交，但几乎没人吵谁是中上211，谁是中下211？](http://www.movie.hkepx.cn/movie/9172563.htm)
+- [中国体育代表团151金67银59铜](http://www.daogukj.com/psrubjka/)
+- [“柳条人年年立起，没人记得这火燃了几世”](http://www.movie.hkepx.cn/xiju/8460312.htm)
+- [国庆节](http://www.movie.hkepx.cn/xiju/3343717.htm)
 - [小龙虾的谣言别再信了](http://www.daogukj.com/qlmhijex/)
-- [九毛九股价跌破“九毛九”](http://www.movie.hkepx.cn/movie/5118780.htm)
+- [美国为何给人工智能改名](http://www.movie.hkepx.cn/movie/5118780.htm)
 - [英国首相：希望有生之年重入欧盟](http://www.movie.hkepx.cn/movie/0327094.htm)
-- [通勤很远的工作要不要舍弃？](http://www.play.hengshemaoyi.cn/kongbu/5250449.htm)
-- [二洲年庆典｜二洲年音乐会](http://www.movie.hkepx.cn/movie/7815976.htm)
-- [赌王之女何超琼称遭骚扰恐吓](http://www.movie.hkepx.cn/xiju/2004158.htm)
+- [昆明铁路区间行车秩序逐步恢复](http://www.play.hengshemaoyi.cn/kongbu/5250449.htm)
+- [《艾希》十周年续作《艾希：续》众筹开启](http://www.movie.hkepx.cn/movie/7815976.htm)
+- [女子父亲突然离世邻居1分钟赶到帮忙](http://www.movie.hkepx.cn/xiju/2004158.htm)
 
 </details>
 
 ## 原始来源
 
-- [寒武纪：离职高管梁军索赔278.32亿元](https://www.baidu.com/s?wd=%E5%AF%92%E6%AD%A6%E7%BA%AA%EF%BC%9A%E7%A6%BB%E8%81%8C%E9%AB%98%E7%AE%A1%E6%A2%81%E5%86%9B%E7%B4%A2%E8%B5%94278.32%E4%BA%BF%E5%85%83&sa=fyb_news&rsv_dl=fyb_news)
+- [警方破获跨国制毒案：退休教授参与](https://www.baidu.com/s?wd=%E8%AD%A6%E6%96%B9%E7%A0%B4%E8%8E%B7%E8%B7%A8%E5%9B%BD%E5%88%B6%E6%AF%92%E6%A1%88%EF%BC%9A%E9%80%80%E4%BC%91%E6%95%99%E6%8E%88%E5%8F%82%E4%B8%8E&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fa36230091059dfe1ac6 -->
+<!-- content-fingerprint: 5d5100fd8d342789f73c -->
