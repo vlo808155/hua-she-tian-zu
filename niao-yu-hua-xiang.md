@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何评价 10月 1 日发布的华为Mate 90系列全系旗舰τ芯片，不同版本如何选择？
+# 男子用土豆当主食半年瘦25斤，称脂肪肝没了，血压、血糖稳了，真的会这样吗？这种减肥方法适合什么样的人？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：315 万热度 · 分类：问答 · 更新：2026-10-01T13:59:53+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：398 万热度 · 分类：问答 · 更新：2026-10-01T21:03:07+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价 10月 1 日发布的华为Mate 90系列全系旗舰τ芯片，不同版本如何选择？”位列第 3 位，公开热度指标为 315 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“男子用土豆当主食半年瘦25斤，称脂肪肝没了，血压、血糖稳了，真的会这样吗？这种减肥方法适合什么样的人？”位列第 3 位，公开热度指标为 398 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月1日，华为Mate 90系列全系价格揭晓。华为Mate 90售价5999元起，华为Mate 90 Pro售价6999元起，华为Mate 90 Pro Max售价9499元起，华为Mate 90 Pro Max 典藏版售价10999元起，华为Mate 90 RS 非凡大师售价12999元起。 对于这五款机型，你有什么想说的？有何选购建议？
+来源公开摘要显示：广东汕头一位43岁的陈先生用土豆替代米饭、面条等精制主食，日常炒菜照常吃，坚持半年成功瘦掉25斤，原本超标的血压、血糖回归正常，困扰他的脂肪肝也大幅好转，这个低成本减脂方式近期走红网络，被网友称为最不痛苦、性价比最高的减肥方法。43岁男子用土豆当主食，半年瘦了25斤，脂肪肝没了，血压、血糖稳了
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [【什么是世面？？？】](shan-qing-shui-xiu.md)
-- [2025年全国办理结婚登记676.5万对](feng-he-ri-li.md)
-- [人一旦会穿搭](chun-nuan-hua-kai.md)
-- [华为Mate90售价5999元起](qiu-gao-qi-shuang.md)
+- [章鱼哥，快乐都去哪了呢？](shan-qing-shui-xiu.md)
+- [昔日明星电动车彻底卖不动了](feng-he-ri-li.md)
+- [高速服务区新能源车充电像排队打饭](chun-nuan-hua-kai.md)
+- [Mate90开售华为门店人从众](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [现在大家都把国庆当纯放假玩，有没有什么「老派」过节体验？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [前有张雪机车团队在意大利被盗，后有惠英红团队巴黎遇抢劫，为啥欧洲小偷都这么猖獗？海外遇抢劫该如何应对？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [如何看待江苏“十五五”规划提出支持南京大学、东南大学、苏州大学等高校建设世界一流大学？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [如何评价 10 月 1 号发布的 Gemini 4 Argon？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [我压根不担心火影里的忍者会出完](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [车企9月销量数据出炉，比亚迪超46万，小米交付超4万台，理想、深蓝交付超3万台，怎样解读各家表现？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [伏地魔为什么非得找有名的东西做魂器？他随便找块石头做成魂器扔海里不行吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [冯巩中网赛场高喊“想死你们啦”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [猪油真是血管“杀手”吗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [三大运营商全面叫停金融分期「0 元购机」业务，背后有哪些深层原因？已经办理的用户该怎么办？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [演员蓝琪因胰脏癌逝世](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [既然永动机不存在，为何地球自转了45亿年，是什么力量在起作用？](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [2025年全国办理结婚登记676.5万对](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [二洲年庆典｜二洲年音乐会](http://www.daogukj.com/8743466)
-- [蔚来与吉利充换电互通意味着什么](http://www.daogukj.com/6087099)
-- [全 网 最 漫 长 的 动 画 教 程 4.5](http://www.daogukj.com/8759192)
-- [清澈的爱只为中国](http://www.daogukj.com/nzlnmzmb/)
-- [我爱你中国！庆祝新中国成立77周年](http://www.daogukj.com/6882941)
-- [什么叫勇者跟被救的公主二阶段打起来了？](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [读者发现番茄小说流量跌跌不休，24年下滑31%，25年下滑26%，今年下滑22%，为什么会出现这情况？](http://www.daogukj.com/9154473)
-- [80岁爷爷天安门看升旗连说三声高兴](http://www.daogukj.com/4411404)
-- [“葡式步操”永远成为历史](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [哈夫克保险小队全点位来啦！没拿到吴彦祖之镜的抓紧！还送嘉豪的小曲哦！](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [张凌赫拍的国旗](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [天安门前看升旗队伍一眼望不到头](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [被天安门广场大合唱戳到了](http://www.daogukj.com/aztauuey/)
-- [淡淡妈妈为张家齐妈妈鸣不平](http://www.daogukj.com/7343685)
-- [闫妮坦言一直单身：不介意相亲](http://www.daogukj.com/dhbposmt/)
-- [主持人阿丘被通报](http://www.daogukj.com/1538095)
-- [华为Mate90系列价格](http://www.daogukj.com/uznikqxj/)
-- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](http://www.daogukj.com/5158126)
-- [我压根不担心火影里的忍者会出完](http://www.daogukj.com/3616935)
-- [村田晃大不认罪](http://www.daogukj.com/pfvjuanz/)
-- [喝无醇啤酒开车不算酒驾？不实](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [兄弟如手足](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [日漫花千股 天才交易员](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [孙中山在全世界华人中的地位，凭什么那么高？【历史调研室107】](http://www.daogukj.com/asaygxgb/)
-- [天安门广场国庆升旗仪式](http://www.daogukj.com/zxvfwrkb/)
-- [媒体：旅客至上不等于“机闹至上”](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [为什么没有经历过那个时代听《我的祖国》也就是那首“一条大河波浪宽”那首歌竟然感动的哭了？](http://www.daogukj.com/7717389)
-- [内蒙古野生卤虫，真红啊！](http://www.daogukj.com/9746581)
-- [亚运国足：进一寸有进一寸的欢喜](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [如何评价 10 月 1 号发布的 Gemini 4 Argon？](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [特朗普称美发动伊拉克战争决策糟糕](http://www.daogukj.com/7650204)
-- [张译在人民日报撰文](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [范丞丞在热搜看张凌赫王楚然的剧](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [“比亚迪不是特斯拉对手”应验了吗](http://www.daogukj.com/0995452)
-- [小心！这个MC生物可以吞掉一切方块！](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [女装信任市场崩溃商家改用防拆带](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [伊朗货币跌至历史新低，但股市却大涨，为何会出现这种反差？背后的经济、金融逻辑是什么？](http://www.daogukj.com/fivnrrsp/)
-- [前有张雪机车团队在意大利被盗，后有惠英红团队巴黎遇抢劫，为啥欧洲小偷都这么猖獗？海外遇抢劫该如何应对？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [小米汽车](http://www.daogukj.com/hldbetht/)
-- [不会穿搭的人建议反复观看](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [男子连续11年进京观看国庆升旗仪式](http://www.daogukj.com/phqakpps/)
-- [新能源车维修到底贵在哪](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [中国两只大熊猫抵美让日媒集体破防](http://www.daogukj.com/adpyviat/)
-- [全力夺取粮食丰收到手](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [女子称去KTV后三台手机拍照出现紫斑](http://www.daogukj.com/1571628)
-- [农民交公粮能否视同缴社保](http://www.daogukj.com/9492876)
+- [天安门前看升旗队伍一眼望不到头](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [忙活了20个小时炸了47盘的护：打完这单妻离子散，兄弟反目成仇了](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [昔日明星电动车彻底卖不动了](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [如何实现财务自由？](http://www.daogukj.com/8743466)
+- [家长千万不要辞职陪读](http://www.daogukj.com/6087099)
+- [鸿蒙智行问界业务升级](http://www.daogukj.com/8759192)
+- [国庆假期流动的中国具象化了](http://www.daogukj.com/nzlnmzmb/)
+- [中国人专属仪式感](http://www.daogukj.com/6882941)
+- [现代的数学研究抽象到了哪种地步？](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [101岁老兵天安门看升旗大喊4个万岁](http://www.daogukj.com/9154473)
+- [白鹿马甲线](http://www.daogukj.com/4411404)
+- [我和我的室友们](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [如果设计一款【​打BOSS时PVE，打完之后PVP争夺BOSS奖励】的游戏，有搞头吗？](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [车主等3小时掐点下高速省257元](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [都什么年代，谁还走传统西游路？！！](http://www.daogukj.com/aztauuey/)
+- [央视国庆晚会节目单](http://www.daogukj.com/7343685)
+- [【复刻还原】最终鬼畜阿哈哈](http://www.daogukj.com/dhbposmt/)
+- [如何评价微软于2026年9月30日发布的WSL 3.0？](http://www.daogukj.com/1538095)
+- [爸爸扛60多斤女儿30多分钟看升旗](http://www.daogukj.com/uznikqxj/)
+- [如何评价《崩坏星穹铁道》角色：斯科特？](http://www.daogukj.com/5158126)
+- [三大运营商全面叫停金融分期「0 元购机」业务，背后有哪些深层原因？已经办理的用户该怎么办？](http://www.daogukj.com/3616935)
+- [C罗离开后葡萄牙队7号球衣光速易主](http://www.daogukj.com/pfvjuanz/)
+- [新疆光伏工地被环保罚50万？假的](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [如果星舰掉下来刚好砸到纽约中央公园，会有多严重？](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [华为Mate90系列售价5999元起，余承东称「在内存大涨价的今天，定价很有诚意」，怎样看待这一定价？](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [周扬青自曝脸馒化了](http://www.daogukj.com/asaygxgb/)
+- [华为与赛力斯达成新五年合作](http://www.daogukj.com/zxvfwrkb/)
+- [大堵车](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [绵阳越王楼将被拆除？不实](http://www.daogukj.com/7717389)
+- [绝密重庆之旅！！居然当街挑战折耳根咖啡！？](http://www.daogukj.com/9746581)
+- [山东文旅疑似喝多了](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [猪油真是血管“杀手”吗](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [余承东：华为已实现连续可变光圈](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [金价再度直线跳水](http://www.daogukj.com/7650204)
+- [树的世界](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [葡媒：C罗的国家队生涯或就此落幕](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [祝福祖国！天安门广场举行国庆升旗仪式](http://www.daogukj.com/0995452)
+- [张本智和被文春爆出私下频繁搭讪女性，酒后会爆粗，是真的吗？具体是咋回事？](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [燊是赌王把自己名字送给长孙继承](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [原来升旗仪式是这样切换的](http://www.daogukj.com/fivnrrsp/)
+- [伏地魔为什么非得找有名的东西做魂器？他随便找块石头做成魂器扔海里不行吗？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [香港举行国庆烟花汇演](http://www.daogukj.com/hldbetht/)
+- [吴宜泽vs沃顿](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [韬定律＋逻辑折叠真的来了！麒麟9050Pro表现到底怎么样](http://www.daogukj.com/phqakpps/)
+- [高市早苗真没啥面](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [如何看待华为、赛力斯达成新五年合作：共同升级问界业务推动品牌向上，余承东与张兴海出席签约？](http://www.daogukj.com/adpyviat/)
+- [五星红旗映亮万里山河](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [数万人奔赴长江边看武汉烟花秀](http://www.daogukj.com/1571628)
+- [原央视主持人阿丘回应被通报](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [如何评价 10月 1 日发布的华为Mate 90系列全系旗舰τ芯片，不同版本如何选择？](https://www.zhihu.com/question/2088956328886678092)
+- [男子用土豆当主食半年瘦25斤，称脂肪肝没了，血压、血糖稳了，真的会这样吗？这种减肥方法适合什么样的人？](https://www.zhihu.com/question/2088884615444543375)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d99f8627ec0fbcadfad7 -->
+<!-- content-fingerprint: 39f5d590c8df255163e7 -->
