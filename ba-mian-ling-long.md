@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 新华社：0:5给中国足球的又一记警钟
+# 网友称纹身是免疫细胞一辈子的战斗，这是真的吗？对健康会有哪些影响？
 
-> 来源：今日头条热榜 · 排名：第 2 位 · 热度：29338715 · 分类：热门事件 · 更新：2026-10-03T16:27:10+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：406 万热度 · 分类：问答 · 更新：2026-10-03T21:39:23+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“新华社：0:5给中国足球的又一记警钟”位列第 2 位，公开热度指标为 29338715，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“网友称纹身是免疫细胞一辈子的战斗，这是真的吗？对健康会有哪些影响？”位列第 2 位，公开热度指标为 406 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：[视频]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [你是否曾因为一个很小、很具体的念头，专程去过一个地方？](jiu-niu-yi-mao.md)
-- [砸3700亿，给韩国放朝鲜国歌，印度都嫌弃的日本亚运有多烂？](shi-quan-shi-mei.md)
-- [游客眼里的中国范儿](bai-fa-bai-zhong.md)
-- [国庆商圈大屏礼赞时代脊梁](qian-jun-wan-ma.md)
+- [4名枪匪闯入豪宅，中国男子4秒13枪疯狂反击！](jiu-niu-yi-mao.md)
+- [国庆长假自驾出行 怎么开才安全](shi-quan-shi-mei.md)
+- [中国队创亚运境外参赛金牌新纪录](bai-fa-bai-zhong.md)
+- [家国长歌](qian-jun-wan-ma.md)
 
 ## 站内推荐
 
-- [新华社：留给中国女足的时间不多了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [国足开球踢给巴勒斯坦 解说懵圈](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [董路：国足踢日本可能要输0比15](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [台媒：“台独”是统一最大障碍](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [普京赞中俄友好是全球重要稳定因素](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [七国集团将释放 1 亿桶战略石油储备，会带来哪些影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [为何家用WiFi总觉得2.4G反而快于5G，这是我的错觉吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [如何评价极客湾最新视频《逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？》？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [理论上讲XX是女性染色体，那为什么YY不是男性染色体，必须是XY？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [作为一个普通人如何改变自己的命运？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【功夫女足】至尊无敌杯开赛！](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
-- [闲鱼 黑话](http://www.daogukj.com/ugtzcfro/)
-- [自驾回家车主：回程或要弃车打飞的](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
-- [朝鲜：永远关闭南部边境避免接触韩国](http://www.daogukj.com/vcakiegu/)
-- [田馥甄曾因立场争议作品下架](http://www.movie.hkepx.cn/xiju/3609316.htm)
-- [普京称西方直接卷入对俄战争](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
-- [新华社：留给中国女足的时间不多了](http://www.daogukj.com/0764598)
-- [女子驾驶摩托别车遭脚踹 警方查处](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
-- [原来出餐快也不一定就是预制菜](http://www.daogukj.com/4164218)
-- [《重生2》会是国庆档最大黑马吗](http://www.daogukj.com/8982602)
-- [「雨爱 (司凤版)」|“邦吧邦吧邦吧”| "听完感觉老通透了"](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
-- [EDG zmjjkk](http://www.movie.hkepx.cn/xiju/4720013.htm)
-- [砸3700亿，给韩国放朝鲜国歌，印度都嫌弃的日本亚运有多烂？](http://www.daogukj.com/zaulbsuv/)
-- [国足想通过比赛找信心没想反崩了盘](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
-- [危险！胃险？薇险！【手搓动画大赛】](http://www.daogukj.com/gbkfzcnu/)
-- [中国创亚运会境外参赛金牌最好成绩](http://www.movie.hkepx.cn/movie/7973247.htm)
-- [U23国足铜牌](http://www.daogukj.com/bdilzxjd/)
-- [王钰栋铜牌战世界波](http://www.movie.hkepx.cn/xiju/6416942.htm)
-- [欧美演员的私生活争议会影响你对其作品的评价吗？](http://www.daogukj.com/rioupnlf/)
-- [国足开球踢给巴勒斯坦 解说懵圈](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
-- [国足赛后谢场遭现场球迷怒斥](http://www.daogukj.com/4038825)
-- [中国夫妇刚拿澳洲绿卡车祸身亡](http://www.movie.hkepx.cn/xiju/1465121.htm)
-- [这些信号是肺部发出的预警](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
-- [古罗马重口生活实录——两千年前庞贝古城的真实日常，刷新你对古罗马的认知，很多习俗放到今天完全无法想象。](http://www.movie.hkepx.cn/movie/3433204.htm)
-- [网友称纹身是免疫细胞一辈子的战斗，这是真的吗？对健康会有哪些影响？](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
-- [董路：国足踢日本可能要输0比15](http://www.movie.hkepx.cn/movie/2806122.htm)
-- [啥叫过度女性化啊申公豹版](http://www.movie.hkepx.cn/xiju/8259656.htm)
-- [2026 年国庆档总票房破 4 亿，陈思诚《神探之痕迹》领跑，你更看好哪部电影？](http://www.daogukj.com/1174569)
-- [游客眼里的中国范儿](http://www.movie.hkepx.cn/movie/6697492.htm)
-- [中国U23国足遭乌兹别克绝平](http://www.movie.hkepx.cn/xiju/5943289.htm)
-- [为什么王祖贤、吴彦祖、陈冠希这些淡出演艺圈的明星，最近又活跃起来了？是北美华人圈出了什么事吗？](http://www.movie.hkepx.cn/movie/8569024.htm)
-- [网友质疑国足0比5惨败却让17岁小将赵松源接受采访，如何看待这种安排？是有意为之吗？](http://www.daogukj.com/pftujnfw/)
+- [“到了点球大战 谁能赢得了我们”](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
+- [有人被水猴子吸干血？警方辟谣](http://www.daogukj.com/ugtzcfro/)
+- [中国队169金89银83铜](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
+- [你是否曾因为一个很小、很具体的念头，专程去过一个地方？](http://www.daogukj.com/vcakiegu/)
+- [韩媒感叹中国亚运每天都是金牌日](http://www.movie.hkepx.cn/xiju/3609316.htm)
+- [六神是怎么做到在花露水市场常年稳居第一的？甚至有不少人除了六神好像都不了解其他的花露水品牌？](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
+- [七国集团将释放 1 亿桶战略石油储备，会带来哪些影响？](http://www.daogukj.com/0764598)
+- [EDGM战胜JDG](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
+- [中国游客遍布全球释放什么信号](http://www.daogukj.com/4164218)
+- [《给阿嬷的情书》院线下映，累计票房20.05亿，观影人次5881.9万，如何评价这一成绩？](http://www.daogukj.com/8982602)
+- [野人NPC日薪200元 体验者：累并快乐着](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
+- [郑丽文亮明一中立场抓住中间选民领跑](http://www.movie.hkepx.cn/xiju/4720013.htm)
+- [国庆长假自驾出行 怎么开才安全](http://www.daogukj.com/zaulbsuv/)
+- [你知道哪些顶级食材？](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
+- [中俄等8国战略演习 普京前往视察](http://www.daogukj.com/gbkfzcnu/)
+- [男子回应走应急车道被罚6000](http://www.movie.hkepx.cn/movie/7973247.htm)
+- [爬珠峰的人都堵了](http://www.daogukj.com/bdilzxjd/)
+- [对手因伤退赛郑钦文中网晋级](http://www.movie.hkepx.cn/xiju/6416942.htm)
+- [根本就没有这种军训](http://www.daogukj.com/rioupnlf/)
+- [为何家用WiFi总觉得2.4G反而快于5G，这是我的错觉吗？](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
+- [国足 U23 屡创佳绩，关键胜因是什么？这支年轻球队正在发生哪些变化？能给中国足球带来更多可能吗？](http://www.daogukj.com/4038825)
+- [韩国“梦之队”完败给中国队](http://www.movie.hkepx.cn/xiju/1465121.htm)
+- [郑钦文即时排名重返前50](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
+- [越来越多小城“通飞机”了](http://www.movie.hkepx.cn/movie/3433204.htm)
+- [当你穿进老钱班36](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
+- [如何评价极客湾最新视频《逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？》？](http://www.movie.hkepx.cn/movie/2806122.htm)
+- [小沈阳回应肿成蜜蜂小狗](http://www.movie.hkepx.cn/xiju/8259656.htm)
+- [如何用5分钟让听日语歌的和唱中文歌的都沉默☝️](http://www.daogukj.com/1174569)
+- [中国队创亚运境外参赛金牌新纪录](http://www.movie.hkepx.cn/movie/6697492.htm)
+- [16岁孙心然中网两连胜将战高芙](http://www.movie.hkepx.cn/xiju/5943289.htm)
+- [从今往后，我只吃小孩菜](http://www.movie.hkepx.cn/movie/8569024.htm)
+- [我的老师竟然是二次元！！](http://www.daogukj.com/pftujnfw/)
 - [小沈阳夫妇逆袭成国庆档票房黑马](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
-- [你敢信？我在太平洋赶海竟然发现上百斤重的巨型砗磲！这么大的家伙，吃起来什么味道？](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
-- [一座商场挤停了一个地铁站](http://www.movie.hkepx.cn/movie/7912436.htm)
-- [国足2比1乌兹别克斯坦](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
-- [2026内娱谁升咖了](http://www.daogukj.com/acaxfgrw/)
-- [《明日方舟》SideStory「昨日海」活动宣传PV](http://www.movie.hkepx.cn/xiju/9771788.htm)
-- [【独家】《凡人修仙传之慕兰之战》第18集【总第194集】](http://www.daogukj.com/8766336)
-- [如何评价极客湾最新视频《逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？》？](http://www.movie.hkepx.cn/movie/9431364.htm)
-- [【水手】|“低山臭水遇知音 末法时代双子星”|【双子星の小曲】](http://www.movie.hkepx.cn/xiju/8826039.htm)
-- [四川一公司国庆节不放假被举报不实](http://www.daogukj.com/8892908)
-- [小沈阳夫妇 国庆档黑马](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
-- [“昼游夜行” 跳城游火了](http://www.movie.hkepx.cn/movie/0328456.htm)
-- [国足2比2平乌兹别克斯坦](http://www.daogukj.com/8247088)
-- [理论上讲XX是女性染色体，那为什么YY不是男性染色体，必须是XY？](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
-- [【纪录片】威尔史密斯的极地纵横 01 南极探险](http://www.daogukj.com/8583894)
-- [我的东京留学生活不可能那么二次元！【AI全民制作人】](http://www.daogukj.com/5838795)
-- [飞十几个小时落地听到的都是中国话](http://www.daogukj.com/mrhwajew/)
-- [亚运男足铜牌争夺战，中国 U23 点球 4-3 乌兹别克斯坦 U23，获得铜牌，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/8871014.htm)
+- [73岁大爷心脏长反 每天乱跳超3万次](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
+- [中国队169金89银83铜收官](http://www.movie.hkepx.cn/movie/7912436.htm)
+- [中国队亚运169金收官](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
+- [安东尼奥：此刻我是最幸福的教练](http://www.daogukj.com/acaxfgrw/)
+- [中国男足时隔28年再夺亚运铜牌](http://www.movie.hkepx.cn/xiju/9771788.htm)
+- [知识以流口水的方式出现了](http://www.daogukj.com/8766336)
+- [人狐情未了！谁不想要一个狐仙女友啊！](http://www.movie.hkepx.cn/movie/9431364.htm)
+- [金价银价“巨震”](http://www.movie.hkepx.cn/xiju/8826039.htm)
+- [田馥甄亲手毁掉了自己的演艺生涯](http://www.daogukj.com/8892908)
+- [消散对白 好听](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
+- [U23国足铜牌](http://www.movie.hkepx.cn/movie/0328456.htm)
+- [新华社：0:5给中国足球的又一记警钟](http://www.daogukj.com/8247088)
+- [ピノキオピー - えねみぃ feat. 初音ミク・重音テト](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
+- [“水猴子拖人下水淹死”系谣言](http://www.daogukj.com/8583894)
+- [国足夺铜牌 安东尼奥抱起李昊欢呼](http://www.daogukj.com/5838795)
+- [内娱编剧写不好低学历女主了](http://www.daogukj.com/mrhwajew/)
+- [《霸凌の意志》](http://www.movie.hkepx.cn/movie/8871014.htm)
 
 </details>
 
 ## 原始来源
 
-- [新华社：0:5给中国足球的又一记警钟](https://www.toutiao.com/trending/7692070165018296383/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227692070165018296383%22%2C%22hot_board_impr_id%22%3A%22202610031627087CB88F6C357B03B5A385%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [网友称纹身是免疫细胞一辈子的战斗，这是真的吗？对健康会有哪些影响？](https://www.zhihu.com/question/2089414718989365661)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2a48f7e8f8918a12733a -->
+<!-- content-fingerprint: bdd5d7d9fdf6505ed9c0 -->
