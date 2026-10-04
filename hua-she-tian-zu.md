@@ -2,11 +2,11 @@
 
 # 10万游客涌入小县城 文旅局长给铺床
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7808877 · 更新：2026-10-04T22:34:28+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7808904 · 更新：2026-10-05T02:23:15+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“10万游客涌入小县城 文旅局长给铺床”位列第 1 位，公开热度指标为 7808877。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“10万游客涌入小县城 文旅局长给铺床”位列第 1 位，公开热度指标为 7808904。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：10月3日，超10万游客涌入仅5万人口的青海祁连县，酒店民宿全部满房，当地紧急开放学校宿舍免费安置近500名无住宿游客，文旅局长给游客铺床，游客直呼暖心。
 
@@ -18,18 +18,18 @@
 
 ## 相关热点
 
-- [终于明白火锅店不爱洗豆芽的原因了](yi-xin-yi-yi.md)
+- [年轻人开始不买景区冤种三件套了](yi-xin-yi-yi.md)
 - [第20届亚运会闭幕](san-xin-er-yi.md)
 - [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](si-hai-wei-jia.md)
-- [“这将是一场漫长的别离，在你再次见到我之前.”【Never see me again】【遗忘の小曲】](wu-gu-feng-deng.md)
+- [Mili - Rendezvous（密会）【边狱巴士】](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
 - [全国客流持续高位运行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [德约科维奇2比1兹维列夫](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [蔡康永](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [王祖贤大粉脱粉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [王曼昱3比0王艾米](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [吴宜泽击败袁思俊夺冠](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [国庆出行警惕票务诈骗陷阱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [广西涠洲岛海域出现“三龙吸水”奇观](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [雷军一口气刷完7期民间拆车视频](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -37,55 +37,55 @@
 <summary>展开更多相关内容</summary>
 
 - [第20届亚运会闭幕](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [奥黛塔，快跟沃来比赛吧！](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [赵家驹回应身价破千万：我接得住](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [到底该怎么跟同事相处？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [没人住的老房子 为什么老的快](http://www.daogukj.com/ihcjjgzd/)
-- [现在再看，这些话全都是作者对妹妹的思念](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [为什么发现现在番茄ai文越来越多了？](http://www.daogukj.com/hytgpxub/)
-- [韩乔生谈王楚钦登海报：有啥争议的](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [评分4.7！神人多！神人神！神人又多又神！MewType梦限大完结吐槽！](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [看完不笑的可以确诊为抑郁了](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [“这将是一场漫长的别离，在你再次见到我之前.”【Never see me again】【遗忘の小曲】](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [Re:佩恩从零开始的异世界生活！！！【水门篇 下 】](http://www.daogukj.com/8357764)
-- [中国正编织六张超级大网](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [任嘉伦 红果短剧](http://www.daogukj.com/rdfrumhx/)
-- [【剧情】终极一班4（2016）01【曾沛慈 / 罗宏正】](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [贵州晴隆回应“抗战公路圈起来收费”](http://www.daogukj.com/lntrsvpz/)
-- [日本197人专案组抓捕驻日美军士兵](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [四川地震](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [中国人开始放心开电车跑长途了吗](http://www.daogukj.com/mofrooiq/)
-- [首尔大规模示威反对李在明](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [全世界都在找中国游客拍照](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [西安肉夹馍师傅已忙到3秒夹一个](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [粤J2888T来老君山了](http://www.daogukj.com/8424365)
+- [为什么感觉现在的东西越来越便宜呢？](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [亚连有点强度都在斩杀上了](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [“China Haul”为何兴起](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [【抢先版】刑满释放遇女友，我被哄骗踏入缅北炼狱！！！](http://www.daogukj.com/ihcjjgzd/)
+- [如何评价上海一音乐教师赴泰后失联多日，手机 IP 曾显示在缅甸？目前情况如何？](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [中国人开始放心开电车跑长途了吗](http://www.daogukj.com/hytgpxub/)
+- [研二女生坠楼疑因导师压力](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [德国教材「很多中国人没有汽车，出行靠自行车或步行」等内容引争议，这真是现行教材吗？为何会出现这种错误？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [Mili - Rendezvous（密会）【边狱巴士】](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [今年亚运会哪一场比赛最让你热血沸腾？](http://www.daogukj.com/8357764)
+- [中国红闪耀亚运闭幕式](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [官方通报“阿尔山景区200一晚酒店”](http://www.daogukj.com/rdfrumhx/)
+- [湖北襄阳夜游太火了](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [晋妈称感谢崔晋而非李勒优](http://www.daogukj.com/lntrsvpz/)
+- [好歌](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [永州站手动翻牌火了：一朝手搓天下知](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [蔡康永](http://www.daogukj.com/mofrooiq/)
+- [蔡康永现身台独分子竞选会场](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [看完不笑的可以确诊为抑郁了](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [央视迎来新主播](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [高市早苗强烈要求美方配合调查](http://www.daogukj.com/8424365)
 - [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [可恶的蚊子你也有今天](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [《舌尖上的国庆高速堵车》](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [善良的爷爷与画钱的小孩](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [王曼昱回应15分钟速胜](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [为什么很多人一直学习教育孩子的方法，却还是教育不好自己的孩子？](http://www.daogukj.com/4727274)
-- [如何看待2026年10月米哈游《原神》死之执政若娜瓦立绘？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [中国体育代表团蝉联金牌榜榜首](http://www.daogukj.com/2266153)
-- [江苏高速临时开放500公里应急车道](http://www.daogukj.com/3795795)
-- [星巴克化身星巴扎扎了谁的心](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [民进党危险驱离大陆渔船 媒体发声](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [百慕大飞波士顿失联飞机残骸已找到](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [2026 赛季 F1 巴林大奖赛马来西亚站，维斯塔潘夺冠，勒克莱尔第四，如何评价本场比赛？](http://www.daogukj.com/uhjkuxrm/)
-- [国庆出行警惕票务诈骗陷阱](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [男足亚运摘铜登上《新闻联播》](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [王曼昱3比0王艾米](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [如何看待10月3日《思想耀岭南》对话库洛游戏CEO刘胜，提到中国未来的好游戏大概率会出自广东？](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [《依旧忆苦思甜》](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [国产旗舰新机集体涨价后 iPhone 销量反弹，导致这一现象的原因是什么？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [国庆高速电车充电排队几小时，甚至电量1%趴窝，电车长途真的不适合节假日跑高速吗？](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [如何看待昆明力争 2026年 11 月份开始逐步试点开放滇池专门游泳区域？](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [康康 EDG](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [台当局危险驱离大陆渔船致船只受损](http://www.daogukj.com/4727274)
+- [多人练“闪身步”进医院](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [肖战生日](http://www.daogukj.com/2266153)
+- [善良的爷爷与画钱的小孩](http://www.daogukj.com/3795795)
+- [奥黛塔，快跟沃来比赛吧！](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [2026 赛季 F1 巴林大奖赛马来西亚站，维斯塔潘夺冠，勒克莱尔第四，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [女特警礼貌拒绝老外过于热情的动作](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [余承东：华为已量产381款韬芯片](http://www.daogukj.com/uhjkuxrm/)
+- [现在再看，这些话全都是作者对妹妹的思念](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [高市早苗称已向美国提出强烈抗议](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [雷军一口气刷完7期民间拆车视频](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [换汤不换药的AI短剧还能“不烧心”吗](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [全球排名第二高铁！经济座 VS 商务座！什么体验？高铁餐吃什么？](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
 - [【独家】牧神记 第103集 温酒](http://www.daogukj.com/5905118)
-- [感觉现在自己工资好低，只能生存怎么办？](http://www.daogukj.com/gchjscql/)
+- [张雪谈国足0比5不敌巴勒斯坦](http://www.daogukj.com/gchjscql/)
 - [中国健儿追梦之路永不停歇](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [飞天奖](http://www.daogukj.com/9269800)
-- [张本美和说通过休息调整状态](http://www.daogukj.com/7091853)
-- [婚后未领证就分手18万彩礼怎么办](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [你对于 2026 年诺贝尔生理学或医学奖的预测是什么？](http://www.daogukj.com/2402025)
-- [德约阻止兹维列夫冲击世界第一](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [张家齐发了与妈妈合照](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [赵心童吴宜泽世界排名前二](http://www.daogukj.com/9269800)
+- [李勒优说没有一个地方是属于我的归属](http://www.daogukj.com/7091853)
+- [德约科维奇晋级中网四强](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [男足亚运摘铜登上《新闻联播》](http://www.daogukj.com/2402025)
+- [日本197人专案组连夜抓捕驻日美士兵](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [超10万份孕妇血样被偷运出境](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f3e7f75ccc9e35215fbc -->
+<!-- content-fingerprint: e5fb11a297aa74406ef9 -->
