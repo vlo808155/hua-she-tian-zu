@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 中国健儿追梦之路永不停歇
+# 全国客流持续高位运行
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7618618 · 更新：2026-10-04T16:50:40+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7615723 · 更新：2026-10-04T22:34:28+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中国健儿追梦之路永不停歇”位列第 2 位，公开热度指标为 7618618。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“全国客流持续高位运行”位列第 2 位，公开热度指标为 7615723。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：本届名古屋亚运会中国代表团共收获169枚金牌、89枚银牌、83枚铜牌，以金牌榜、奖牌榜首位结束了亚运之旅。341枚奖牌中，既有辉煌的延续，也有对遗憾的弥补，更多的则是一张张新面孔的横空出世……老将书写坚守，新秀带来惊喜，每一位健儿都用自己的拼搏诠释了何为热爱。
+来源公开摘要显示：国庆假期第四天，全国交通客流继续保持高位运行。铁路、公路、水路等部门及时增加运力、优化服务，全力保障旅客安全顺畅出行。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [假期出游赴山河之约](qian-jun-wan-ma.md)
-- [多地深度游、主题玩法花式“上新”](wan-zi-qian-hong.md)
-- [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](niao-yu-hua-xiang.md)
-- [自学动画 爆肝俩月 自创一集《海绵宝宝》【手搓动画大赛】](shan-qing-shui-xiu.md)
+- [中国正编织六张超级大网](qian-jun-wan-ma.md)
+- [中国健儿追梦之路永不停歇](wan-zi-qian-hong.md)
+- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](niao-yu-hua-xiang.md)
+- [《依旧忆苦思甜》](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [张展硕7金无缘亚运会MVP](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [停止做这4件事 血管就能老得慢一点](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [余承东：没想到工作备注比正文还抢镜](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [日本向美方提出抗议](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [姚明妻女在上海被偶遇](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [10万游客涌入小县城 文旅局长给铺床](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [吴宜泽击败袁思俊夺冠](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [飞天奖](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [崔晋 李勒优](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [李勒优 接受一切事与愿违](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [王励勤：中国乒乓使命不只是争金夺银](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [为什么现在下属越来越不尊重领导了，你说一句，他顶10句？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
 - [如何评价上海一音乐教师赴泰后失联多日，手机 IP 曾显示在缅甸？目前情况如何？](http://www.daogukj.com/nksrlhgk/)
-- [余承东：没想到工作备注比正文还抢镜](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [张展硕7金陪跑汶颂2金MVP](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [网红慧慧饱饱被封号 巅峰期年入千万](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [Re:佩恩从零开始的异世界生活！！！【水门篇 下 】](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [十几岁孩子一点小事就暴躁易怒，根源真的只是叛逆吗？](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [调休连续上学12天，这是他身体发生的变化](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [我记得课本里的新疆，不是这样的啊？？](http://www.daogukj.com/7870973)
-- [萨巴伦卡爆冷出局](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [“这将是一场漫长的别离，在你再次见到我之前.”【Never see me again】【遗忘の小曲】](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [《变形计》最暖售后疑翻车](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [百慕大起飞失联飞机空管录音曝光](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [【剧情】终极一班4（2016）01【曾沛慈 / 罗宏正】](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [如何看待深圳一车主连续两次占用应急车道，被按深圳特区法规罚 6000 元？你支持全国推广吗？](http://www.daogukj.com/7724801)
-- [中网再爆大冷门](http://www.daogukj.com/oxaknnjh/)
-- [中美俄领导人2022年后将首次同框](http://www.daogukj.com/kxqitgac/)
-- [假期出游赴山河之约](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [亚连有点强度都在斩杀上了](http://www.daogukj.com/eymoxoal/)
-- [我家那闺女从哪找来这么多神人父母](http://www.daogukj.com/sblnbief/)
-- [你最难忘的出差经历是什么？](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [如何看待巴勒斯坦球员因一个拇指向下的争议手势向国足道歉，澄清并无不敬之意？](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [张家齐妈妈看见张家齐就哭「我觉得你会不要我」，这是一种什么心理？为什么很多父母年纪大了会对子女更温和？](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [现在再看，这些话全都是作者对妹妹的思念](http://www.daogukj.com/mqwqpttl/)
-- [韩国网友不满亚运夺金免兵役](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [这趟绿皮车1年亏400多万元为何还开](http://www.daogukj.com/dubydsdf/)
-- [不不不，我不是在剪着玩，结尾就会知道了](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [多人练“闪身步”进医院](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [LACOSTE大秀](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [自学动画 爆肝俩月 自创一集《海绵宝宝》【手搓动画大赛】](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [余承东 余总转发文案](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [崔晋 李勒优](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [姚明妻女在上海被偶遇](http://www.daogukj.com/oioomhrz/)
-- [张家齐明确表示母女关系不可能修复了，关键原因在哪？如何评价节目里母女这顿饭的交流？](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [这才是真正的音乐啊😇](http://www.daogukj.com/btwajvnj/)
-- [董宇辉《兰知春序音乐会》西安开演](http://www.daogukj.com/8398590)
-- [药品开封后没过期就能接着吃？误区](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [李昊回应水瓶被扔：反正他们踢不进](http://www.daogukj.com/4390556)
-- [迪士尼退票要求消费者证明是朋友](http://www.daogukj.com/skeidyel/)
-- [景区文创陷入「冤种三件套」，从护手霜到冰箱贴，为啥文创越来越同质化？怎样的景区文创才能让你愿意买单？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [凌玲：不气盛叫年轻人吗！](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [韩国U23球员光速道歉](http://www.daogukj.com/jdhlltmp/)
-- [亚运会闭幕式](http://www.daogukj.com/inrtjmju/)
-- [99%中国人没来过的世界最高国门！千万不要随便奔跑！](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [男足亚运摘铜登上《新闻联播》](http://www.daogukj.com/9107163)
-- [泰国媒体提前剧透汶颂力压张展硕获得亚运会MVP，如何评价？](http://www.daogukj.com/ypwsrnna/)
-- [今年亚运会哪一场比赛最让你热血沸腾？](http://www.daogukj.com/7314066)
-- [王祖贤大粉脱粉](http://www.daogukj.com/3027269)
-- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](http://www.daogukj.com/5993003)
+- [飞天奖](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [婚后未领证就分手18万彩礼怎么办](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [任嘉伦 红果短剧](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [亚运银牌 回家也得掰苞米](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [如何看待2026年10月米哈游《原神》死之执政若娜瓦立绘？](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [江苏高速临时开放500公里应急车道](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [比《2001太空漫游》更加深邃？逐帧解析史上最诗意科幻片《索拉里斯》](http://www.daogukj.com/7870973)
+- [景区文创陷入「冤种三件套」，从护手霜到冰箱贴，为啥文创越来越同质化？怎样的景区文创才能让你愿意买单？](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [小孩哥在花坛发现2枚恐龙蛋化石](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [德约中网四分之一决赛](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [男足亚运摘铜登上《新闻联播》](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [民进党危险驱离大陆渔船 媒体发声](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [2027 年泰晤士大学排名出炉，清华首次超越欧洲大陆所有高校，有哪些信息值得关注？](http://www.daogukj.com/7724801)
+- [赵家驹回应身价破千万：我接得住](http://www.daogukj.com/oxaknnjh/)
+- [到底该怎么跟同事相处？](http://www.daogukj.com/kxqitgac/)
+- [中国正编织六张超级大网](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [国庆出行警惕票务诈骗陷阱](http://www.daogukj.com/eymoxoal/)
+- [张家齐发了与妈妈合照](http://www.daogukj.com/sblnbief/)
+- [为什么很多人一直学习教育孩子的方法，却还是教育不好自己的孩子？](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [看完不笑的可以确诊为抑郁了](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [《舌尖上的国庆高速堵车》](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [今天带小沈阳自律！](http://www.daogukj.com/mqwqpttl/)
+- [余承东：华为已量产381款韬芯片](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [巴厘岛情侣遇害案细节](http://www.daogukj.com/dubydsdf/)
+- [永州站手动翻牌火了：一朝手搓天下知](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [你对于 2026 年诺贝尔生理学或医学奖的预测是什么？](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [张本美和说通过休息调整状态](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [《依旧忆苦思甜》](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [首尔大规模示威反对李在明](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [国庆出行购票藏骗局？警惕诈骗陷阱](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [李勒优 接受一切事与愿违](http://www.daogukj.com/oioomhrz/)
+- [调休连续上学12天，这是他身体发生的变化](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [没人住的老房子 为什么老的快](http://www.daogukj.com/btwajvnj/)
+- [贵州晴隆回应“抗战公路圈起来收费”](http://www.daogukj.com/8398590)
+- [蔡康永](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [如何看待10月3日《思想耀岭南》对话库洛游戏CEO刘胜，提到中国未来的好游戏大概率会出自广东？](http://www.daogukj.com/4390556)
+- [王曼昱3比0王艾米](http://www.daogukj.com/skeidyel/)
+- [德国教材「很多中国人没有汽车，出行靠自行车或步行」等内容引争议，这真是现行教材吗？为何会出现这种错误？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [全世界都在找中国游客拍照](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [高市早苗强烈要求美方配合调查](http://www.daogukj.com/jdhlltmp/)
+- [德约科维奇2比1兹维列夫](http://www.daogukj.com/inrtjmju/)
+- [河南万岁山只见人不见“山”](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [粤J2888T来老君山了](http://www.daogukj.com/9107163)
+- [Re:佩恩从零开始的异世界生活！！！【水门篇 下 】](http://www.daogukj.com/ypwsrnna/)
+- [自学动画 爆肝俩月 自创一集《海绵宝宝》【手搓动画大赛】](http://www.daogukj.com/7314066)
+- [中国人开始放心开电车跑长途了吗](http://www.daogukj.com/3027269)
+- [奥黛塔，快跟沃来比赛吧！](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [中国健儿追梦之路永不停歇](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E5%81%A5%E5%84%BF%E8%BF%BD%E6%A2%A6%E4%B9%8B%E8%B7%AF%E6%B0%B8%E4%B8%8D%E5%81%9C%E6%AD%87&sa=fyb_news&rsv_dl=fyb_news)
+- [全国客流持续高位运行](https://www.baidu.com/s?wd=%E5%85%A8%E5%9B%BD%E5%AE%A2%E6%B5%81%E6%8C%81%E7%BB%AD%E9%AB%98%E4%BD%8D%E8%BF%90%E8%A1%8C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5f2fbbdfc67afda4bb08 -->
+<!-- content-fingerprint: 579289d58e0651aa7f2a -->
