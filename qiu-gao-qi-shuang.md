@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 缅北电诈回流人员自述被割肾经历
+# 被执行死刑的巫鸿明、白应苍出镜
 
-> 来源：今日头条热榜 · 排名：第 4 位 · 热度：12420843 · 分类：热门事件 · 更新：2026-10-05T14:08:49+08:00
+> 来源：今日头条热榜 · 排名：第 4 位 · 热度：22319776 · 分类：热门事件 · 更新：2026-10-05T22:44:02+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“缅北电诈回流人员自述被割肾经历”位列第 4 位，公开热度指标为 12420843，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“被执行死刑的巫鸿明、白应苍出镜”位列第 4 位，公开热度指标为 22319776，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [西游记里的人参果这么好，为什么妖怪不去抢？](bing-tian-xue-di.md)
-- [【春物语】我的婚后生活果然有问题 第1话：于是，结婚半年的两人还没叫过对方的名字。](ri-xin-yue-yi.md)
-- [缅北电诈头目现金多到发霉](hua-she-tian-zu.md)
-- [缅北电诈头目的钱多到发霉](yi-xin-yi-yi.md)
+- [如何评价 5 万人口的祁连县国庆迎 10 万游客，酒店民宿全满房，文旅局免费安置游客到学生宿舍？](bing-tian-xue-di.md)
+- [《我上哪给你整假的》](ri-xin-yue-yi.md)
+- [中国收废品的大爷可能已经赚翻了](hua-she-tian-zu.md)
+- [梅德韦杰夫伤到观众被判负](yi-xin-yi-yi.md)
 
 ## 站内推荐
 
-- [松岛辉空成史上最年轻男单世界第一](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [杨瀚森NBA去留的两本账](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [为什么感觉在店里喝到的茶叶，总比自己泡的好喝呢？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [9位华人科学家成诺奖热门人选](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [《龙餐馆》上映一个多月仍是前三](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [巨型“充电宝”驶进多地服务区](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [梅德韦杰夫击球伤到观众 直接被判负](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [中国航协：乘务员人格尊严不容践踏](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [一个直径十厘米的圆里可以不重叠地排列多少个边长一厘米的正方形？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [如何评价代露娃发烧向母亲求助却被反问「别人能行你咋不行」？暴露了这段母女关系中哪些问题？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [蔡康永现身台独分子竞选会场](http://www.movie.hkepx.cn/xiju/0178022.htm)
-- [缅北电诈头目家中钱多到发霉](http://www.play.hengshemaoyi.cn/xiju/5046145.htm)
-- [《大回忆时代》战斗篇](http://www.play.hengshemaoyi.cn/xiju/9800998.htm)
-- [大国重器公布最新消息](http://www.movie.hkepx.cn/xiju/3631672.htm)
-- [《艾希：续》众筹突破2000万，制作人直播下跪求大家别再捐了，恳请不要「造神」，这事你怎么看？](http://www.movie.hkepx.cn/movie/7462782.htm)
-- [被执行死刑的巫鸿明、白应苍出镜](http://www.movie.hkepx.cn/xiju/1015798.htm)
-- [缅北电诈头目的钱多到发霉](http://www.play.hengshemaoyi.cn/xiju/5643924.htm)
-- [1700万买义乌天价商铺 商户：值这个价](http://www.movie.hkepx.cn/movie/8759369.htm)
-- [今天吃小鱼](http://www.play.hengshemaoyi.cn/xiju/4432368.htm)
-- [为什么感觉在店里喝到的茶叶，总比自己泡的好喝呢？](http://www.play.hengshemaoyi.cn/xiju/6073467.htm)
-- [蔡康永账号IP在日本](http://www.movie.hkepx.cn/xiju/5980262.htm)
-- [国乒28年来首次无人进男单世界前三](http://www.play.hengshemaoyi.cn/xiju/2945070.htm)
-- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](http://www.play.hengshemaoyi.cn/xiju/1081763.htm)
-- [孙怡唐艺昕退让者幸存了](http://www.play.hengshemaoyi.cn/kongbu/6377457.htm)
-- [看完不笑的可以确诊为抑郁了](http://www.play.hengshemaoyi.cn/kongbu/9983084.htm)
-- [中国代表团亚运闭幕式亮相](http://www.movie.hkepx.cn/movie/1590582.htm)
-- [看这个视频我不烧心！](http://www.movie.hkepx.cn/movie/7344933.htm)
-- [国庆高速电车充电排队几小时，甚至电量1%趴窝，电车长途真的不适合节假日跑高速吗？](http://www.play.hengshemaoyi.cn/xiju/4915159.htm)
-- [美伊讨论重开霍尔木兹海峡，美方称不急于求成，伊朗要求美国履行6月备忘录，7天内可重开海峡，如何解读？](http://www.daogukj.com/7451395)
-- [乘联分会称 2026 年 1-8 月中国占世界汽车份额回落至 32%，背后原因有哪些？](http://www.movie.hkepx.cn/xiju/0966300.htm)
-- [刘国正：王楚钦压力远超此前几代主力](http://www.play.hengshemaoyi.cn/kongbu/6634694.htm)
-- [超10万份孕妇血样被偷运出境](http://www.play.hengshemaoyi.cn/xiju/5096361.htm)
-- [高铁座椅会传染HPV吗](http://www.play.hengshemaoyi.cn/xiju/7469741.htm)
-- [白应苍被执行死刑前受访画面曝光](http://www.movie.hkepx.cn/movie/9026192.htm)
-- [大唐不夜城人均消费一块五引质疑](http://www.play.hengshemaoyi.cn/kongbu/5604991.htm)
-- [我总感觉昆虫从受到致命伤到完全死亡需要的时间比哺乳动物要多好久？事实真的如此吗？](http://www.movie.hkepx.cn/movie/8308007.htm)
-- [俄罗斯人抢购中国电动车](http://www.movie.hkepx.cn/xiju/7306986.htm)
-- [刘美含买超点发现戏份都被剪](http://www.movie.hkepx.cn/xiju/0257863.htm)
-- [2025年中国居民死亡原因TOP20](http://www.movie.hkepx.cn/xiju/6731294.htm)
-- [年轻人十一出片全靠15元次抛衣](http://www.play.hengshemaoyi.cn/xiju/4090588.htm)
-- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9168900.htm)
-- [奥黛塔，快跟沃来比赛吧！](http://www.daogukj.com/ncgkzwop/)
-- [杨瀚森NBA去留的两本账](http://www.daogukj.com/jccbllpg/)
-- [《龙餐馆》上映一个多月仍是前三](http://www.play.hengshemaoyi.cn/xiju/0279974.htm)
-- [蔡康永手拿加油棒为“台独”站台](http://www.play.hengshemaoyi.cn/xiju/3554241.htm)
-- [王楚钦世排第一到第四](http://www.play.hengshemaoyi.cn/xiju/8459729.htm)
-- [《鸣潮》朝月会特别演出](http://www.daogukj.com/pzlzbctx/)
-- [西游记里的人参果这么好，为什么妖怪不去抢？](http://www.play.hengshemaoyi.cn/xiju/7377262.htm)
-- [小学防欺凌信箱开出四个月前的求助信，校方称「已通过其他渠道反映」，校园信箱沦为摆设了吗？孩子需要它吗？](http://www.daogukj.com/6372329)
-- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.movie.hkepx.cn/movie/7614208.htm)
-- [当 代 假 期 现 状](http://www.daogukj.com/2745725)
-- [《诡异的她》第一季全集·纯享](http://www.movie.hkepx.cn/movie/9778579.htm)
-- [如何评价《绿灯军团》第八集？](http://www.play.hengshemaoyi.cn/kongbu/3554017.htm)
-- [梦之bug](http://www.movie.hkepx.cn/xiju/4074663.htm)
-- [谁想到让徐洋演李现父亲的](http://www.movie.hkepx.cn/xiju/6719507.htm)
-- [蔡康永个人社交账号多个作品下架](http://www.play.hengshemaoyi.cn/xiju/7707387.htm)
-- [日本罕见1天3次向美国强烈抗议](http://www.play.hengshemaoyi.cn/kongbu/3875519.htm)
-- [美国抛出“子午线计划”有何意图](http://www.play.hengshemaoyi.cn/kongbu/8127611.htm)
-- [女子被缅北电诈血本无归投河自尽](http://www.daogukj.com/oedjbnpj/)
-- [30岁女子靠AI婚庆培训年入200万，10万元内的方案仅需十几分钟生成，实际含金量如何？](http://www.daogukj.com/tsdqguup/)
+- [敢为人先，向前走，心就属于自己](http://www.movie.hkepx.cn/xiju/0178022.htm)
+- [华为高通 芯片](http://www.play.hengshemaoyi.cn/xiju/5046145.htm)
+- [2026 国庆档首日票房 1.8 亿，《神探之痕迹》7100 万领跑，如何评价这一成绩？](http://www.play.hengshemaoyi.cn/xiju/9800998.htm)
+- [假期过半，在照片中看见活力中国](http://www.movie.hkepx.cn/xiju/3631672.htm)
+- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](http://www.movie.hkepx.cn/movie/7462782.htm)
+- [放假期间 这7种照片建议别发朋友圈](http://www.movie.hkepx.cn/xiju/1015798.htm)
+- [梅德韦杰夫伤到观众被判负](http://www.play.hengshemaoyi.cn/xiju/5643924.htm)
+- [谁在制造让中产上瘾的纸片](http://www.movie.hkepx.cn/movie/8759369.htm)
+- [读书必须先读前面又臭又长序言吗？](http://www.play.hengshemaoyi.cn/xiju/4432368.htm)
+- [中国航协：乘务员人格尊严不容践踏](http://www.play.hengshemaoyi.cn/xiju/6073467.htm)
+- [刘亦菲 掉代言](http://www.movie.hkepx.cn/xiju/5980262.htm)
+- [代露娃早期发过好几次父母](http://www.play.hengshemaoyi.cn/xiju/2945070.htm)
+- [华为与高通宣布达成广泛专利许可协议，意味着什么？释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/1081763.htm)
+- [请尽情拆掉小时候不敢拆的电子产品吧！](http://www.play.hengshemaoyi.cn/kongbu/6377457.htm)
+- [评论员：两岸走向统一是历史必然](http://www.play.hengshemaoyi.cn/kongbu/9983084.htm)
+- [中国空心光纤网速更快了](http://www.movie.hkepx.cn/movie/1590582.htm)
+- [《诡异的她》第一季全集·纯享](http://www.movie.hkepx.cn/movie/7344933.htm)
+- [中网](http://www.play.hengshemaoyi.cn/xiju/4915159.htm)
+- [张居正 胡歌](http://www.daogukj.com/7451395)
+- [耐克股价年内跌幅近 50%且计划裁员重组，其市场表现缘何急转直下？](http://www.movie.hkepx.cn/xiju/0966300.htm)
+- [你吃饭老跟我闺蜜互动什么呀？](http://www.play.hengshemaoyi.cn/kongbu/6634694.htm)
+- [⚡️黄仁勋 世界巡演⚡️【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/5096361.htm)
+- [未来几年能留住现金流最重要](http://www.play.hengshemaoyi.cn/xiju/7469741.htm)
+- [如何评价《水浒传》里的方腊？](http://www.movie.hkepx.cn/movie/9026192.htm)
+- [全 站 最 烧 心 版 本！！！](http://www.play.hengshemaoyi.cn/kongbu/5604991.htm)
+- [李一桐自曝被骗金额达六七位数](http://www.movie.hkepx.cn/movie/8308007.htm)
+- [印度军事这次支棱起来了](http://www.movie.hkepx.cn/xiju/7306986.htm)
+- [谭松韵面相都变了](http://www.movie.hkepx.cn/xiju/0257863.htm)
+- [结尾喊妈妈](http://www.movie.hkepx.cn/xiju/6731294.htm)
+- [你对于 2026 年诺贝尔物理学奖的预测是什么？](http://www.play.hengshemaoyi.cn/xiju/4090588.htm)
+- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.play.hengshemaoyi.cn/kongbu/9168900.htm)
+- [到底什么叫情绪价值？](http://www.daogukj.com/ncgkzwop/)
+- [梅德韦杰夫击球伤到观众 直接被判负](http://www.daogukj.com/jccbllpg/)
+- [如何评价代露娃发烧向母亲求助却被反问「别人能行你咋不行」？暴露了这段母女关系中哪些问题？](http://www.play.hengshemaoyi.cn/xiju/0279974.htm)
+- [“课本里的大兴安岭诚不欺我”](http://www.play.hengshemaoyi.cn/xiju/3554241.htm)
+- [缅北电诈园区枪决底层人员](http://www.play.hengshemaoyi.cn/xiju/8459729.htm)
+- [大学生挑战国庆7天一个人爆改包浆宿舍](http://www.daogukj.com/pzlzbctx/)
+- [如何评价 5 万人口的祁连县国庆迎 10 万游客，酒店民宿全满房，文旅局免费安置游客到学生宿舍？](http://www.play.hengshemaoyi.cn/xiju/7377262.htm)
+- [明珍珍临刑前画面曝光](http://www.daogukj.com/6372329)
+- [老外动作过于热情女特警礼貌拒绝](http://www.movie.hkepx.cn/movie/7614208.htm)
+- [解放军警告驱离菲律宾飞机](http://www.daogukj.com/2745725)
+- [Windows XP最经典的开机音乐，是谁写出来的？【梗曲背后】](http://www.movie.hkepx.cn/movie/9778579.htm)
+- [德约科维奇vs梅德韦杰夫](http://www.play.hengshemaoyi.cn/kongbu/3554017.htm)
+- [学者：高市对美四条要求都落不了地](http://www.movie.hkepx.cn/xiju/4074663.htm)
+- [再见了地球](http://www.movie.hkepx.cn/xiju/6719507.htm)
+- [巴黎现麻辣烫店：人均150排队半小时](http://www.play.hengshemaoyi.cn/xiju/7707387.htm)
+- [中方10分钟收网缅北四大家族重要成员](http://www.play.hengshemaoyi.cn/kongbu/3875519.htm)
+- [自驾出游“车变床”有多危险](http://www.play.hengshemaoyi.cn/kongbu/8127611.htm)
+- [当我把verity变成双重人格！](http://www.daogukj.com/oedjbnpj/)
+- [为何日本的铁轨坚持不和世界统一？一直用窄轨，有什么好处？](http://www.daogukj.com/tsdqguup/)
 
 </details>
 
 ## 原始来源
 
-- [缅北电诈回流人员自述被割肾经历](https://www.toutiao.com/trending/7693016825923178034/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227693016825923178034%22%2C%22hot_board_impr_id%22%3A%2220261005140847ACFB2757AEF132E72C9D%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [被执行死刑的巫鸿明、白应苍出镜](https://www.toutiao.com/trending/7692982754535358506/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2216%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227692982754535358506%22%2C%22hot_board_impr_id%22%3A%222026100522440031A6472B134D081DEBBB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ba7fb66367d20e594eb6 -->
+<!-- content-fingerprint: 3afa3ac3eb1a037baf5d -->

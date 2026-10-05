@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 缅北电诈头目的钱多到发霉
+# 梅德韦杰夫伤到观众被判负
 
-> 来源：微博热搜 · 排名：第 1 位 · 热度：1163579 · 分类：民生新闻 · 更新：2026-10-05T14:08:49+08:00
+> 来源：微博热搜 · 排名：第 1 位 · 热度：1701817 · 分类：体育 · 更新：2026-10-05T22:44:02+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“缅北电诈头目的钱多到发霉”位列第 1 位，公开热度指标为 1163579，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“梅德韦杰夫伤到观众被判负”位列第 1 位，公开热度指标为 1701817，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [日本罕见1天3次向美国强烈抗议](san-xin-er-yi.md)
-- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](si-hai-wei-jia.md)
-- [看这个视频我不烧心！](wu-gu-feng-deng.md)
-- [被执行死刑的巫鸿明、白应苍出镜](liu-shen-wu-zhu.md)
+- [中方10分钟收网缅北四大家族重要成员](san-xin-er-yi.md)
+- [华为与高通宣布达成广泛专利许可协议，意味着什么？释放了哪些信号？](si-hai-wei-jia.md)
+- [《诡异的她》第一季全集·纯享](wu-gu-feng-deng.md)
+- [放假期间 这7种照片建议别发朋友圈](liu-shen-wu-zhu.md)
 
 ## 站内推荐
 
-- [中国代表团亚运闭幕式亮相](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [王楚钦世排第一到第四](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [医生辟谣高铁座椅或为HPV感染重灾区](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [这是一份专门给吃货的西安美食攻略](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [Gang丝球，全款再拿下](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [中国空心光纤网速更快了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [缅北电诈园区枪决底层人员](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [李勒优回应](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [年轻人开始不买景区冤种三件套了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [中网球场99.2%上座率震撼德约科维奇](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [当 代 假 期 现 状](http://www.movie.hkepx.cn/xiju/0710569.htm)
-- [大唐不夜城人均消费一块五引质疑](http://www.play.hengshemaoyi.cn/xiju/4785825.htm)
-- [今天吃小鱼](http://www.movie.hkepx.cn/movie/6905260.htm)
-- [曝代露娃家破产母亲做月嫂供其追梦](http://www.daogukj.com/awcmqjvp/)
-- [西游记里的人参果这么好，为什么妖怪不去抢？](http://www.movie.hkepx.cn/movie/1889048.htm)
-- [在中部-2026演习当中，各国军队都展示了哪些新装备？反映出什么新方向？](http://www.play.hengshemaoyi.cn/kongbu/8013958.htm)
-- [日本罕见1天3次向美国强烈抗议](http://www.movie.hkepx.cn/xiju/3264958.htm)
-- [男子讲述在缅北被割肾经历](http://www.movie.hkepx.cn/xiju/3561111.htm)
-- [小学防欺凌信箱开出四个月前的求助信，校方称「已通过其他渠道反映」，校园信箱沦为摆设了吗？孩子需要它吗？](http://www.movie.hkepx.cn/movie/7574443.htm)
-- [如何看待台独分子沈伯洋竞选台北市长，蔡康永站台？](http://www.daogukj.com/1562292)
-- [中国人开始放心开电车跑长途了吗](http://www.movie.hkepx.cn/movie/3615150.htm)
-- [奥黛塔，快跟沃来比赛吧！](http://www.daogukj.com/awvkssjz/)
-- [重庆网红落地签太危险了](http://www.movie.hkepx.cn/xiju/2201011.htm)
-- [1700万买义乌天价商铺 商户：值这个价](http://www.daogukj.com/chyzkava/)
-- [美国抛出“子午线计划”有何意图](http://www.movie.hkepx.cn/movie/7646741.htm)
-- [这是一份专门给吃货的西安美食攻略](http://www.play.hengshemaoyi.cn/xiju/5500298.htm)
-- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.movie.hkepx.cn/xiju/4668622.htm)
-- [和女明星吃饭不如造天网带感](http://www.movie.hkepx.cn/xiju/5350690.htm)
-- [《诡异的她》第一季全集·纯享](http://www.play.hengshemaoyi.cn/kongbu/5770130.htm)
-- [本以为只是街头表演者 没想到是大神](http://www.play.hengshemaoyi.cn/xiju/8464120.htm)
-- [看完的朋友来说说，如何评价《生化危机：爆发夜》这部电影？](http://www.play.hengshemaoyi.cn/xiju/1836033.htm)
-- [超10万份孕妇血样被偷运出境](http://www.play.hengshemaoyi.cn/xiju/0953664.htm)
-- [《布达佩斯大饭店》中大面积用粉色为什么不觉得土？](http://www.movie.hkepx.cn/xiju/1523464.htm)
-- [Gang丝球，全款再拿下](http://www.daogukj.com/trzudouf/)
-- [王楚钦世排第一到第四](http://www.movie.hkepx.cn/movie/5890075.htm)
-- [《依旧忆苦思甜》](http://www.play.hengshemaoyi.cn/xiju/7584454.htm)
-- [名校校友捐赠越来越卷 钱都花哪了](http://www.daogukj.com/ttyygcbx/)
-- [国乒28年来首次无人进男单世界前三](http://www.play.hengshemaoyi.cn/kongbu/8802368.htm)
-- [为何日本的铁轨坚持不和世界统一？一直用窄轨，有什么好处？](http://www.movie.hkepx.cn/xiju/8218475.htm)
-- [好歌](http://www.daogukj.com/nosqlrao/)
-- [本想见世面 没想到自己就是世面](http://www.movie.hkepx.cn/movie/7252346.htm)
-- [9位华人科学家成诺奖热门人选](http://www.daogukj.com/7158094)
-- [为什么感觉在店里喝到的茶叶，总比自己泡的好喝呢？](http://www.daogukj.com/wcsvwhzc/)
-- [近期画的](http://www.movie.hkepx.cn/xiju/3051232.htm)
-- [国庆高速电车充电排队几小时，甚至电量1%趴窝，电车长途真的不适合节假日跑高速吗？](http://www.play.hengshemaoyi.cn/kongbu/2688016.htm)
-- [日本代表团团长承认金牌数被中国碾压](http://www.movie.hkepx.cn/movie/1331447.htm)
-- [蔡康永现身台独分子竞选会场](http://www.daogukj.com/5734952)
-- [国庆假期各地景区游人如织](http://www.daogukj.com/8321263)
-- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.movie.hkepx.cn/movie/3209035.htm)
-- [刘国正：王楚钦压力远超此前几代主力](http://www.play.hengshemaoyi.cn/xiju/8919398.htm)
-- [10万人涌进5万人口县城](http://www.movie.hkepx.cn/movie/6665061.htm)
-- [谁想到让徐洋演李现父亲的](http://www.play.hengshemaoyi.cn/kongbu/4469544.htm)
-- [松岛辉空成史上最年轻世界第一](http://www.daogukj.com/deblgxio/)
-- [6个小时的成果](http://www.daogukj.com/rqxudlxg/)
-- [蔡康永个人社交账号多个作品下架](http://www.movie.hkepx.cn/xiju/0051421.htm)
-- [王炳忠：蔡康永是双面人想两边通吃](http://www.movie.hkepx.cn/xiju/9290075.htm)
-- [梦之bug](http://www.daogukj.com/jzplowxj/)
-- [蔡康永账号IP在日本](http://www.movie.hkepx.cn/xiju/1909001.htm)
-- [看完不笑的可以确诊为抑郁了](http://www.daogukj.com/ehzgpqqc/)
-- [大量网友抵制蔡康永](http://www.play.hengshemaoyi.cn/xiju/3422934.htm)
+- [解放军警告驱离菲律宾飞机](http://www.movie.hkepx.cn/xiju/0710569.htm)
+- [全 站 最 烧 心 版 本！！！](http://www.play.hengshemaoyi.cn/xiju/4785825.htm)
+- [读书必须先读前面又臭又长序言吗？](http://www.movie.hkepx.cn/movie/6905260.htm)
+- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.daogukj.com/awcmqjvp/)
+- [如何评价 5 万人口的祁连县国庆迎 10 万游客，酒店民宿全满房，文旅局免费安置游客到学生宿舍？](http://www.movie.hkepx.cn/movie/1889048.htm)
+- [郑合惠子：不强行共情杜翠雀的恶](http://www.play.hengshemaoyi.cn/kongbu/8013958.htm)
+- [中方10分钟收网缅北四大家族重要成员](http://www.movie.hkepx.cn/xiju/3264958.htm)
+- [2026国庆档最强黑马诞生](http://www.movie.hkepx.cn/xiju/3561111.htm)
+- [明珍珍临刑前画面曝光](http://www.movie.hkepx.cn/movie/7574443.htm)
+- [在大银幕看《生化危机：爆发夜》感受如何？](http://www.daogukj.com/1562292)
+- [这个器官厉害的人天生是“快乐体质”](http://www.movie.hkepx.cn/movie/3615150.htm)
+- [到底什么叫情绪价值？](http://www.daogukj.com/awvkssjz/)
+- [第一批返程的“大聪明”又失算了](http://www.movie.hkepx.cn/xiju/2201011.htm)
+- [谁在制造让中产上瘾的纸片](http://www.daogukj.com/chyzkava/)
+- [自驾出游“车变床”有多危险](http://www.movie.hkepx.cn/movie/7646741.htm)
+- [年轻人开始不买景区冤种三件套了](http://www.play.hengshemaoyi.cn/xiju/5500298.htm)
+- [老外动作过于热情女特警礼貌拒绝](http://www.movie.hkepx.cn/xiju/4668622.htm)
+- [夏果新片《山鸟》](http://www.movie.hkepx.cn/xiju/5350690.htm)
+- [Windows XP最经典的开机音乐，是谁写出来的？【梗曲背后】](http://www.play.hengshemaoyi.cn/kongbu/5770130.htm)
+- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.play.hengshemaoyi.cn/xiju/8464120.htm)
+- [蒋欣回复谭松韵嘉兰苦了你了](http://www.play.hengshemaoyi.cn/xiju/1836033.htm)
+- [⚡️黄仁勋 世界巡演⚡️【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/0953664.htm)
+- [时代峰峻疑似首尔分公司](http://www.movie.hkepx.cn/xiju/1523464.htm)
+- [中网球场99.2%上座率震撼德约科维奇](http://www.daogukj.com/trzudouf/)
+- [缅北电诈园区枪决底层人员](http://www.movie.hkepx.cn/movie/5890075.htm)
+- [明军有大炮，后金没有，为什么萨尔浒之战明军还输了？](http://www.play.hengshemaoyi.cn/xiju/7584454.htm)
+- [这种鞋可能正在毁掉你的脚](http://www.daogukj.com/ttyygcbx/)
+- [代露娃早期发过好几次父母](http://www.play.hengshemaoyi.cn/kongbu/8802368.htm)
+- [金价大跌后国庆上海金店排长队](http://www.movie.hkepx.cn/xiju/8218475.htm)
+- [《变形计》李勒优回应与“晋妈”关系](http://www.daogukj.com/nosqlrao/)
+- [凡事尽力而为 最是圆满](http://www.movie.hkepx.cn/movie/7252346.htm)
+- [一个直径十厘米的圆里可以不重叠地排列多少个边长一厘米的正方形？](http://www.daogukj.com/7158094)
+- [中国航协：乘务员人格尊严不容践踏](http://www.daogukj.com/wcsvwhzc/)
+- [惊惊惊惊惊惊惊惊了](http://www.movie.hkepx.cn/xiju/3051232.htm)
+- [中网](http://www.play.hengshemaoyi.cn/kongbu/2688016.htm)
+- [孙颖莎重返世排第一后迎首胜](http://www.movie.hkepx.cn/movie/1331447.htm)
+- [敢为人先，向前走，心就属于自己](http://www.daogukj.com/5734952)
+- [男子收到短信吓懵：欠费16.1亿元](http://www.daogukj.com/8321263)
+- [李勒优回应](http://www.movie.hkepx.cn/movie/3209035.htm)
+- [你吃饭老跟我闺蜜互动什么呀？](http://www.play.hengshemaoyi.cn/xiju/8919398.htm)
+- [曝腾讯退货张居正](http://www.movie.hkepx.cn/movie/6665061.htm)
+- [再见了地球](http://www.play.hengshemaoyi.cn/kongbu/4469544.htm)
+- [梅德韦杰夫击球伤到观众被判负](http://www.daogukj.com/deblgxio/)
+- [为什么现在老外纷纷开始给游戏加中文并且设立国区最低价？](http://www.daogukj.com/rqxudlxg/)
+- [巴黎现麻辣烫店：人均150排队半小时](http://www.movie.hkepx.cn/xiju/0051421.htm)
+- [游客下地割出9000碗米饭](http://www.movie.hkepx.cn/xiju/9290075.htm)
+- [学者：高市对美四条要求都落不了地](http://www.daogukj.com/jzplowxj/)
+- [刘亦菲 掉代言](http://www.movie.hkepx.cn/xiju/1909001.htm)
+- [评论员：两岸走向统一是历史必然](http://www.daogukj.com/ehzgpqqc/)
+- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](http://www.play.hengshemaoyi.cn/xiju/3422934.htm)
 
 </details>
 
 ## 原始来源
 
-- [缅北电诈头目的钱多到发霉](https://s.weibo.com/weibo?q=%E7%BC%85%E5%8C%97%E7%94%B5%E8%AF%88%E5%A4%B4%E7%9B%AE%E7%9A%84%E9%92%B1%E5%A4%9A%E5%88%B0%E5%8F%91%E9%9C%89)
+- [梅德韦杰夫伤到观众被判负](https://s.weibo.com/weibo?q=%E6%A2%85%E5%BE%B7%E9%9F%A6%E6%9D%B0%E5%A4%AB%E4%BC%A4%E5%88%B0%E8%A7%82%E4%BC%97%E8%A2%AB%E5%88%A4%E8%B4%9F)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5f27ba7ce69b4e57273f -->
+<!-- content-fingerprint: 76514a5b552d21898fa9 -->
