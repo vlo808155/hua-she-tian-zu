@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 2027 年泰晤士大学排名出炉，清华首次超越欧洲大陆所有高校，有哪些信息值得关注？
+# 神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？
 
-> 来源：知乎热榜 · 排名：第 4 位 · 热度：142 万热度 · 分类：问答 · 更新：2026-10-05T05:52:18+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：137 万热度 · 分类：问答 · 更新：2026-10-05T08:28:22+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“2027 年泰晤士大学排名出炉，清华首次超越欧洲大陆所有高校，有哪些信息值得关注？”位列第 4 位，公开热度指标为 142 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？”位列第 4 位，公开热度指标为 137 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026年9月30日，泰晤士高等教育世界大学排名正式全网发布，清华大学蝉联亚洲榜首、全球第11名。 全球共有来自118个国家和地区的2297所高校上榜，相较于2026年世界大学排名来自115个国家和地区的2191所高校增长了4%。 中国大陆的清华大学是亚洲排名最高的学府，超越了之前排名第11位的苏黎世联邦理工学院。 亚洲首次有三所大学进入全球前15强：清华大学为亚洲榜首（世界第11名）、北京大学（世界第13名）和新加坡国立大学（世界第15名）2027年泰晤士高等教育世界大学排名出炉，清华大学位列全球第11名，连续四年亚洲榜首，首次有中国大陆高校的排名超越
+来源公开摘要显示：明明射雕时俩人结拜关系还不错的
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [【独家】牧神记 第103集 温酒](ri-xin-yue-yi.md)
-- [10万游客涌入小县城 文旅局长给铺床](hua-she-tian-zu.md)
+- [日本罕见1天3次强烈抗议美国](hua-she-tian-zu.md)
 - [年轻人开始不买景区冤种三件套了](yi-xin-yi-yi.md)
-- [第20届亚运会闭幕](san-xin-er-yi.md)
+- [沙特要出10万大军反攻胡塞？专家解读](san-xin-er-yi.md)
 
 ## 站内推荐
 
-- [国产旗舰新机集体涨价后 iPhone 销量反弹，导致这一现象的原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [孩子说周末就要睡个懒觉，不要叫他，让他自然醒，你怎么看？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [可以说一说你们自己一个人去旅行的感受吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [老外：这个中国机枪手必须上军事法庭，哪有用机枪扫射医疗兵的？！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [《艾希：续》众筹突破2000万，制作人直播下跪求大家别再捐了，恳请不要「造神」，这事你怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [奥黛塔，快跟沃来比赛吧！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [hanser「花生与葱花」全程录像](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [格力技工学校开学 董明珠担任校长](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [李昊：无所谓 反正他们踢不进](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [奥黛塔，快跟沃来比赛吧！](http://www.movie.hkepx.cn/movie/4471620.htm)
-- [第20届亚运会闭幕](http://www.daogukj.com/xebdfgux/)
-- [西安肉夹馍师傅已忙到3秒夹一个](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
-- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](http://www.movie.hkepx.cn/xiju/5621807.htm)
-- [百慕大飞波士顿失联飞机残骸已找到](http://www.daogukj.com/dzktieeu/)
-- [张雪谈国足0比5不敌巴勒斯坦](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
-- [国庆出行购票藏骗局？警惕诈骗陷阱](http://www.movie.hkepx.cn/movie/4977487.htm)
-- [换汤不换药的AI短剧还能“不烧心”吗](http://www.movie.hkepx.cn/xiju/7776753.htm)
-- [广州街唱《万疆》唱到一半，李玉刚本人来了？！](http://www.daogukj.com/0771353)
-- [李勒优说没有一个地方是属于我的归属](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
-- [《依旧忆苦思甜》](http://www.movie.hkepx.cn/xiju/1266622.htm)
+- [武汉地铁站“行李箱墙”范围又扩大](http://www.movie.hkepx.cn/movie/4471620.htm)
+- [沙特要出10万大军反攻胡塞？专家解读](http://www.daogukj.com/xebdfgux/)
+- [零跑汽车下线蔡康永全部内容](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
+- [年轻人国庆旅游偏爱“隐居山林”](http://www.movie.hkepx.cn/xiju/5621807.htm)
+- [看完不笑的可以确诊为抑郁了](http://www.daogukj.com/dzktieeu/)
+- [这个bug好啊，这才是我想要的角色界面](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
+- [如何看待沈伯洋竞选台北市长，蔡康永站台？](http://www.movie.hkepx.cn/movie/4977487.htm)
+- [2027 年泰晤士大学排名出炉，清华首次超越欧洲大陆所有高校，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7776753.htm)
+- [《依旧忆苦思甜》](http://www.daogukj.com/0771353)
+- [余承东：华为已量产381款韬芯片](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
+- [十一游客流行“跳城游”](http://www.movie.hkepx.cn/xiju/1266622.htm)
 - [【独家】牧神记 第103集 温酒](http://www.daogukj.com/bnubczgn/)
-- [曝乌克兰两个旅临阵脱逃被阻止](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
-- [吴宜泽深圳公开赛夺冠](http://www.movie.hkepx.cn/xiju/3833912.htm)
-- [雷军一口气刷完7期民间拆车视频](http://www.daogukj.com/qygzdgwj/)
+- [“China Haul”为何兴起](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
+- [30岁女子靠AI婚庆培训年入200万，10万元内的方案仅需十几分钟生成，实际含金量如何？](http://www.movie.hkepx.cn/xiju/3833912.htm)
+- [黄灿灿被出轨](http://www.daogukj.com/qygzdgwj/)
 - [中国健儿追梦之路永不停歇](http://www.movie.hkepx.cn/movie/3609280.htm)
-- [大冰直播回应男子想挽回离婚妻子](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
-- [现在再看，这些话全都是作者对妹妹的思念](http://www.daogukj.com/dxagawao/)
-- [带小孩不要坐商务座](http://www.daogukj.com/qdpevqqj/)
-- [永州站手动翻牌火了：一朝手搓天下知](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
-- [运动前后拉伸为什么这么重要](http://www.daogukj.com/tpbetyah/)
-- [国产旗舰新机集体涨价后 iPhone 销量反弹，导致这一现象的原因是什么？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
-- [网传俄罗斯一实验室助理打破试管后感染鼠疫死亡，近200人被纳入医学观察，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/3442051.htm)
-- [“这将是一场漫长的别离，在你再次见到我之前.”【Never see me again】【遗忘の小曲】](http://www.movie.hkepx.cn/xiju/4635137.htm)
-- [我的世界 但你能「吞噬数字」？？！](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
-- [神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
-- [如何评价上海一音乐教师赴泰后失联多日，手机 IP 曾显示在缅甸？目前情况如何？](http://www.daogukj.com/eqtbqajy/)
-- [中国人开始放心开电车跑长途了吗](http://www.movie.hkepx.cn/movie/5314158.htm)
-- [为什么有的人认路靠方向，有的人认路依赖地标和建筑，这两种空间记忆模式有什么区别？](http://www.movie.hkepx.cn/movie/1796986.htm)
-- [吴宜泽击败袁思俊夺冠](http://www.daogukj.com/yldwicuv/)
-- [日本197人专案组连夜抓捕驻日美士兵](http://www.movie.hkepx.cn/xiju/1923731.htm)
-- [央视迎来新主播](http://www.movie.hkepx.cn/xiju/5823393.htm)
-- [10万游客涌入小县城 文旅局长给铺床](http://www.daogukj.com/2626307)
-- [官方通报“阿尔山景区200一晚酒店”](http://www.movie.hkepx.cn/xiju/9508117.htm)
-- [国庆景区热度前10被小城包揽](http://www.movie.hkepx.cn/xiju/9262898.htm)
-- [怎么提高自己的语言表达能力还有思维能力？](http://www.daogukj.com/tqdltahc/)
-- [你对于 2026 年诺贝尔生理学或医学奖的预测是什么？](http://www.movie.hkepx.cn/xiju/9646924.htm)
-- [高速拥堵女子憋尿被紧急送进急诊](http://www.daogukj.com/1624901)
-- [蔡康永](http://www.movie.hkepx.cn/movie/6632805.htm)
-- [网友称联系朋友只为找优越感](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
-- [兰香如故我妻子竟然是我妻子](http://www.daogukj.com/5122805)
-- [特厨探店｜小李：他这个位置，还能有生意，说明味道真不错！](http://www.movie.hkepx.cn/movie/7942093.htm)
-- [“飞行员想带我们一起自杀！”怎么看待迪拜航空飞机一分钟骤降1.5万英尺，机组人员刺伤同事?](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
-- [看完的朋友来说说，如何评价《生化危机：爆发夜》这部电影？](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
-- [女特警礼貌拒绝老外过于热情的动作](http://www.daogukj.com/hdlfcclx/)
-- [赵心童吴宜泽世界排名前二](http://www.daogukj.com/1703206)
-- [蔡康永 零跑汽车](http://www.daogukj.com/1803044)
-- [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](http://www.daogukj.com/3520679)
-- [孩子说周末就要睡个懒觉，不要叫他，让他自然醒，你怎么看？](http://www.movie.hkepx.cn/xiju/3318389.htm)
-- [教你一招彻底删除隐私记录](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
+- [刘国正谈王楚钦单核扛重担](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
+- [“八分饱”对新能源车有影响吗](http://www.daogukj.com/dxagawao/)
+- [飞行员霸气应对外机抵近：我就是界碑](http://www.daogukj.com/qdpevqqj/)
+- [曝鞠婧祎七星彩定女选男](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
+- [多地影院试水体育赛事大屏直播，能成为影院摆脱经营困境的良药吗？](http://www.daogukj.com/tpbetyah/)
+- [《艾希：续》众筹突破2000万，制作人直播下跪求大家别再捐了，恳请不要「造神」，这事你怎么看？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
+- [当 代 假 期 现 状](http://www.movie.hkepx.cn/xiju/3442051.htm)
+- [葡萄牙2-1挪威‌‌ 4连胜提前出线](http://www.movie.hkepx.cn/xiju/4635137.htm)
+- [李勒优是被利用的最惨的一个](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
+- [奥黛塔，快跟沃来比赛吧！](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
+- [亚连有点强度都在斩杀上了](http://www.daogukj.com/eqtbqajy/)
+- [可恶的蚊子你也有今天](http://www.movie.hkepx.cn/movie/5314158.htm)
+- [于是我写了一首歌（原版）](http://www.movie.hkepx.cn/movie/1796986.htm)
+- [国庆反向旅游迎来新变化](http://www.daogukj.com/yldwicuv/)
+- [赵心童吴宜泽包揽世界前二](http://www.movie.hkepx.cn/xiju/1923731.htm)
+- [官方通报“阿尔山景区200一晚酒店”](http://www.movie.hkepx.cn/xiju/5823393.htm)
+- [日本罕见1天3次强烈抗议美国](http://www.daogukj.com/2626307)
+- [兰香林锦岐女儿长大了](http://www.movie.hkepx.cn/xiju/9508117.htm)
+- [为什么感觉现在的东西越来越便宜呢？](http://www.movie.hkepx.cn/xiju/9262898.htm)
+- [《诡异的她》第一季全集·纯享](http://www.daogukj.com/tqdltahc/)
+- [多名小孩用充电枪荡秋千 客服回应](http://www.movie.hkepx.cn/xiju/9646924.htm)
+- [日本罕见1天3次向美国强烈抗议](http://www.daogukj.com/1624901)
+- [如何看待《我家那闺女》中代露娃称高三被父亲掌掴后离家出走一个月，父母无人寻找时，观察室内妈妈眼神冷漠？](http://www.movie.hkepx.cn/movie/6632805.htm)
+- [德总理会见乌总统警报爆炸声不断](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
+- [父母悄悄到执勤点看望武警战士](http://www.daogukj.com/5122805)
+- [普宁考生称因HIV被拒教师入职](http://www.movie.hkepx.cn/movie/7942093.htm)
+- [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
+- [再见了地球](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
+- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](http://www.daogukj.com/hdlfcclx/)
+- [胖东来被指招聘性别歧视](http://www.daogukj.com/1703206)
+- [国庆出行购票藏骗局？警惕诈骗陷阱](http://www.daogukj.com/1803044)
+- [Mili - Rendezvous（密会）【边狱巴士】](http://www.daogukj.com/3520679)
+- [hanser「花生与葱花」全程录像](http://www.movie.hkepx.cn/xiju/3318389.htm)
+- [蔡康永手拿加油棒为“台独”站台](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
 
 </details>
 
 ## 原始来源
 
-- [2027 年泰晤士大学排名出炉，清华首次超越欧洲大陆所有高校，有哪些信息值得关注？](https://www.zhihu.com/question/2088679331371530086)
+- [神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？](https://www.zhihu.com/question/2057489594103419038)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e954c0bba9d086b6becf -->
+<!-- content-fingerprint: cde3ba9647cd3a488c87 -->
