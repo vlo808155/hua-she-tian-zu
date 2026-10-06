@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# “黄金睡眠时长”出炉
+# 明学昌畏罪自杀身亡照片曝光
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7522689 · 更新：2026-10-06T05:42:34+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7522988 · 更新：2026-10-06T09:56:16+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，““黄金睡眠时长”出炉”位列第 3 位，公开热度指标为 7522689。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“明学昌畏罪自杀身亡照片曝光”位列第 3 位，公开热度指标为 7522988。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026年9月，国际期刊《自然》子刊《npj Aging》刊发的一项研究发现，睡眠时长过短或过长，都会增加身体衰弱风险！而睡眠时长在7.1小时左右，身体的衰弱风险最低。
+来源公开摘要显示：2023年11月12日，中国警方对缅北电诈明学昌等4人发布通缉令。4天后，明国平、明菊兰、明珍珍3人被成功抓捕并移交中方。其间，明学昌畏罪自杀身亡。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [代露娃不被同情的原因](chun-nuan-hua-kai.md)
-- [被执行死刑的巫鸿明、白应苍出镜](qiu-gao-qi-shuang.md)
-- [2026 年巴西总统选举首轮投票无人胜出，将进行第二轮角逐，目前的形势如何？](bing-tian-xue-di.md)
-- [印度军事这次支棱起来了](ri-xin-yue-yi.md)
+- [黄金睡眠时长出炉](chun-nuan-hua-kai.md)
+- [陈梦现身WTT中国大满贯观看比赛](qiu-gao-qi-shuang.md)
+- [如何评价369（白家浩，前TES/JDG上单）直播玩无畏契约被喷？](bing-tian-xue-di.md)
+- [真实事件不改编](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
-- [中国收废品的大爷可能已经赚翻了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [巨型“充电宝”驶进多地服务区](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [中国警方缅北战火下挖出同胞遗体](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [大兴安岭的秋看一眼就醉了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [区委书记逐一核查值班人员是否在岗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [回老家掰苞米感觉世界割裂](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [第一批返程的“大聪明”又失算了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [连续抛硬币出了十次正面，第十一次选反面真的更聪明吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [10万民警抵达中缅边境参与专项行动](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [大兴安岭的秋看一眼就醉了](http://www.daogukj.com/2989641)
-- [肖战全世界正数第一严谨之人](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [刘亦菲 掉代言](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [缅北电诈回流人员自述被割肾经历](http://www.daogukj.com/5775563)
-- [为何日本的铁轨坚持不和世界统一？一直用窄轨，有什么好处？](http://www.daogukj.com/1579567)
-- [代露娃多年好友发声](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [中国航协：乘务员人格尊严不容践踏](http://www.daogukj.com/rvgjqsig/)
-- [江苏一公园多只鳄鱼被绑嘴 官方回应](http://www.daogukj.com/vcxumdys/)
-- [孙心然0比2高芙无缘16强](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [参加过的最混乱婚礼](http://www.daogukj.com/4998351)
-- [男子收到短信吓懵：欠费16.1亿元](http://www.daogukj.com/puqecrgq/)
-- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [医生辟谣「高铁座椅或为HPV感染重灾区」，这个说法怎么来的？坐高铁有必要使用一次性座套吗？](http://www.daogukj.com/mbleegev/)
-- [水刚咽下去，口渴怎么就缓解了？身体从哪里知道我喝水了？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [三千的工资愣是存了80万](http://www.daogukj.com/9378743)
-- [郑钦文晋级16强](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [明珍珍临刑前画面曝光](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [专家揭秘心血管“隐形杀手”](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [谭松韵面相都变了](http://www.daogukj.com/4067994)
-- [港媒拍到杨幂又悄悄到香港了](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [如何评价陈飞宇在电影《神探之痕迹》中的表现？](http://www.daogukj.com/0687577)
-- [【抢先看】重回2002，永不空军的鱼竿被军方收编？军方进仓库一看：激光炮手电、隐身涂层、全球降雨弹……你管这叫鱼竿？](http://www.daogukj.com/0028791)
-- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [医院透析室患者逐步年轻化](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [中方10分钟收网缅北四大家族重要成员](http://www.daogukj.com/0384955)
-- [华为与高通达成协议](http://www.daogukj.com/yjaakhwu/)
-- [食人魔王、内战、石油，乌干达百年国运，怎么比小说还离谱【东非04｜乌干达】](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [以前真是白活了](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [中国收废品的大爷可能已经赚翻了](http://www.daogukj.com/6760233)
-- [《AIZO》司凤版😍乙骨听完整个人都通透了，轻松新宿一串二【AI音乐】](http://www.daogukj.com/0471626)
-- [日本罕见1天3次向美国强烈抗议](http://www.daogukj.com/znjtiiff/)
-- [女高管称一周之内和马斯克从相爱走到「被分手」，两人共育有4个孩子，马斯克对待亲密关系是否有规律？](http://www.daogukj.com/dduwvxya/)
-- [华为与高通宣布达成广泛专利许可协议，意味着什么？释放了哪些信号？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [大学生假期0元搭车返乡 跨越1200公里](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [连续抛硬币出了十次正面，第十一次选反面真的更聪明吗？](http://www.daogukj.com/2989641)
+- [国庆假期高速收费站区域事故多发](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [章若楠蒋欣叶一茜都在追《兰香如故》](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [每人仅有十分钟！时间清零强制接棒？「区区接力生存」？？！](http://www.daogukj.com/5775563)
+- [国庆假期出境打针？跨境医疗的生意，路子越来越野了](http://www.daogukj.com/1579567)
+- [明珍珍临刑前画面曝光](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [大学生挑战国庆7天一个人爆改包浆宿舍](http://www.daogukj.com/rvgjqsig/)
+- [黄子韬直播回应王鹤棣为人如何](http://www.daogukj.com/vcxumdys/)
+- [缅甸电诈园区或卷土重来](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [中方曾三次约见缅北四大家族代表](http://www.daogukj.com/4998351)
+- [被执行死刑的巫鸿明、白应苍出镜](http://www.daogukj.com/puqecrgq/)
+- [10万民警抵达中缅边境参与专项行动](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [《我上哪给你整假的》](http://www.daogukj.com/mbleegev/)
+- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [被小猫蹭蹭的天安门哨兵找到了](http://www.daogukj.com/9378743)
+- [李荣浩回复邓紫棋](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [医生辟谣「高铁座椅或为HPV感染重灾区」，这个说法怎么来的？坐高铁有必要使用一次性座套吗？](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [当代文科教育的症结在哪里？](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [胡塞武装的神秘领导人是谁](http://www.daogukj.com/4067994)
+- [张哲华《余红旧事》颠覆喜剧人形象](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [游客免费住宿舍学生同意了吗](http://www.daogukj.com/0687577)
+- [黑泽曾爆料代露娃爱打麻将](http://www.daogukj.com/0028791)
+- [明珍珍笑着讲述杀人埋尸](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [金价大跌后国庆上海金店排长队](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [中国足球小将两天两冠](http://www.daogukj.com/0384955)
+- [冲绳知事谈驻日美军杀人案多次发笑](http://www.daogukj.com/yjaakhwu/)
+- [刘学义没对谭松韵用绅士手](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [王一博你到底怎么了开心成这样](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [区委书记逐一核查值班人员是否在岗](http://www.daogukj.com/6760233)
+- [孙颖莎开始整顿乒乓球观赛礼仪](http://www.daogukj.com/0471626)
+- [为什么伽罗瓦 19 岁就发明的群论，绝大多数那个专业的研究生终其一生都学不会？](http://www.daogukj.com/znjtiiff/)
+- [G.E.M. 邓紫棋【自由的你】启程版 Official Lyric Video (4K)](http://www.daogukj.com/dduwvxya/)
+- [中方工作组曾 3 次约见果敢「四大家族」代表但收效甚微，背后的深层原因是什么？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
+- [默茨遭讽是“乌克兰总理”](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [被 解 救 的 杰 戈](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
 - [《诡异的她》第一季全集·纯享](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [凡事尽力而为 最是圆满](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [敢为人先，向前走，心就属于自己](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [香港为什么叫HK，不叫XG？](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [王一博CHANEL大秀出图](http://www.daogukj.com/jmwlrqbo/)
-- [怎么评价《蜗居》里小贝不肯借6万全部存款给海萍买房的行为？](http://www.daogukj.com/7834239)
-- [缅北电诈头目家中钱多到发霉](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [动作演员何麦离世](http://www.movie.hkepx.cn/movie/2182682.htm)
-- [印度军事这次支棱起来了](http://www.daogukj.com/5450676)
-- [奥黛塔，快跟沃来比赛吧！](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [电诈金主巫鸿明：赚1亿要分明家2千万](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [王心凌 你没报批不能上来](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [EP06 首场新品秀来袭，美妆护肤新品是“翻车”or惊艳全场？](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [怎么评价《蜗居》里小贝不肯借6万全部存款给海萍买房的行为？](http://www.daogukj.com/jmwlrqbo/)
+- [夏果新片《山鸟》](http://www.daogukj.com/7834239)
+- [如何看待Anthropic被曝请神学家给Claude提供安全建议，并认为Claude有灵魂？](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [超级富二代3D打印手枪暗杀万亿总裁！淡定吃汉堡等待美警刑侦全明星！](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [真实事件不改编](http://www.daogukj.com/5450676)
+- [未来几年能留住现金流最重要](http://www.movie.hkepx.cn/xiju/5833368.htm)
 - [中国空心光纤网速更快了](http://www.daogukj.com/3022115)
-- [年轻人开始不买景区冤种三件套了](http://www.daogukj.com/9730014)
-- [李勒优现在正在拼豆店打工](http://www.daogukj.com/vgdwnerp/)
-- [最想结婚的年轻人扎堆去网红景区领证](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [未来几年能留住现金流最重要](http://www.daogukj.com/pmvtaymm/)
+- [为什么孩子明明知道做错了事，可被指出错误时第一反应不是认错，而是立刻反驳、辩解，甚至顶嘴？](http://www.daogukj.com/9730014)
+- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.daogukj.com/vgdwnerp/)
+- [刘亦菲 掉代言](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [中方放弃谈判直接抓佤邦副总司令](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
 ## 原始来源
 
-- [“黄金睡眠时长”出炉](https://www.baidu.com/s?wd=%E2%80%9C%E9%BB%84%E9%87%91%E7%9D%A1%E7%9C%A0%E6%97%B6%E9%95%BF%E2%80%9D%E5%87%BA%E7%82%89&sa=fyb_news&rsv_dl=fyb_news)
+- [明学昌畏罪自杀身亡照片曝光](https://www.baidu.com/s?wd=%E6%98%8E%E5%AD%A6%E6%98%8C%E7%95%8F%E7%BD%AA%E8%87%AA%E6%9D%80%E8%BA%AB%E4%BA%A1%E7%85%A7%E7%89%87%E6%9B%9D%E5%85%89&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0dcf473eb434b243a40a -->
+<!-- content-fingerprint: 88050bf04c4b14677fa9 -->
