@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何评价字节Seed团队发现DeepSeek性能漂移？
+# 711 便利店关闭印度全部门店，背后的原因是什么？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：332 万热度 · 分类：问答 · 更新：2026-10-09T06:43:40+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：878 万热度 · 分类：问答 · 更新：2026-10-09T10:38:41+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价字节Seed团队发现DeepSeek性能漂移？”位列第 1 位，公开热度指标为 332 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“711 便利店关闭印度全部门店，背后的原因是什么？”位列第 1 位，公开热度指标为 878 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：字节Seed团队最新发布的论文《Periodic Weak Spots》发现，以DeepSeek V4系列为代表的模型，使用压缩稀疏注意力，会导致长上下文时发生性能漂移。 https://arxiv.org/abs/2609.36322
+来源公开摘要显示：新华社北京10月6日电 日本零售业巨头7&I控股公司6日发布声明说，其旗下连锁便利店品牌7-11位于印度的所有门店均已关闭。日本媒体称，7-11便利店因不敌当地竞争对手而退出印度市场。 7&I控股公司在声明中确认，印度企业信实零售公司于9月30日关闭了在印度孟买和浦那经营的全部31家7-11便利店。 法新社援引7&I控股公司发言人消息报道，获得相关特许经营权后，信实零售公司2021年10月在孟买开设了印度的首家7-11便利店，发展最好的时候在印度共开店约60家。 7&I控股公司未说明7-11便利店退出印度的原因。但据《读卖新闻》等日本媒体报道，7-11便
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [超市生存挑战后续！4人吃完整个超市赢100万美金！](wu-gu-feng-deng.md)
-- [三甲医生回应“喝大水”](liu-shen-wu-zhu.md)
-- [肺鼠疫可飞沫传播](qi-shang-ba-xia.md)
-- [如何看待欧洲反华决议高票通过](ba-mian-ling-long.md)
+- [大英博物馆两件康熙时期青花瓷遭损坏](liu-shen-wu-zhu.md)
+- [松岛辉空闹脾气](qi-shang-ba-xia.md)
+- [张本美和吐槽松岛辉空：互不理解](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [购房者买房多年才得知客厅正上方天台埋着一座土坟，房东和物业应承担责任吗？购房者应怎样维权？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [电音玩家 VS 摇滚老炮：摇滚协会副会长于谦当场入坑电音现场？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [妈妈是个超人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [来纽约，拍到了些怪东西](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [《要是我能快点长大就好了》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [古代打仗士兵为什么总是要军饷？能保证自己能活下来花吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [看完缅北电诈覆灭纪实纪录片，最让你感慨的是什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [如何评价OpenAI撤回3篇手稿？为什么前沿模型会犯这种错误？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [有事没事儿，尽喜欢做点好吃的、新鲜玩意给家里人尝一尝！好好吃饭就是好好生活！【睡个好觉】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [震惊！鱼在网上刷到剁椒鱼头的8种做法！【AI全民制作人】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [崔永元自述：冯小刚乱，徐帆也很乱！范冰冰恬不知耻！我就是要他们完蛋！但葛优我可以忍！](http://www.daogukj.com/7394302)
+- [带班主任体验黄毛的一天](http://www.daogukj.com/7394302)
 - [【独家】时光代理人 第三季 PartOne 第10集 错位的救赎【8月国创】](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [彭玉从29岁开始演了一辈子老太太](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [购房者买房多年才得知客厅正上方天台埋着一座土坟，房东和物业应承担责任吗？购房者应怎样维权？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [医生：40岁后一定要防猝死](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [“新疆棕熊索食险酿大祸”系编造](http://www.daogukj.com/thgdlrxk/)
-- [外交部回应直呼高市早苗名字](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [赵丽颖 飞天奖](http://www.daogukj.com/qqvbmaen/)
-- [肖战 南京演唱会](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [肺鼠疫可飞沫传播](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [网传喀纳斯棕熊索食系AI编造](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [向佐喝蛋白粉把肾喝成70岁](http://www.daogukj.com/6313812)
-- [《原神》过场动画-「生与死的流速」](http://www.daogukj.com/wczbkkvt/)
-- [女子在美容院做「排毒水光肌」套餐，灌肠时肠子被捅破致肠穿孔，这有多危险？美容院要承担哪些责任？](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [中方允许菲方转运一名伤员](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [古代打仗士兵为什么总是要军饷？能保证自己能活下来花吗？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [贾冰回应为何喜欢和小沈阳合作](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](http://www.daogukj.com/thgdlrxk/)
+- [侯英超说张本美和变冷静了](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [82岁老姑娘养老规划太有智慧](http://www.daogukj.com/qqvbmaen/)
+- [年薪几百万后越看妻子越不顺眼](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [松岛辉空闹脾气](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [新郎婚礼当天去医院看病后离世](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [中国屌丝用7千块花掉印度人半年的薪资，体验婆罗门生活，富人生活到底有多奢侈？](http://www.daogukj.com/6313812)
+- [向佐自曝喝蛋白粉把肾喝成了「70 岁」，真的会这样吗？蛋白粉怎样喝才正确？](http://www.daogukj.com/wczbkkvt/)
+- [高速免费最后一刻女子淡定缴费](http://www.movie.hkepx.cn/movie/7868565.htm)
 - [奶奶假牙不见小狗露八颗牙](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [假期超21亿人次跨区域流动](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [霍启刚见证郭晶晶获授荣誉院士](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [我的大学图书馆](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [“为了看短剧 我妈两年花22万”](http://www.movie.hkepx.cn/xiju/4060100.htm)
 - [超市生存挑战后续！4人吃完整个超市赢100万美金！](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [张本智和被“满电战神”打没电了](http://www.daogukj.com/jjlkzcvz/)
-- [带班主任体验黄毛的一天](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [女子捡到一袋5元纸币不知如何处理](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [林依晨老公](http://www.daogukj.com/drcaefzl/)
-- [王皓王楚钦观战温瑞博莫雷高德比赛](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [如何看待现在大部分零零后学生几乎不会使用网址进行搜索？](http://www.daogukj.com/rrxeunix/)
-- [肺鼠疫症状](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [诺奖得主获奖后上班欢呼一片](http://www.daogukj.com/qekijaaa/)
-- [曝华为 Mate 90 系列手机首销期销量超 27 万台，“超大杯”占比约 40% 你怎么看？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [让长征故事代代相传](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [俄罗斯官方将研究员死因定性为不明病因肺炎，为啥外界会联系到「鼠疫」？网传四种感染来源的说法哪种更合理？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [“考不上清北就去清北工作”](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [如何看待 DeepSeek 估值已接近 5000 亿元？](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [俄罗斯“不明原因肺炎”事件发酵](http://www.daogukj.com/4880877)
-- [唐驳虎：俄“鼠疫”惊动几大邻国](http://www.daogukj.com/gyblgzpw/)
-- [82岁老姑娘养老规划太有智慧](http://www.daogukj.com/3742193)
-- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [床车旅行管理正在持续升级](http://www.daogukj.com/yhmvbvtt/)
-- [震惊！鱼在网上刷到剁椒鱼头的8种做法！【AI全民制作人】](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [如何看待李玉刚宣布《万疆》永久免费授权，任何歌手在演唱会上演唱《万疆》分文不取？](http://www.daogukj.com/4405323)
-- [妈妈是个超人](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [俄罗斯不明肺炎会传进来吗](http://www.daogukj.com/ydbbqbuc/)
-- [男子自驾游失联两个月后车被找到](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [病房现大面积霉菌 医院称不影响健康](http://www.daogukj.com/5927597)
-- [在大山支教 学校宿舍水太小又冷，已经半个月没洗澡了，扛不住了抓住假期的尾巴出山进城开房洗澡 买菜 拿物资..](http://www.daogukj.com/3691526)
-- [肺鼠疫会人传人](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [兰州牛肉面馆 “最强大脑”师傅](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [《阴阳师》咲耶CG丨拾此一瞬（CV：小泽亚李）](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [李子坝地下33米藏一亿现钞](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [倪萍发文悼念彭玉](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [王楚钦与勒布伦兄弟热聊](http://www.daogukj.com/9555051)
-- [崔晋李勒优聊天记录](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [俄解除不明原因肺炎防疫措施](http://www.daogukj.com/jjlkzcvz/)
+- [【新宿决战】皮特VS鸡哥](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [中使馆提醒：中国公民尽快撤离或转移](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [林依晨全家的早餐是婆婆做的](http://www.daogukj.com/drcaefzl/)
+- [OpenAI发布可交互界面](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [C罗母亲称儿子本可体面离开国家队](http://www.daogukj.com/rrxeunix/)
+- [楼顶藏坟挖出尸骨？警方：系住户捏造](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [创业板指跌幅扩大至3%](http://www.daogukj.com/qekijaaa/)
+- [车子熄火距加油站仅 20 米，加油员拒绝打散装汽油，车主花 350 元拖车到加油站，到底是谁的问题？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [山河奔赴 “数”观假日经济活力](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [网传喀纳斯棕熊索食系AI编造](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [人民日报评“圣黛CP”走红](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [李子坝地下33米藏一亿现钞](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [如何在中国合法造一把你自己的枪？【鹰哥Studio】](http://www.daogukj.com/4880877)
+- [永州女局长 调查结果待公布](http://www.daogukj.com/gyblgzpw/)
+- [请回答1988](http://www.daogukj.com/3742193)
+- [【EPL表演赛】全明星大乱斗2.0](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [缅北电诈逃脱者的自救建议：别打车](http://www.daogukj.com/yhmvbvtt/)
+- [迈克尔·高启强 世界巡演【AI MV大赛】](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [高芙控诉在与孙心然的比赛发生争议球后，自己遭遇网暴和种族歧视，如何评价这起事件？](http://www.daogukj.com/4405323)
+- [如何评价OpenAI撤回3篇手稿？为什么前沿模型会犯这种错误？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [人需要一场旷世长久的长假](http://www.daogukj.com/ydbbqbuc/)
+- [男子放生清道夫引热议，这鱼为何非灭不可？再遇本土大鱼的开心](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [“我穿越成了一棵树。”](http://www.daogukj.com/5927597)
+- [陶哲轩称数学 2.0 时代应淡化攻克难题，如何看待这一转向？](http://www.daogukj.com/3691526)
+- [纪委回应女局长被举报婚内出轨多人](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [湖南一女局长被举报婚内出轨多人](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [来纽约，拍到了些怪东西](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [郭晶晶获授荣誉院士霍启刚直言骄傲](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [唐驳虎：俄“鼠疫”惊动几大邻国](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [俄罗斯鼠疫](http://www.daogukj.com/9555051)
+- [詹姆斯半场10分5助攻](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价字节Seed团队发现DeepSeek性能漂移？](https://www.zhihu.com/question/2091513666864682278)
+- [711 便利店关闭印度全部门店，背后的原因是什么？](https://www.zhihu.com/question/2091466972869257136)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8ba97ffbf97a2f429bec -->
+<!-- content-fingerprint: 8356d66ac18e54cc7274 -->
