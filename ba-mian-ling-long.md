@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 郑钦文红袍加身举金杯旋转拍照
+# 俄方回应特朗普要求换掉乌总统
 
-> 来源：今日头条热榜 · 排名：第 2 位 · 热度：37900573 · 分类：热门事件 · 更新：2026-10-12T09:41:37+08:00
+> 来源：今日头条热榜 · 排名：第 2 位 · 热度：58972788 · 更新：2026-10-12T16:04:31+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“郑钦文红袍加身举金杯旋转拍照”位列第 2 位，公开热度指标为 37900573，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“俄方回应特朗普要求换掉乌总统”位列第 2 位，公开热度指标为 58972788。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [儿科医生按号顺序抢救车祸重伤儿童，后一位家长插队被拒后打电话投诉，此事背后反映了哪些问题？](jiu-niu-yi-mao.md)
-- [“上大学该谈个女朋友了”。我呀？我去谈恋爱啊？！那无敌了……](shi-quan-shi-mei.md)
-- [这些文物见证伟大远征](bai-fa-bai-zhong.md)
-- [本周这些数据值得关注](qian-jun-wan-ma.md)
+- [《纽约时报》评选 21 世纪百佳剧集《绝命毒师》登顶，这份榜单符合你的预期吗？](jiu-niu-yi-mao.md)
+- [那些无法解释的瞬间心理感受。。。又一次把我心里的画面拍了出来，这次你中了几个？](shi-quan-shi-mei.md)
+- [“进厂游”为何火了起来](bai-fa-bai-zhong.md)
+- [红星照耀中国](qian-jun-wan-ma.md)
 
 ## 站内推荐
 
-- [泽连斯基回应特朗普说乌需要新总统](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [媒体曝46岁「数学家」用AI炒股登上富豪榜，年赚642亿，如何看待这一造富神话？对普通人有借鉴意义吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [关羽全新双血条机制登场！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [宿主你好，今天我们速通 赤女](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [《明日方舟》× 国家图书馆「恒远津梁」合作宣传PV](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [周鸿祎攀岩从 3 米高处摔下，左膝粉碎性骨折，攀岩有哪些易被忽视的风险？攀岩时需要做好哪些防护？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [【邓肯】新发恐怖事件！女企业家被儿子雇人送入老年护理中心丨诡异的五亿高中生坠楼谜案！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [逃离闪电侠黄金费德熊！你好邻居Mod](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [可观测宇宙中最困的一声囔](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [《不该存在的访客》继续用爱发电，耗费10000分钟制作，花费1000块](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [郑钦文收获明年澳网的种子席位](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
-- [曼城 3-0 送十人利物浦首败，哈兰德谢尔基破门，如何评价这场比赛？](http://www.daogukj.com/ugtzcfro/)
-- [沙特遭遇十年来最惨袭击](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
-- [我们来到了地中海，重走《奥德赛》十年回家路！](http://www.daogukj.com/vcakiegu/)
-- [ai现在发展到什么程度了？](http://www.movie.hkepx.cn/xiju/3609316.htm)
-- [我国验证出一种全新抗癌疗法，一针纳米材料打进肿瘤可让癌细胞生锈死亡，原理是什么？这一成果具有哪些意义？](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
-- [泽连斯基回应特朗普说乌需要新总统](http://www.daogukj.com/0764598)
-- [大二专科生称靠切片三年赚七百万](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
-- [为什么喝酒喝到微醺会让人感到快乐？](http://www.daogukj.com/4164218)
-- [玩家变成魔王，魔王却成了勇者，这款27年前的游戏竟有隐藏结局！](http://www.daogukj.com/8982602)
-- [短剧男演员凭什么日薪五六万](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
-- [人社部提出「通过政策优化、数据找人等措施，力争基本养老保险参保率稳定在95%以上」，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/4720013.htm)
-- [“上大学该谈个女朋友了”。我呀？我去谈恋爱啊？！那无敌了……](http://www.daogukj.com/zaulbsuv/)
-- [也是当上外卖大法官了](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
-- [我变成了那晚的母亲](http://www.daogukj.com/gbkfzcnu/)
-- [女孩去马来西亚高薪工作后失联](http://www.movie.hkepx.cn/movie/7973247.htm)
-- [霸王茶姬买一送一](http://www.daogukj.com/bdilzxjd/)
-- [王曼昱说对日本球员只有一点优势了](http://www.movie.hkepx.cn/xiju/6416942.htm)
-- [二十年夫妻因1万元打斗致丈夫死亡](http://www.daogukj.com/rioupnlf/)
-- [媒体曝46岁「数学家」用AI炒股登上富豪榜，年赚642亿，如何看待这一造富神话？对普通人有借鉴意义吗？](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
-- [郑钦文决赛闪身步躲球](http://www.daogukj.com/4038825)
-- [蒙古国草原火情蔓延至我边境](http://www.movie.hkepx.cn/xiju/1465121.htm)
-- [郑钦文晒图庆祝夺冠](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
-- [玉簟秋原著](http://www.movie.hkepx.cn/movie/3433204.htm)
-- [12个脑洞大开的做饭方式！](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
-- [关羽全新双血条机制登场！](http://www.movie.hkepx.cn/movie/2806122.htm)
-- [“拖鞋军”打瘫沙特首都机场](http://www.movie.hkepx.cn/xiju/8259656.htm)
-- [记者暗访“搭子”社交：疑现色情服务](http://www.daogukj.com/1174569)
-- [这些文物见证伟大远征](http://www.movie.hkepx.cn/movie/6697492.htm)
-- [专家：今年暖冬基本确定](http://www.movie.hkepx.cn/xiju/5943289.htm)
-- [加油新规11月1日起全面实施](http://www.movie.hkepx.cn/movie/8569024.htm)
-- [请尊重一下你的前额叶](http://www.daogukj.com/pftujnfw/)
-- [郑钦文首夺中网冠军](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
-- [曝李勒优和崔晋妈妈闹掰的原因](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
-- [郑钦文回应夺冠后唱歌](http://www.movie.hkepx.cn/movie/7912436.htm)
-- [人民日报评刹车踏板风波](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
-- [中网女单决赛，郑钦文 2-0 战胜安德列娃夺得冠军，如何评价本场比赛以及她的亮眼表现？](http://www.daogukj.com/acaxfgrw/)
-- [逃离闪电侠黄金费德熊！你好邻居Mod](http://www.movie.hkepx.cn/xiju/9771788.htm)
-- [【独家】牧神记 第104集 龙王有请](http://www.daogukj.com/8766336)
-- [新人第1次编曲耶](http://www.movie.hkepx.cn/movie/9431364.htm)
-- [社保](http://www.movie.hkepx.cn/xiju/8826039.htm)
-- [林俊杰对七七说不要害羞](http://www.daogukj.com/8892908)
-- [农业大棚开工一年即烂尾 负责人失联](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
-- [武汉市委市政府向郑钦文致贺电](http://www.movie.hkepx.cn/movie/0328456.htm)
-- [如何看待腾讯QClaw停运后，网易LobsterAI发信称「不会将用户体验与数据当作内部赛马筹码」？](http://www.daogukj.com/8247088)
-- [《生》生命是什么](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
-- [亲子鉴定32份报告21个非亲生？假的](http://www.daogukj.com/8583894)
-- [侯明昊工作室 别扯了单身勿扰](http://www.daogukj.com/5838795)
-- [媒体评郑钦文中网夺冠：凤凰涅槃](http://www.daogukj.com/mrhwajew/)
-- [女子3个月对盒马399件商品申请仅退款，快递员取件退还吃剩的，涉嫌诈骗罪被采取刑事强制，如何看待此事？](http://www.movie.hkepx.cn/movie/8871014.htm)
+- [霸王茶姬买一送一到底是谁在喝啊](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
+- [沙特利雅得机场再次遇袭造成1死11伤，胡塞武装称也门萨那国际机场也遭沙特袭击，双方冲突会持续升级吗？](http://www.daogukj.com/ugtzcfro/)
+- [电脑卖不动了](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
+- [网络热门长虫视频(124)十岁男孩被太攀蛇咬伤！生命垂危险丧命！](http://www.daogukj.com/vcakiegu/)
+- [知名数码博主疑爆料华为将推出新品牌「星芒」，消息靠谱吗？华为为何在此时选择推子品牌？](http://www.movie.hkepx.cn/xiju/3609316.htm)
+- [霸王茶姬开启买一送一大促，小程序一度崩溃，店员无奈劝退消费者，商家的活动组织和预案出现了哪些问题？](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
+- [周鸿祎攀岩从 3 米高处摔下，左膝粉碎性骨折，攀岩有哪些易被忽视的风险？攀岩时需要做好哪些防护？](http://www.daogukj.com/0764598)
+- [美国女死刑犯注射后未死亡已出院返监](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
+- [张家齐妈妈引争议后，傅园慧爸爸意外迎来「宣发期」，网友称赞他是好爸爸，他好在哪？哪些言行值得家长学习？](http://www.daogukj.com/4164218)
+- [【26年双11显示器推荐】热门型号直降1000+？一条视频讲清楚！2万字爆肝 工业级设备实测 全规格尺寸实拍 1080P/2K/4K的电竞/办公/设计/性价比](http://www.daogukj.com/8982602)
+- [霸王茶姬就崩了致歉](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
+- [如何看待近期社保纳入税务处罚，单位欠缴社保最高罚三倍引发热议？](http://www.movie.hkepx.cn/xiju/4720013.htm)
+- [那些无法解释的瞬间心理感受。。。又一次把我心里的画面拍了出来，这次你中了几个？](http://www.daogukj.com/zaulbsuv/)
+- [《谁家》一周年献礼](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
+- [A股yyds又回来了](http://www.daogukj.com/gbkfzcnu/)
+- [轿车翻下近百米悬崖 车主生还](http://www.movie.hkepx.cn/movie/7973247.htm)
+- [霸王茶姬接不住爆单犯了低级失误](http://www.daogukj.com/bdilzxjd/)
+- [广州一放生团体因官方报备太严格，直接放生两万条鲮鱼，还有放生者称「做善事干吗报备」，随意放生有啥危害？](http://www.movie.hkepx.cn/xiju/6416942.htm)
+- [年轻人为何不再为朋友圈“打工”](http://www.daogukj.com/rioupnlf/)
+- [【邓肯】新发恐怖事件！女企业家被儿子雇人送入老年护理中心丨诡异的五亿高中生坠楼谜案！](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
+- [日本用工市场再现「挑企业」潮，12.1万求职者对应49.9万岗位，应届生薪资普涨达40%，你怎么看？](http://www.daogukj.com/4038825)
+- [如何评价真人化 AI 漫剧《持械入宋》？](http://www.movie.hkepx.cn/xiju/1465121.htm)
+- [郑钦文3年商业收入追平李娜整个生涯](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
+- [朱一龙高叶彭冠英北影同学聚会](http://www.movie.hkepx.cn/movie/3433204.htm)
+- [出海短剧杀疯了](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
+- [逃离闪电侠黄金费德熊！你好邻居Mod](http://www.movie.hkepx.cn/movie/2806122.htm)
+- [霸王茶姬](http://www.movie.hkepx.cn/xiju/8259656.htm)
+- [人民日报调查私人住宅变民宿网约房](http://www.daogukj.com/1174569)
+- [“进厂游”为何火了起来](http://www.movie.hkepx.cn/movie/6697492.htm)
+- [男生梦到妈妈去世 醒来后情绪崩溃](http://www.movie.hkepx.cn/xiju/5943289.htm)
+- [李连杰谈小女儿患抑郁症](http://www.movie.hkepx.cn/movie/8569024.htm)
+- [全民“大烧心时代”来了](http://www.daogukj.com/pftujnfw/)
+- [北京2000多万人口拥有26个211大学，山河四省3亿多人口拥有6个211大学，这种情况是否合理？](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
+- [曝徐良在演唱会上对着嫂子饭撒](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
+- [千元入门手机几乎“灭绝”](http://www.movie.hkepx.cn/movie/7912436.htm)
+- [新能源车没备胎，自驾游该不该自己买一个？不买的人是真懂车，还是心大？](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
+- [江淮汽车10月12日开盘大跌，市值跌破500亿，午间收盘重回 500亿，江淮汽车未来股价还将如何变化？](http://www.daogukj.com/acaxfgrw/)
+- [你 坐 不 过 我 你 信 吗 ？](http://www.movie.hkepx.cn/xiju/9771788.htm)
+- [贾樟柯不是下沉了 是红果上岸了](http://www.daogukj.com/8766336)
+- [中方回应反制巴拉圭伯利兹相关人员](http://www.movie.hkepx.cn/movie/9431364.htm)
+- [谭松韵闷声干大事](http://www.movie.hkepx.cn/xiju/8826039.htm)
+- [北京热力辟谣内部人员代缴采暖费打折](http://www.daogukj.com/8892908)
+- [医生提醒：不要捡街头的银杏果吃](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
+- [电车恶臭拆开底板掉出死狗](http://www.movie.hkepx.cn/movie/0328456.htm)
+- [郑钦文右肩受伤，退出 2026 年武汉网球公开赛，她的伤势有多严重？对后续比赛影响有多大？](http://www.daogukj.com/8247088)
+- [书价为何越来越高](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
+- [李佳琦疑似有孩子了](http://www.daogukj.com/8583894)
+- [王者荣耀](http://www.daogukj.com/5838795)
+- [王曼昱和孙颖莎谁能先拿到大满贯](http://www.daogukj.com/mrhwajew/)
+- [儿科医生按号顺序抢救车祸重伤儿童，后一位家长插队被拒后打电话投诉，此事背后反映了哪些问题？](http://www.movie.hkepx.cn/movie/8871014.htm)
 
 </details>
 
 ## 原始来源
 
-- [郑钦文红袍加身举金杯旋转拍照](https://www.toutiao.com/trending/7695060721759125513/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227695060721759125513%22%2C%22hot_board_impr_id%22%3A%22202610120941353DCB91C1A81D1FABDF74%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [俄方回应特朗普要求换掉乌总统](https://www.toutiao.com/trending/7695203333712052243/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227695203333712052243%22%2C%22hot_board_impr_id%22%3A%22202610121604304CA47F32744A7D5F6F42%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 90c2942a26f773f966b7 -->
+<!-- content-fingerprint: daa79da77f4d331a1356 -->
