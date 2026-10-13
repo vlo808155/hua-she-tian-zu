@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【A2O】A2O LITE 'NEON' Official Video
+# 亏损千万，无以为继，赛雷图书组正式解散
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：324827 · 分类：MV · 更新：2026-10-13T01:56:22+08:00
+> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：376106 · 分类：科学科普 · 更新：2026-10-13T08:32:33+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【A2O】A2O LITE 'NEON' Official Video”位列第 1 位，公开热度指标为 324827，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“亏损千万，无以为继，赛雷图书组正式解散”位列第 1 位，公开热度指标为 376106，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：A2O LITE 'NEON' Official Video A2O LITE Debut Digital Single 'NEON' 2026.10.13 5PM (CST) Zalpha Pop by A2O Produced by S.M. LEE Presented by A2O Entertainment - A2O LITE - YOUNG OA AYUNE AIJING HIMEKI RADA XILI VORA MERCI - A2O 官方网站 - www.a2oentertain
+来源公开摘要显示：这几天，很多小伙伴都在问我们在音符平台发的赛雷玩偶被拉走的视频到底是怎么回事，很抱歉隔了这么久，才给大家一个回应。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `MV`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [“共享儿女”你能接受吗](liu-shen-wu-zhu.md)
-- [霸王茶姬回应买一送一活动初衷](qi-shang-ba-xia.md)
-- [比亚迪副总裁：5年内成全球第一车企](ba-mian-ling-long.md)
-- [日本爆发倒闭潮，2026财年上半年负债千万日元以上企业破产5373起，创13年新高，背后有哪些原因？](jiu-niu-yi-mao.md)
+- [中科院回应“住酒店可进天眼核心区”](liu-shen-wu-zhu.md)
+- [霸王茶姬加盟商发声](qi-shang-ba-xia.md)
+- [郑钦文收入97%来自品牌代言](ba-mian-ling-long.md)
+- [如何评价番茄小说2026年10月12日签约新规？](jiu-niu-yi-mao.md)
 
 ## 站内推荐
 
-- [《不该存在的访客》继续用爱发电，耗费10000分钟制作，花费1000块](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [CHUU道歉](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [男生梦到妈妈去世 醒来后情绪崩溃](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [如何看待近期社保纳入税务处罚，单位欠缴社保最高罚三倍引发热议？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [霸王茶姬开启买一送一大促，小程序一度崩溃，店员无奈劝退消费者，商家的活动组织和预案出现了哪些问题？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [“轮回百世，嘴硬百世。”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [50块钱可以在熟食店卖那些东西？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [撒贝宁龙凤胎长这么大了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [29万亿应收账款该怎么清欠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [Meta推出新模型Muse Wonder](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [一吃梨就拉肚子，能科学地解释下原因么？](http://www.movie.hkepx.cn/xiju/9473962.htm)
-- [“中国天眼”发现真实宇宙三体世界](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
-- [智能插排被黑客入侵致观赏鱼团灭](http://www.daogukj.com/9950285)
-- [郑钦文团队一天就得花五万多块](http://www.daogukj.com/hdjwtczf/)
-- [为什么全国各地都抢着办演出](http://www.movie.hkepx.cn/xiju/3930873.htm)
-- [江淮汽车10月12日开盘大跌，市值跌破500亿，午间收盘重回 500亿，江淮汽车未来股价还将如何变化？](http://www.daogukj.com/lahsyiok/)
-- [新能源车出口退税从 13% 降至 9%，2027 年 4 月落地，会影响国内车企出海利润与海外定价吗？](http://www.movie.hkepx.cn/movie/2808271.htm)
-- [纽北二刷！SU7Ultra能成为第一台BTG 7分内的中国车吗？](http://www.daogukj.com/pdxtjjps/)
-- [女子左臀疼1个月挤出发黑注射针头](http://www.movie.hkepx.cn/movie/8646334.htm)
-- [陈小纭 整骨](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
-- [一镜到底骑行在路边发现一条未知小路，沉浸式体验在城市角落探索](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
-- [私营加油站的油跑不远是真的吗](http://www.daogukj.com/0662108)
-- [霸王茶姬店员劝退消费者](http://www.daogukj.com/ytojyrlp/)
-- [鹿晗说谁是你老公](http://www.movie.hkepx.cn/xiju/5031303.htm)
-- [特朗普为何“大撒币”？中期选举究竟有多重要？【纸牌屋现实版】](http://www.movie.hkepx.cn/movie/6436180.htm)
-- [董卿丈夫密春雷卸任上海人寿董事长](http://www.daogukj.com/3990167)
-- [女子长假把宠物鸡寄养在养鸡场](http://www.movie.hkepx.cn/xiju/2312432.htm)
-- [如何看待近期社保纳入税务处罚，单位欠缴社保最高罚三倍引发热议？](http://www.movie.hkepx.cn/xiju/8661033.htm)
+- [儿子帮妈妈拔针步步做错](http://www.movie.hkepx.cn/xiju/9473962.htm)
+- [“我酒桶有自己的想法！”369、Karsa重聊纳尔往事【LPL视频播客丨把TA叫过来ep2】](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
+- [男生梦到妈妈去世 醒来后情绪崩溃](http://www.daogukj.com/9950285)
+- [朋友离世后我送的同人本被卖](http://www.daogukj.com/hdjwtczf/)
+- [马斯克直播被女儿打断匆忙下线](http://www.movie.hkepx.cn/xiju/3930873.htm)
+- [霸王茶姬奖励员工1350万元，350万元团建费，1000万元红包，全部给到一线门店员工，如何评价此举？](http://www.daogukj.com/lahsyiok/)
+- [谭松韵计划27岁结婚30岁前生娃](http://www.movie.hkepx.cn/movie/2808271.htm)
+- [遗传定律：一种疾病，为什么能在家族中潜伏数代？](http://www.daogukj.com/pdxtjjps/)
+- [董卿老公卸任上海人寿董事长](http://www.movie.hkepx.cn/movie/8646334.htm)
+- [在大学想换宿舍怎么办?](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
+- [武网施晗爆冷淘汰伊埃拉](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
+- [赵露思亲友自嗨神作《我不是npc》](http://www.daogukj.com/0662108)
+- [邓紫棋娶进狱男友被脱粉，王星绑架后网贷仍没还完，代露娃献祭父母后开始洗白【吃瓜周报】](http://www.daogukj.com/ytojyrlp/)
+- [《小 时 候 最 刺 激 的 一 集》](http://www.movie.hkepx.cn/xiju/5031303.htm)
+- [劳务外包的代价落到谁头上](http://www.movie.hkepx.cn/movie/6436180.htm)
+- [【花小烙】蚰蜒：不就是腿多了点嘛，我们真没那么恐怖！](http://www.daogukj.com/3990167)
+- [民调：八成日本人反对军事介入台海](http://www.movie.hkepx.cn/xiju/2312432.htm)
+- [29万亿应收账款该怎么清欠](http://www.movie.hkepx.cn/xiju/8661033.htm)
 - [两款燃油车重回销量榜前十](http://www.daogukj.com/0078862)
-- [奥迪全系买一赠一？上汽奥迪回应](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
-- [精神病医院纷纷更名「人民医院」「脑科医院」，这样能有效减轻病耻感吗？改名之外，真正需要改变的是什么？](http://www.daogukj.com/4309889)
-- [为什么医院验血要抽好几管血？为什么不能一管多用？](http://www.daogukj.com/nprhrdaf/)
-- [周鸿祎攀岩从 3 米高处摔下，左膝粉碎性骨折，攀岩有哪些易被忽视的风险？攀岩时需要做好哪些防护？](http://www.movie.hkepx.cn/movie/1442506.htm)
-- [陈小纭已经是完全认不出的程度了](http://www.daogukj.com/4057647)
-- [北京热力辟谣代缴采暖费能打折](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
-- [曝时代少年团10月个人行程](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
-- [女子凌晨被撬窗掳走送戒网瘾机构](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
-- [比亚迪副总裁：5年内成全球第一车企](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
-- [马斯克直播被女儿打断匆忙下线](http://www.movie.hkepx.cn/xiju/7985479.htm)
-- [男生梦到妈妈去世 醒来后情绪崩溃](http://www.movie.hkepx.cn/movie/2019373.htm)
-- [CHUU道歉](http://www.daogukj.com/4851140)
-- [郑钦文收入97%来自品牌代言](http://www.daogukj.com/ssypiueg/)
-- [霸王茶姬回应买一送一活动初衷](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
-- [中国旅客转机亲历爆炸：大家都在哭喊](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
-- [那个卖菱角的小贩想要弄伤我的鳞片](http://www.daogukj.com/lzxgwnjt/)
-- [央视曝投资1.2亿项目仅建5个棚](http://www.movie.hkepx.cn/xiju/4607012.htm)
-- [郑钦文收入九成来自代言](http://www.movie.hkepx.cn/movie/8010450.htm)
-- [评论员：日本是铁了心要介入台海](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
-- [曝某大厂员工当众掌掴领导，疑因遭领导拒绝批假，其企微个签「研究国法企规」获1万同事点赞，具体啥情况？](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
-- [老板轻拍顾客提醒上菜 顾客摔盘离开](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
-- [霸王茶姬加盟商发声](http://www.movie.hkepx.cn/xiju/4057893.htm)
-- [“有人天生就喜欢这种感觉”](http://www.daogukj.com/mgibxpfj/)
-- [博主：明年油车迎来3大变化](http://www.movie.hkepx.cn/movie/3059200.htm)
-- [霸王茶姬奖励员工1350万元，350万元团建费，1000万元红包，全部给到一线门店员工，如何评价此举？](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
-- [李娜自曝宣布退役后一个月怀孕](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
-- [当声优被AI抢走饭碗后](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
-- [虎鲸妈妈托着夭折幼崽游了 17 天、1600 公里，如何理解这种行为？动物真的会哀悼亲人吗？](http://www.movie.hkepx.cn/xiju/2631994.htm)
-- [史上最固执大爷-珍爱生命，远离牌桌6.0](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
-- [你 坐 不 过 我 你 信 吗 ？](http://www.daogukj.com/qfedcfsy/)
-- [蛋价跌回“4元时代”](http://www.daogukj.com/djjsqhar/)
+- [C罗凌空斩建功 距离千球只差19球](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
+- [被继母怀疑拿钱 女孩自学开车出走](http://www.daogukj.com/4309889)
+- [郭宇欣扛住了长剧镜头](http://www.daogukj.com/nprhrdaf/)
+- [张继科说乒乓球热度是他带起来的](http://www.movie.hkepx.cn/movie/1442506.htm)
+- [李娜自曝宣布退役后一个月怀孕](http://www.daogukj.com/4057647)
+- [目前在世的钢琴大师中，郎朗能排到什么位置？](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
+- [豆包接入生活缴费、订票等服务，大模型争相做生活入口，传统 App 会边缘化吗？资金和信息安全如何保障？](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
+- [NBA季前赛开拓者大胜伦敦雄狮53分](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
+- [郑钦文收入97%来自品牌代言](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
+- [想你的蒙古野火沙尘还会从内蒙吹到海南吗？](http://www.movie.hkepx.cn/xiju/7985479.htm)
+- [撒贝宁龙凤胎长这么大了](http://www.movie.hkepx.cn/movie/2019373.htm)
+- [50块钱可以在熟食店卖那些东西？](http://www.daogukj.com/4851140)
+- [新能源车出口退税从 13% 降至 9%，2027 年 4 月落地，会影响国内车企出海利润与海外定价吗？](http://www.daogukj.com/ssypiueg/)
+- [霸王茶姬加盟商发声](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
+- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
+- [精神小妹误闯天家](http://www.daogukj.com/lzxgwnjt/)
+- [开拓者狂胜53分 杨瀚森13分4板4助](http://www.movie.hkepx.cn/xiju/4607012.htm)
+- [王老菊曾说做游戏是因为「觉得自己也行」，游戏阅历极高，「亏600万」做了7年的游戏将上线，你看好吗？](http://www.movie.hkepx.cn/movie/8010450.htm)
+- [吉林白城排查整治扶贫项目大棚撂荒](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
+- [郑钦文与王曼昱夺冠奖金相差近 9 倍，背后反映出网球与乒乓球怎样的商业化差距？](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
+- [导师没有拿到诺贝尔奖，如何安慰他？](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
+- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.movie.hkepx.cn/xiju/4057893.htm)
+- [刘学义是谭松韵的铁粉](http://www.daogukj.com/mgibxpfj/)
+- [【A2O】A2O LITE 'NEON' Official Video](http://www.movie.hkepx.cn/movie/3059200.htm)
+- [媒体曝光内蒙古一投资1.2亿元项目，仅建成5个大棚，承建商为空壳公司，具体是怎么回事？钱还能追回来吗？](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
+- [《我不是药神》原型24年吃了3.5万片药](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
+- [张彬谈中方制裁巴拉圭伯利兹反华政客](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
+- [“共享儿女”你能接受吗](http://www.movie.hkepx.cn/xiju/2631994.htm)
+- [为什么河北的人大部分都往外省跑，是他们不想家吗？](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
+- [《生化危机：爆发夜》为什么好看](http://www.daogukj.com/qfedcfsy/)
+- [民调显示超半数受访者支持英国重新入欧，可能性有多大？对英国和欧洲意味着什么？](http://www.daogukj.com/djjsqhar/)
 
 </details>
 
 ## 原始来源
 
-- [【A2O】A2O LITE 'NEON' Official Video](https://b23.tv/BV1VVpo6gEYg)
+- [亏损千万，无以为继，赛雷图书组正式解散](https://b23.tv/BV1UFpd6cETJ)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 66c07a621f09fcd14099 -->
+<!-- content-fingerprint: d831e7c9ac14cf54795d -->

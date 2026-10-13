@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 小学门口的水钻贴纸在外网火了
+# 又一“中国造”全球爆单
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7520236 · 更新：2026-10-13T01:56:22+08:00
+> 来源：百度热搜 · 排名：第 3 位 · 热度：7523441 · 更新：2026-10-13T08:32:33+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“小学门口的水钻贴纸在外网火了”位列第 3 位，公开热度指标为 7520236。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“又一“中国造”全球爆单”位列第 3 位，公开热度指标为 7523441。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：国内小学门口常见的廉价水钻贴纸，近期在外网走红，成为欧美Z世代的流行时尚。海外年轻人将其贴在手机、水杯，还贴在面部妆容上，掀起贴钻热潮。该风潮走红社交平台后，不少网友感慨，儿时的小玩具摇身变为海外新潮审美趋势。
+来源公开摘要显示：近年来，广东深圳的机器人产品加速出海，科技优势正在加快转化为出口竞争力。深圳海关最新数据显示，今年前8个月，深圳税则单独列名的各类机器人合计出口同比激增12倍。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [朋友离世后我送的同人本被卖](chun-nuan-hua-kai.md)
-- [女子左臀疼了一个月洗澡时挤出针头](qiu-gao-qi-shuang.md)
-- [霸王茶姬奖励员工1350万元，350万元团建费，1000万元红包，全部给到一线门店员工，如何评价此举？](bing-tian-xue-di.md)
-- [deepseek 翻唱《人是猫》真完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](ri-xin-yue-yi.md)
+- [郑钦文团队一天就得花五万多块](chun-nuan-hua-kai.md)
+- [吉林松原回应“大棚撂荒仍领补贴”](qiu-gao-qi-shuang.md)
+- [媒体曝光内蒙古一投资1.2亿元项目，仅建成5个大棚，承建商为空壳公司，具体是怎么回事？钱还能追回来吗？](bing-tian-xue-di.md)
+- [你 坐 不 过 我 你 信 吗 ？](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
-- [“共享儿女”你能接受吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [陈小纭已经是完全认不出的程度了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [周鸿祎攀岩从 3 米高处摔下，左膝粉碎性骨折，攀岩有哪些易被忽视的风险？攀岩时需要做好哪些防护？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [豆包指导穿搭，笑死我了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [“有人天生就喜欢这种感觉”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [中科院回应“住酒店可进天眼核心区”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [李娜自曝宣布退役后一个月怀孕](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [张继科说乒乓球热度是他带起来的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [李善宝小美分手](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [刘学义是谭松韵的铁粉](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [豆包指导穿搭，笑死我了](http://www.daogukj.com/2989641)
-- [莫氏鸡煲莫叔称为养鸡场砸了 600 万，儿女都已辞职，很可能会再背上一身债务，如何看待他的选择？](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [如何看待穆欣月（桃晚安）成亚运会电竞项目首位女子冠军后，其父亲说后悔以前阻拦她打游戏搞电竞？](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [霸王茶姬开启买一送一大促，小程序一度崩溃，店员无奈劝退消费者，商家的活动组织和预案出现了哪些问题？](http://www.daogukj.com/5775563)
-- [特朗普为何“大撒币”？中期选举究竟有多重要？【纸牌屋现实版】](http://www.daogukj.com/1579567)
-- [新能源车出口退税从 13% 降至 9%，2027 年 4 月落地，会影响国内车企出海利润与海外定价吗？](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [目前在世的钢琴大师中，郎朗能排到什么位置？](http://www.daogukj.com/rvgjqsig/)
-- [男生梦到妈妈去世 醒来后情绪崩溃](http://www.daogukj.com/vcxumdys/)
-- [央视曝投资1.2亿项目仅建5个棚](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [女子左臀疼1个月挤出发黑注射针头](http://www.daogukj.com/4998351)
-- [奥迪全系买一赠一？上汽奥迪回应](http://www.daogukj.com/puqecrgq/)
-- [“有人天生就喜欢这种感觉”](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [内娱来了五位AI艺人](http://www.daogukj.com/mbleegev/)
-- [老板轻拍顾客提醒上菜 顾客摔盘离开](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [为什么医院验血要抽好几管血？为什么不能一管多用？](http://www.daogukj.com/9378743)
-- [31岁抗癌博主离世 临终前狂吃冰](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [你 坐 不 过 我 你 信 吗 ？](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [如何看待近期社保纳入税务处罚，单位欠缴社保最高罚三倍引发热议？](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [AI 逆向工程项目 REA 爆火，闭源软件是否都要被迫开源？](http://www.daogukj.com/4067994)
-- [博主：明年油车迎来3大变化](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [【花小烙】蚰蜒：不就是腿多了点嘛，我们真没那么恐怖！](http://www.daogukj.com/0687577)
-- [我不是药神原型陆勇即将停药](http://www.daogukj.com/0028791)
-- [北京热力辟谣内部人员代缴采暖费打折](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [上汽奥迪回应奥迪全系买一赠一](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [评论员：日本是铁了心要介入台海](http://www.daogukj.com/0384955)
-- [兰香如故24年就定了女主谭松韵](http://www.daogukj.com/yjaakhwu/)
-- [爸爸称板栗虫高蛋白哄女儿生吃](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [女子凌晨被撬窗掳走送戒网瘾机构](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [“共享儿女”你能接受吗](http://www.daogukj.com/6760233)
-- [刘学义是谭松韵的铁粉](http://www.daogukj.com/0471626)
-- [遗传定律：一种疾病，为什么能在家族中潜伏数代？](http://www.daogukj.com/znjtiiff/)
-- [郑钦文收入97%来自品牌代言](http://www.daogukj.com/dduwvxya/)
-- [中文在线称，中国55%的token消耗指向AI短剧，如何看待这一现象？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [陈小纭 整骨](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [纽北二刷！SU7Ultra能成为第一台BTG 7分内的中国车吗？](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
-- [【A2O】A2O LITE 'NEON' Official Video](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [小说里产后妻子被嘲丈夫出手](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [董卿丈夫密春雷卸任上海人寿董事长](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [史上最固执大爷-珍爱生命，远离牌桌6.0](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [中国旅客转机亲历爆炸：大家都在哭喊](http://www.daogukj.com/jmwlrqbo/)
-- [女子长假把宠物鸡寄养在养鸡场](http://www.daogukj.com/7834239)
-- [当声优被AI抢走饭碗后](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [精神病医院纷纷更名「人民医院」「脑科医院」，这样能有效减轻病耻感吗？改名之外，真正需要改变的是什么？](http://www.movie.hkepx.cn/movie/2182682.htm)
-- [deepseek 翻唱《人是猫》真完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](http://www.daogukj.com/5450676)
-- [智能插排被黑客入侵致观赏鱼团灭](http://www.movie.hkepx.cn/xiju/5833368.htm)
-- [红星照耀中国](http://www.daogukj.com/3022115)
-- [跟着AI教学能否实现薯条自由？](http://www.daogukj.com/9730014)
-- [如何评价番茄小说2026年10月12日签约新规？](http://www.daogukj.com/vgdwnerp/)
-- [“中国天眼”发现真实宇宙三体世界](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [郑钦文团队一天就得花五万多块](http://www.daogukj.com/pmvtaymm/)
+- [李善宝小美分手](http://www.daogukj.com/2989641)
+- [新人结婚66个拱门从新郎家摆到新娘家](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [男子目睹妻子出轨持刀刺伤第三者](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [Meta推出新模型Muse Wonder](http://www.daogukj.com/5775563)
+- [劳务外包的代价落到谁头上](http://www.daogukj.com/1579567)
+- [谭松韵计划27岁结婚30岁前生娃](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [这台缝纫机凭什么卖遍207个国家](http://www.daogukj.com/rvgjqsig/)
+- [撒贝宁龙凤胎长这么大了](http://www.daogukj.com/vcxumdys/)
+- [开拓者狂胜53分 杨瀚森13分4板4助](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [董卿老公卸任上海人寿董事长](http://www.daogukj.com/4998351)
+- [C罗凌空斩建功 距离千球只差19球](http://www.daogukj.com/puqecrgq/)
+- [刘学义是谭松韵的铁粉](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [如何评价国际乒联世界排名更新，女单王曼昱第一，孙颖莎第二，男单王楚钦第五，男单前四被外协选手包揽？](http://www.daogukj.com/mbleegev/)
+- [导师没有拿到诺贝尔奖，如何安慰他？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [郭宇欣扛住了长剧镜头](http://www.daogukj.com/9378743)
+- [美股存储、光通信暴跌](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [《生化危机：爆发夜》为什么好看](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [29万亿应收账款该怎么清欠](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [女儿送车爸爸第一反应让人鼻酸](http://www.daogukj.com/4067994)
+- [【A2O】A2O LITE 'NEON' Official Video](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [大众发布会提刹车踩不断](http://www.daogukj.com/0687577)
+- [《不该存在的访客》继续用爱发电，耗费10000分钟制作，花费1000块](http://www.daogukj.com/0028791)
+- [北京热力辟谣代缴采暖费能打折](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [精神病医院纷纷更名「人民医院」「脑科医院」，这样能有效减轻病耻感吗？改名之外，真正需要改变的是什么？](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [吉林白城排查整治扶贫项目大棚撂荒](http://www.daogukj.com/0384955)
+- [印度正式提交 2036 年奥运会申办申请，其胜选几率有多大？面临哪些现实短板？](http://www.daogukj.com/yjaakhwu/)
+- [“中国天眼”发现真实宇宙三体世界](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [NBA季前赛开拓者大胜伦敦雄狮53分](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [中科院回应“住酒店可进天眼核心区”](http://www.daogukj.com/6760233)
+- [段位争夺战](http://www.daogukj.com/0471626)
+- [C罗进球 利雅得胜利迎亚冠首胜](http://www.daogukj.com/znjtiiff/)
+- [新能源车出口退税从 13% 降至 9%，2027 年 4 月落地，会影响国内车企出海利润与海外定价吗？](http://www.daogukj.com/dduwvxya/)
+- [陶哲轩的「黑盒 AI 治癌药」思想实验引发争议，如何看待这一讨论？人类需要完全理解科学研究的过程吗？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
+- [在大学想换宿舍怎么办?](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [遗传定律：一种疾病，为什么能在家族中潜伏数代？](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [亏损千万，无以为继，赛雷图书组正式解散](http://www.movie.hkepx.cn/movie/1344966.htm)
+- [为什么医院验血要抽好几管血？为什么不能一管多用？](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [【花小烙】蚰蜒：不就是腿多了点嘛，我们真没那么恐怖！](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [为什么河北的人大部分都往外省跑，是他们不想家吗？](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.daogukj.com/jmwlrqbo/)
+- [民调：八成日本人反对军事介入台海](http://www.daogukj.com/7834239)
+- [张彬谈中方制裁巴拉圭伯利兹反华政客](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [被继母怀疑拿钱 女孩自学开车出走](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [你 坐 不 过 我 你 信 吗 ？](http://www.daogukj.com/5450676)
+- [男生梦到妈妈去世 醒来后情绪崩溃](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [走再远也别忘了于都河](http://www.daogukj.com/3022115)
+- [杨瀚森接球面对空篮起飞暴扣](http://www.daogukj.com/9730014)
+- [备婚女生因三金折现和父母争吵](http://www.daogukj.com/vgdwnerp/)
+- [“我酒桶有自己的想法！”369、Karsa重聊纳尔往事【LPL视频播客丨把TA叫过来ep2】](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [朋友离世后我送的同人本被卖](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
 ## 原始来源
 
-- [小学门口的水钻贴纸在外网火了](https://www.baidu.com/s?wd=%E5%B0%8F%E5%AD%A6%E9%97%A8%E5%8F%A3%E7%9A%84%E6%B0%B4%E9%92%BB%E8%B4%B4%E7%BA%B8%E5%9C%A8%E5%A4%96%E7%BD%91%E7%81%AB%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [又一“中国造”全球爆单](https://www.baidu.com/s?wd=%E5%8F%88%E4%B8%80%E2%80%9C%E4%B8%AD%E5%9B%BD%E9%80%A0%E2%80%9D%E5%85%A8%E7%90%83%E7%88%86%E5%8D%95&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 11648dfaba9b51d6f047 -->
+<!-- content-fingerprint: 31d95d5292423f3c5959 -->
