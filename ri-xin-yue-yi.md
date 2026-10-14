@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 2026全球总决赛LPL赛区出征片《风起今朝》
+# 铁打的片仔癀 流水的董事长
 
-> 来源：哔哩哔哩热门 · 排名：第 4 位 · 热度：365083 · 分类：电子竞技 · 更新：2026-10-14T17:46:14+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7427122 · 更新：2026-10-14T22:45:31+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“2026全球总决赛LPL赛区出征片《风起今朝》”位列第 4 位，公开热度指标为 365083，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“铁打的片仔癀 流水的董事长”位列第 4 位，公开热度指标为 7427122。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：风中总会传来关于过去的回响 那是3015个没有结果的日夜才等来的故事开篇 是咫尺之隔的遥望后许下的不甘誓言 是在通向赛场的通道里酝酿的决心 是用4%的希望述说的奇迹 当金雨再度飘落，照片又一次翻动，赛场再一次响彻，而关于梦想的声音又一次回荡耳边的时候 风又将诉说新的传奇 少年立于今朝，望向前方的路 起风了
+来源公开摘要显示：10月13日，片仔癀发公告称，董事长林志辉因工作调整辞职，未公布新任人选。这是片仔癀自2021年来第四次换帅。管理层频繁变动背后，公司业绩持续承压，2025年营收净利双降，2026年上半年颓势未减。原因是核心产品片仔癀锭剂销售乏力、价格倒挂，第二增长曲线未起色。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [黄奇帆被查 重庆：坚决拥护党中央决定](hua-she-tian-zu.md)
-- [原来这才是正确的消费观](yi-xin-yi-yi.md)
-- [我军匕首枪曝光](san-xin-er-yi.md)
-- [王星自曝在缅甸手机被拿走刷网贷，从法律角度看，被胁迫借下的网贷该还吗？](si-hai-wei-jia.md)
+- [今年双11告别算数题](hua-she-tian-zu.md)
+- [入职第一天因截图社死](yi-xin-yi-yi.md)
+- [多地组织筛查干部档案有何深意](san-xin-er-yi.md)
+- [微信上线绿泡泡短剧，腾讯此前多次进军短剧市场都效果平平，这次能成功吗？能撼动红果的地位吗？](si-hai-wei-jia.md)
 
 ## 站内推荐
 
-- [《明日方舟：终末地》干员叙事 [祀：洒扫庭除]](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [《异环》明音凛角色PV丨Letters to me](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [再访](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [伍浩被双开](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [宋亚轩现在就出发4录制](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [今年国庆消费 有啥不一样](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [武网头号种子萨巴伦卡爆冷出局](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [1张脸标价500块 小心人脸授权陷阱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [陈小春弟弟](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [奚梦瑶和现在简直判若两人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么熊大熊二不许光头强伤害小动物，自己却捉鱼吃?](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
-- [官方通报女子高铁和男友开免提通话](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
-- [宜宾一摊主被顾客差评后遭网暴，最后不堪重压选择跳河轻生，如何避免这种悲剧再次发生？](http://www.daogukj.com/6635536)
-- [千问办公出了电商版](http://www.daogukj.com/5112321)
-- [辽宁盘锦地震](http://www.daogukj.com/ipwmcbrx/)
-- [睁眼就是豪赌！炒股买房婚恋整容，韩国普通人的人生只能有一种答案？｜地球观察局EP03【视频播客】](http://www.daogukj.com/0838857)
-- [日本称第三国进入争议岛屿不可接受](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
-- [我军匕首枪曝光](http://www.movie.hkepx.cn/movie/2653607.htm)
-- [黄奇帆被查 重庆：坚决拥护党中央决定](http://www.movie.hkepx.cn/movie/2345084.htm)
-- [百果园2年亏掉了7个亿，问题出在哪里？百果园既想做高品质水果，又想强调高性价比，品牌定位该如何取舍？](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
-- [贵州小伙零彩礼迎娶1.8米俄罗斯姑娘](http://www.movie.hkepx.cn/xiju/6793540.htm)
-- [油价明晚或迎年内第6次下调](http://www.daogukj.com/2792130)
-- [电动三轮摩托车上路需要哪些条件](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
-- [秋天建议多吃这种水果](http://www.movie.hkepx.cn/movie/1067049.htm)
-- [基米呐基米，狗哥断不了情根！](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
-- [鲁H2M222偶遇鲁H2W222](http://www.daogukj.com/1652635)
-- [金晨刚交完学费美国学校就倒闭了](http://www.movie.hkepx.cn/xiju/9905863.htm)
-- [大庆，一座孤独的城市](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
-- [网传“禁止教师用AI备课”系误读](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
-- [LV 承认起诉茉莉奶白产生负面影响，第三季度中国客群需求下降 15% ，怎样看待这一变化？](http://www.movie.hkepx.cn/xiju/4386657.htm)
-- [缅北四大家族3个已被中国宣判](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
-- [如何看待饶毅老师发文爆料某华人编辑收费 200 万，帮忙发论文？](http://www.movie.hkepx.cn/xiju/3638436.htm)
-- [男子每天2包烟抽38年心脏血管堵90%](http://www.daogukj.com/7944277)
-- [我去当司机大家觉得有搞头嘛！](http://www.daogukj.com/8908969)
-- [A股收评：超4400只个股飘绿](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
-- [深圳生育津贴9个月支出超49亿](http://www.play.hengshemaoyi.cn/xiju/9948582.htm)
-- [女子听劝多查几遍 确诊早期乳腺癌](http://www.movie.hkepx.cn/xiju/6922648.htm)
-- [如何看待二本毕业女生待业一年，仍坚持找一份双休工作？是不愿降低生活标准，还是对就业市场缺乏认知？](http://www.play.hengshemaoyi.cn/kongbu/0311261.htm)
-- [宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
-- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
-- [《还珠格格》第三部为何替换掉绝大部分演员？](http://www.daogukj.com/samlsvei/)
-- [宋亚轩现在就出发4录制](http://www.daogukj.com/upwbykhc/)
-- [如何评价老干妈引入AI 用于检验辣椒品质，将600人生产线减至48人？AI 能给食品制造业带来啥改变？](http://www.daogukj.com/dqafhzpy/)
-- [黄奇帆落马次日重庆开会表态](http://www.daogukj.com/wqdjnvax/)
-- [遭东北虎袭击身亡的英国男子曾是童星](http://www.movie.hkepx.cn/movie/3230647.htm)
-- [胡先煦 刁卓](http://www.daogukj.com/0955188)
-- [松岛辉空闪光灯事件真相大白](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
-- [贾静雯证实女儿恋情](http://www.daogukj.com/8951042)
-- [A股“股王”再度易位](http://www.daogukj.com/6868668)
-- [比亚迪吉利奇瑞集体发布声明](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
-- [高铁上免提通话扰邻 只能靠劝解决吗](http://www.daogukj.com/6244721)
-- [【萌黄一槽】是谁“电眼逼人”？迪鲁达全技能爆料！](http://www.movie.hkepx.cn/xiju/4196972.htm)
-- [霸王茶姬格局](http://www.daogukj.com/8252530)
-- [【亚某爆料时间】王者十一周年限定盾山传说皮限时活动免费换](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
-- [包惠被开除党籍](http://www.movie.hkepx.cn/xiju/3203404.htm)
-- [印度排位对局👳🏽绝活天残脚vs丝滑半截山！😱从来没有见过这等招式！](http://www.daogukj.com/cmilhphd/)
-- [原来这才是正确的消费观](http://www.daogukj.com/8929579)
-- [原来502胶水是这么来的！致敬伟大的科研人员！](http://www.daogukj.com/xyvhazpu/)
-- [百日宴孩子母亲道歉](http://www.movie.hkepx.cn/xiju/5070981.htm)
-- [贾静雯自嘲未婚先孕](http://www.movie.hkepx.cn/xiju/1375597.htm)
+- [如何看待网红女装品牌CHICYOU因使用狸花猫背部毛皮制作毛领遭网友抵制？哪些渠道的毛皮可能涉嫌违法？](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
+- [女子被母亲介绍的相亲对象骗122万](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
+- [韩国队后辈被曝不满队长孙兴慜领导甚至暗示退出，背后深层原因是什么？](http://www.daogukj.com/6635536)
+- [黄奇帆被查重庆市委表态](http://www.daogukj.com/5112321)
+- [CPI](http://www.daogukj.com/ipwmcbrx/)
+- [加拿大鹅道歉了](http://www.daogukj.com/0838857)
+- [李吉妮爆冷逆转头号种子萨巴伦卡](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
+- [多地组织筛查干部档案有何深意](http://www.movie.hkepx.cn/movie/2653607.htm)
+- [今年双11告别算数题](http://www.movie.hkepx.cn/movie/2345084.htm)
+- [印度排位对局👳🏽绝活天残脚vs丝滑半截山！😱从来没有见过这等招式！](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
+- [国台办回应蔡康永现身沈伯洋竞选活动，在大是大非问题上没有任何模糊的空间，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/6793540.htm)
+- [A股明天能否迎来转机](http://www.daogukj.com/2792130)
+- [黄奇帆落马 重庆开会表态](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
+- [免费马戏表演骗局卷土重来](http://www.movie.hkepx.cn/movie/1067049.htm)
+- [77天1400公里独自横穿羌塘，杨柳松与北方的空地](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
+- [这套被拆迁房正在寻找继承人](http://www.daogukj.com/1652635)
+- [萨巴伦卡武网赛中砸球拍释放情绪](http://www.movie.hkepx.cn/xiju/9905863.htm)
+- [我对不同假期的态度](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
+- [黄金](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
+- [【Re:从零开始的AI学习】第一季总集篇｜从入门到用好 AI](http://www.movie.hkepx.cn/xiju/4386657.htm)
+- [陈小春被网友喊话去找撞脸大哥认亲](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
+- [如果贾宝玉不小心娶了夏金桂，贾家的人能搞定她吗？](http://www.movie.hkepx.cn/xiju/3638436.htm)
+- [个人能查看自己的档案吗](http://www.daogukj.com/7944277)
+- [车间工人长相撞脸陈小春](http://www.daogukj.com/8908969)
+- [人类为什么不能培育一种专门象牙很长的大象？非得去猎杀野生大象？](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
+- [方盒子当家庭购车首选合适吗](http://www.play.hengshemaoyi.cn/xiju/9948582.htm)
+- [上市两年 茶百道的麻烦越发缠身](http://www.movie.hkepx.cn/xiju/6922648.htm)
+- [[BDAY Project] Paris texas - Everybody's safe until...](http://www.play.hengshemaoyi.cn/kongbu/0311261.htm)
+- [【萌黄一槽】是谁“电眼逼人”？迪鲁达全技能爆料！](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
+- [33 岁销冠确诊胃癌晚期后突然被辞退，公司不服劳动仲裁判赔 11 万提起诉讼，法院可能会怎样判决？](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
+- [“这波秒开仙人，直接把六小龄童看呆了！”](http://www.daogukj.com/samlsvei/)
+- [奚梦瑶和现在简直判若两人](http://www.daogukj.com/upwbykhc/)
+- [【TF家族练习生】《成长档案NO.0915-不熄灭的歌》张奕然生日纪录片](http://www.daogukj.com/dqafhzpy/)
+- [为什么《兰香如故》电视剧，女主结婚从丫鬟到豪门贵妇就劝退了观众？](http://www.daogukj.com/wqdjnvax/)
+- [今年冬天会更冷还是更暖](http://www.movie.hkepx.cn/movie/3230647.htm)
+- [陈小春和疑似弟弟耳朵都有个窝痕](http://www.daogukj.com/0955188)
+- [教师耻辱合影事件调查处理已完成](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
+- [aijing母亲道歉](http://www.daogukj.com/8951042)
+- [如何看待二本毕业女生待业一年，仍坚持找一份双休工作？是不愿降低生活标准，还是对就业市场缺乏认知？](http://www.daogukj.com/6868668)
+- [香港周生生发生珠宝劫案](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
+- [成都警方通报女子持U型锁打人](http://www.daogukj.com/6244721)
+- [《明日方舟：终末地》干员叙事 [祀：洒扫庭除]](http://www.movie.hkepx.cn/xiju/4196972.htm)
+- [“萨克斯大爷”直呼太火自己不适应](http://www.daogukj.com/8252530)
+- [南京红山森林动物园感谢周杰伦一家](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
+- [警方通报一女子持U型锁伤人](http://www.movie.hkepx.cn/xiju/3203404.htm)
+- [星网宇达被暂停参加全军物资采购](http://www.daogukj.com/cmilhphd/)
+- [入职第一天因截图社死](http://www.daogukj.com/8929579)
+- [红果短剧 降智](http://www.daogukj.com/xyvhazpu/)
+- [李吉妮2比1萨巴伦卡](http://www.movie.hkepx.cn/xiju/5070981.htm)
+- [金泰妍怎么了](http://www.movie.hkepx.cn/xiju/1375597.htm)
 
 </details>
 
 ## 原始来源
 
-- [2026全球总决赛LPL赛区出征片《风起今朝》](https://b23.tv/BV132pr6aEXS)
+- [铁打的片仔癀 流水的董事长](https://www.baidu.com/s?wd=%E9%93%81%E6%89%93%E7%9A%84%E7%89%87%E4%BB%94%E7%99%80+%E6%B5%81%E6%B0%B4%E7%9A%84%E8%91%A3%E4%BA%8B%E9%95%BF&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b387f6f48f977b773f40 -->
+<!-- content-fingerprint: e93ddce0d966459f5a99 -->
