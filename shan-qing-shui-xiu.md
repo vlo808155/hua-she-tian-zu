@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 今年冬天会更冷还是更暖
+# 大暴雨来了：大范围雨雪将至山东或暴雨，台风蔷琵即将生成或成风王
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7519720 · 更新：2026-10-15T06:15:04+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：230537 · 分类：科学科普 · 更新：2026-10-15T08:38:30+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“今年冬天会更冷还是更暖”位列第 3 位，公开热度指标为 7519720。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“大暴雨来了：大范围雨雪将至山东或暴雨，台风蔷琵即将生成或成风王”位列第 3 位，公开热度指标为 230537，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月9日，国家气候中心通报，2026年9月已正式形成一次超强厄尔尼诺事件，预计11月前后达峰值，成为有监测以来最强。专家解读指出，厄尔尼诺增加我国冬季总体偏暖可能性，但这并非“暖冬保证书”，若发生环流调整，仍可能出现剧烈降温的强寒潮，公众不可放松防寒准备。
+来源公开摘要显示：最近一段时间南方的暖势力强的过了头，主要有两个表现。第一个表现是，华南及临近多省热的过了头。10月14日下午，广东广西海南福建以及江西湖南南部和云南局部非常热，体感不是和夏天没啥区别，而是正宗的夏天。其中，广西、广东、云南最高气温都冲上了35度，达到高温标准，云南元阳更是达到36.1度。第二个表现是，长江流域竟然出现了一条酷似梅雨带的秋雨带，沿着云南、贵州、湖南、江西一字排开，并向四川重庆陕西湖北河南一带发展，上述几省已经有中到大雨出现。 然而与此同时，冷空气并非拉到没边。在长城附近和以北地区，冷空气势力
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [好一个乖乖女](feng-he-ri-li.md)
-- [2027年或成史上最热一年](chun-nuan-hua-kai.md)
-- [国台办回应蔡康永现身沈伯洋竞选活动，在大是大非问题上没有任何模糊的空间，哪些信息值得关注？](qiu-gao-qi-shuang.md)
-- [77天1400公里独自横穿羌塘，杨柳松与北方的空地](bing-tian-xue-di.md)
+- [今年最有腔调的老人都在山东](feng-he-ri-li.md)
+- [曼城2比4巴黎圣日耳曼](chun-nuan-hua-kai.md)
+- [巴黎车展老外卷尺量中国车](qiu-gao-qi-shuang.md)
+- [红楼梦中王子腾是四大家族最大靠山，却没有被正面描写，是一种神秘的存在。王子腾究竟是一个什么样的人物？](bing-tian-xue-di.md)
 
 ## 站内推荐
 
 - [也是当上外卖大法官了【第二集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [陈小春弟弟](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [武网头号种子萨巴伦卡爆冷出局](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [小伙徒步时高反 野外支帐篷躺卧3天](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [“回春三件套”让中年男人开始服美役](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [“什么情况？杀不死？”“月君，笔记的储备还充足吗？”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [皇马1.3亿巨星遭官宣禁赛4场](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [宝蓝结婚](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [好一个乖乖女热度登顶](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男子因经济拮据心生怨愤杀陌生女子](http://www.movie.hkepx.cn/xiju/9107169.htm)
-- [77天1400公里独自横穿羌塘，杨柳松与北方的空地](http://www.daogukj.com/2118100)
-- [如何看待二本毕业女生待业一年，仍坚持找一份双休工作？是不愿降低生活标准，还是对就业市场缺乏认知？](http://www.daogukj.com/4008344)
-- [女子被冒用身份办社保卡流水590万](http://www.play.hengshemaoyi.cn/kongbu/7615028.htm)
-- [射手牢玩家感觉没什么用，我过来把射手位置占了](http://www.play.hengshemaoyi.cn/xiju/6049463.htm)
-- [武网遭遇史诗级削弱](http://www.play.hengshemaoyi.cn/xiju/3011019.htm)
-- [马来西亚偶遇王一博](http://www.daogukj.com/hszupmxe/)
-- [LV 承认起诉茉莉奶白产生负面影响，第三季度中国客群需求下降 15% ，怎样看待这一变化？](http://www.daogukj.com/4064184)
-- [或许在某个平行宇宙中，他们的故事是这样展开的.....](http://www.movie.hkepx.cn/xiju/6900043.htm)
+- [男子在高铁座位脱裤排便 官方：行拘](http://www.movie.hkepx.cn/xiju/9107169.htm)
+- [红楼梦中王子腾是四大家族最大靠山，却没有被正面描写，是一种神秘的存在。王子腾究竟是一个什么样的人物？](http://www.daogukj.com/2118100)
+- [前中国工程院院士、中南大学原校长张尧学被逮捕，受贿数额特别巨大，哪些信息值得关注？](http://www.daogukj.com/4008344)
+- [肖战这把火已经烧到天边了](http://www.play.hengshemaoyi.cn/kongbu/7615028.htm)
+- [因差评轻生摊主遗书称以为能陪娃长大](http://www.play.hengshemaoyi.cn/xiju/6049463.htm)
+- [金晨刚交完学费美国学校就倒闭了](http://www.play.hengshemaoyi.cn/xiju/3011019.htm)
+- [美国CPI超预期 全球股市阴云密布](http://www.daogukj.com/hszupmxe/)
+- [美国 9 月 CPI 数据公布，同比上涨 3.7%，高于市场预期的 3.6%，释放了哪些信号？](http://www.daogukj.com/4064184)
+- [王毅会见拉夫罗夫 两人热情握手](http://www.movie.hkepx.cn/xiju/6900043.htm)
 - [大庆，一座孤独的城市](http://www.movie.hkepx.cn/movie/5643633.htm)
-- [2026全球总决赛LPL赛区出征片《风起今朝》](http://www.daogukj.com/9009599)
-- [微信上线绿泡泡短剧，腾讯此前多次进军短剧市场都效果平平，这次能成功吗？能撼动红果的地位吗？](http://www.daogukj.com/xuhetnch/)
-- [小伙徒步时高反 野外支帐篷躺卧3天](http://www.movie.hkepx.cn/movie/3450692.htm)
-- [讲台上的刘欢：香烟、粉笔与花体字](http://www.play.hengshemaoyi.cn/xiju/7219122.htm)
-- [回老家有种没被AI“污染”过的美](http://www.play.hengshemaoyi.cn/xiju/0509769.htm)
-- [陈小春和疑似弟弟耳朵都有个窝痕](http://www.daogukj.com/5496477)
-- [陈小春被网友喊话去找撞脸大哥认亲](http://www.play.hengshemaoyi.cn/kongbu/6052650.htm)
-- [李吉妮爆冷逆转头号种子萨巴伦卡](http://www.play.hengshemaoyi.cn/kongbu/3792780.htm)
-- [如何看待网红女装品牌CHICYOU因使用狸花猫背部毛皮制作毛领遭网友抵制？哪些渠道的毛皮可能涉嫌违法？](http://www.play.hengshemaoyi.cn/kongbu/9692275.htm)
-- [aijing母亲道歉](http://www.play.hengshemaoyi.cn/kongbu/4655475.htm)
-- [【Re:从零开始的AI学习】第一季总集篇｜从入门到用好 AI](http://www.daogukj.com/6439972)
-- [多地组织筛查干部档案有何深意](http://www.movie.hkepx.cn/movie/8714906.htm)
-- [【第四十五赛季·精华3】故事视频公开：——“循着成熟的芬芳，我们送递属于消亡的讯息……”](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
-- [小酒窝被医生夸比着尺子长的](http://www.movie.hkepx.cn/movie/8757141.htm)
-- [今年国庆消费 有啥不一样](http://www.daogukj.com/eagjoiap/)
-- [猪肚可以做成什么美食？](http://www.play.hengshemaoyi.cn/xiju/9146558.htm)
-- [陈小春弟弟](http://www.daogukj.com/kmomqrid/)
-- [【Karsa】终于跟RNG老队友重逢了🥺｜上海VLOG EP2](http://www.play.hengshemaoyi.cn/xiju/3904561.htm)
-- [我对不同假期的态度](http://www.daogukj.com/mxxhzzoj/)
-- [成都警方通报女子持U型锁打人](http://www.daogukj.com/3878784)
-- [盛艾敬朋友也发声了](http://www.daogukj.com/zkpqzjjl/)
-- [“这波秒开仙人，直接把六小龄童看呆了！”](http://www.movie.hkepx.cn/xiju/2484261.htm)
-- [“女老虎”包惠被开除党籍](http://www.movie.hkepx.cn/xiju/8693395.htm)
-- [如果贾宝玉不小心娶了夏金桂，贾家的人能搞定她吗？](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
-- [顾客买830元脆皮捏捏全部捏碎后退货](http://www.play.hengshemaoyi.cn/kongbu/5541435.htm)
-- [我去当司机大家觉得有搞头嘛！](http://www.daogukj.com/6739669)
-- [郑钦文夺冠，上汽奥迪发文「AUDI 全系买一送一」，送的却是车模引发热议，大家怎么看？](http://www.movie.hkepx.cn/movie/9062101.htm)
-- [武网头号种子萨巴伦卡爆冷出局](http://www.play.hengshemaoyi.cn/kongbu/4956160.htm)
-- [媒体：医疗体制改革已经进入深水区](http://www.movie.hkepx.cn/movie/9855909.htm)
-- [金晨刚交完学费美国学校就倒闭了](http://www.play.hengshemaoyi.cn/xiju/2496022.htm)
-- [今年最有腔调的老人都在山东](http://www.play.hengshemaoyi.cn/kongbu/7048086.htm)
-- [贵州小伙零彩礼迎娶1.8米俄罗斯姑娘](http://www.daogukj.com/0803688)
-- [能玩这游戏十年的人做什么都会成功的](http://www.play.hengshemaoyi.cn/xiju/9996924.htm)
-- [新鸭绿江大桥仅用于货运？中方回应](http://www.daogukj.com/ebzzkofo/)
-- [74岁爷爷被称为山东版摩根·弗里曼](http://www.daogukj.com/1982276)
-- [传 RTX508024GB 定档 2027 年 Q1，如何看待该卡接任新旗舰？](http://www.daogukj.com/5145711)
-- [多款产品集体涨价 啤酒饮料还好卖吗](http://www.daogukj.com/9197192)
-- [如何评价2026年上映的韩国电影《希望》？](http://www.daogukj.com/ngmslwod/)
-- [解放军演示匕首枪](http://www.daogukj.com/8361807)
-- [群演疑似猥亵女演员，《此处通往繁星》剧组回应将撤下争议片段并调查，若属实剧组及涉事演员需承担哪些责任？](http://www.daogukj.com/vyqctkoa/)
+- [微信上线绿泡泡短剧，腾讯此前多次进军短剧市场都效果平平，这次能成功吗？能撼动红果的地位吗？](http://www.daogukj.com/9009599)
+- [如何看待郑钦文中网夺冠后躺在球场上，直播镜头对准其裙底长达4 秒？出现这种画面算直播事故吗？](http://www.daogukj.com/xuhetnch/)
+- [宝蓝结婚](http://www.movie.hkepx.cn/movie/3450692.htm)
+- [“绿泡泡”对决“红果果”](http://www.play.hengshemaoyi.cn/xiju/7219122.htm)
+- [蒋劲夫过上了他想要的生活](http://www.play.hengshemaoyi.cn/xiju/0509769.htm)
+- [刘学义凭借《兰香如故》涨粉超100万](http://www.daogukj.com/5496477)
+- [刘邦凭什么七年得天下？](http://www.play.hengshemaoyi.cn/kongbu/6052650.htm)
+- [中期选举迫近特朗普发起“悲情动员”](http://www.play.hengshemaoyi.cn/kongbu/3792780.htm)
+- [多地组织筛查干部档案有何深意](http://www.play.hengshemaoyi.cn/kongbu/9692275.htm)
+- [陈小春被网友喊话去找撞脸大哥认亲](http://www.play.hengshemaoyi.cn/kongbu/4655475.htm)
+- [「耻辱」合影事件最新进展，雷波县教体局局长已被调离，这样的处置方式如何？](http://www.daogukj.com/6439972)
+- [新一轮冷空气影响多大](http://www.movie.hkepx.cn/movie/8714906.htm)
+- [包惠被开除党籍 四川省委表态](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
+- [豆包手机助手放开屏幕自动化操作权限，阿里、腾讯系等 App 明确拒绝，如何看待此事？存在哪些争议点？](http://www.movie.hkepx.cn/movie/8757141.htm)
+- [我朋友说我的家不是正常人想出来的...](http://www.daogukj.com/eagjoiap/)
+- [你敢信苏联真的做过人猿杂交实验？走进地图上不存在的国家，探访那座被废弃的实验基地](http://www.play.hengshemaoyi.cn/xiju/9146558.htm)
+- [“什么情况？杀不死？”“月君，笔记的储备还充足吗？”](http://www.daogukj.com/kmomqrid/)
+- [《明日方舟：终末地》干员叙事 [祀：洒扫庭除]](http://www.play.hengshemaoyi.cn/xiju/3904561.htm)
+- [英雄联盟S16 当老将们走到十字路口](http://www.daogukj.com/mxxhzzoj/)
+- [入职第一天因截图社死](http://www.daogukj.com/3878784)
+- [伊朗称全天候监控霍尔木兹海峡](http://www.daogukj.com/zkpqzjjl/)
+- [小伙徒步时高反 野外支帐篷躺卧3天](http://www.movie.hkepx.cn/xiju/2484261.htm)
+- [我觉得openai最近这段时间写出来的所有论文，全部都是错误的，这难道不是很明显的吗？](http://www.movie.hkepx.cn/xiju/8693395.htm)
+- [我去当司机大家觉得有搞头嘛！](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
+- [2027年或成史上最热一年](http://www.play.hengshemaoyi.cn/kongbu/5541435.htm)
+- [常用医学小技能，才不是武术什么的呢](http://www.daogukj.com/6739669)
+- [苏轼连续被贬惠州儋州，为什么不辞官回乡，过普通人生活？](http://www.movie.hkepx.cn/movie/9062101.htm)
+- [皇马1.3亿巨星遭官宣禁赛4场](http://www.play.hengshemaoyi.cn/kongbu/4956160.htm)
+- [国行iPhone接入通义千问](http://www.movie.hkepx.cn/movie/9855909.htm)
+- [人类为什么不能培育一种专门象牙很长的大象？非得去猎杀野生大象？](http://www.play.hengshemaoyi.cn/xiju/2496022.htm)
+- [23年前的今天 太空有了中国人](http://www.play.hengshemaoyi.cn/kongbu/7048086.htm)
+- [暴跌35%的恒科没救了吗](http://www.daogukj.com/0803688)
+- [避雷视频成压垮轻生摊主的最后稻草](http://www.play.hengshemaoyi.cn/xiju/9996924.htm)
+- [火箭为什么非得一级一级扔，做一枚能直接飞上天的「大火箭」不行吗？](http://www.daogukj.com/ebzzkofo/)
+- [四部门要求新车研发必须包含「两冬一夏」测试，会改变汽车行业格局吗？](http://www.daogukj.com/1982276)
+- [奇瑞汽车在马来西亚再次发生断轴事故，你怎么看待此事？](http://www.daogukj.com/5145711)
+- [1岁幼儿误食毒鸡蛋后脑萎缩](http://www.daogukj.com/9197192)
+- [这是一期重口味的怪兽盘点【破坏兽】（慎入！）](http://www.daogukj.com/ngmslwod/)
+- [这下可好了！收养一只咪，迎来一大群！](http://www.daogukj.com/8361807)
+- [比亚迪家庭大SUV区间挤满对手](http://www.daogukj.com/vyqctkoa/)
 
 </details>
 
 ## 原始来源
 
-- [今年冬天会更冷还是更暖](https://www.baidu.com/s?wd=%E4%BB%8A%E5%B9%B4%E5%86%AC%E5%A4%A9%E4%BC%9A%E6%9B%B4%E5%86%B7%E8%BF%98%E6%98%AF%E6%9B%B4%E6%9A%96&sa=fyb_news&rsv_dl=fyb_news)
+- [大暴雨来了：大范围雨雪将至山东或暴雨，台风蔷琵即将生成或成风王](https://b23.tv/BV1VZpm6EEEG)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 497a5460e131403d661d -->
+<!-- content-fingerprint: add12577ac81bf38ea52 -->
