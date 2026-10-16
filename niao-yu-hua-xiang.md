@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？
+# AI消失前的最后一天……
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：569 万热度 · 分类：问答 · 更新：2026-10-16T12:57:37+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：856968 · 分类：搞笑 · 更新：2026-10-16T17:40:11+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？”位列第 3 位，公开热度指标为 569 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“AI消失前的最后一天……”位列第 3 位，公开热度指标为 856968，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：25岁韩国网红柳智媛跑半马离世 赛道上突倒地不幸身亡 韩国女网红柳智媛是KAIST的学生，热爱跑步的她经常在社交媒体上分享自己的跑步日常和参赛照片。然而，在11日参加半程马拉松赛事「2026 SEOUL RACE」时，她在距离终点仅剩500米、跑至20.6公里处突然倒下。现场救护人员立即展开急救，并紧急将她送往医院，但最终未能挽救她的生命，年仅25岁。 柳智媛此次参加的比赛成为她人生中的最后一场赛事。根据主办单位在官方社交媒体发布的公告，她在比赛过程中突然倒下，工作人员与救护人员迅速上前协助，并通过救护车将她送往医院接受治疗，但最终仍不幸离世。 主办单位
+来源公开摘要显示：做了十万年……这一天还是到来了…… 求关注求三连QWQ
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [《异环》剧情过场丨「God Knows…（异环Cover ver.）」特别动画](shan-qing-shui-xiu.md)
-- [以色列总统发言 28国中13国代表离席](feng-he-ri-li.md)
-- [陈奕迅演唱会官宣](chun-nuan-hua-kai.md)
-- [王毅对以方说巴问题是本世纪最大不公](qiu-gao-qi-shuang.md)
+- [男子中1000万不到一月花到仅剩28元](shan-qing-shui-xiu.md)
+- [何小鹏谈特斯拉Roadster会飞](feng-he-ri-li.md)
+- [普通人能接住马龙的发球吗?](chun-nuan-hua-kai.md)
+- [【独家】时光代理人 第三季 PartOne 第11集 消失的出口【8月国创】](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [如何看待13岁女团成员出道仅数小时被曝父母恶意欠薪且被执行345 万，母亲道歉并承诺会尽快解决？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [工厂里那些「看一眼就知道不对」的老师傅，到底凭的是什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [⚡️鬼畜者联盟，集合！【宗主豪华版】⚡️](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [《剃刀 》每一个也许都要付钱：0.8⁵ = 33%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [特斯拉Roadster会飞！发布会超全总结来了！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [《绝区零》菲欧妮角色展示 | 不要死挑战](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [冯远征苦恼招不到一米六几的女演员](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [芒果真的拍了再见朋友](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [公司因单休招不到人改成双休](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [周鸿祎谈老干妈用AI一年赚54亿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [韩路解释特斯拉Roadster为什么会飞](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [如何看待申真谞获得烂柯杯世界围棋冠军，成为九冠王，彻底超越柯洁？](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [以色列总统发言 28国中13国代表离席](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [17岁Kimi核心少年陈广宇确认前往硅谷](http://www.daogukj.com/8743466)
-- [如何评价《一人之下》漫画第737（780）话?](http://www.daogukj.com/6087099)
-- [深圳3小时超2万人申报停驶](http://www.daogukj.com/8759192)
-- [70载广交会见证中国经济与创新活力](http://www.daogukj.com/nzlnmzmb/)
-- [今年汽车出口有望突破1000万辆](http://www.daogukj.com/6882941)
-- [翻过318的最后一座山！5013米海拔！](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [挑战拍出刃牙原作没有的剧情！！宫本武藏vs郭海皇！！](http://www.daogukj.com/9154473)
-- [如何看待网友说DeepSeek在爱里长大？](http://www.daogukj.com/4411404)
-- [180名中国华文教师不得不离开菲律宾](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [张雪称两轮车自动驾驶搞笑](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [评论员：日本已具备进攻性](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [黄海南部连续47天禁入藏了什么深意](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [维密请假事件当事人已离职](http://www.daogukj.com/aztauuey/)
-- [库克到访胡彦斌工作室](http://www.daogukj.com/7343685)
-- [特斯拉Roadster真的会飞](http://www.daogukj.com/dhbposmt/)
-- [安理会辩论中方5次点名以色列](http://www.daogukj.com/1538095)
-- [阳朔：对全县桂花各环节拉网式排查](http://www.daogukj.com/uznikqxj/)
-- [《啦嗒铛》1.0正式发售宣传片 | GSE](http://www.daogukj.com/5158126)
-- [特斯拉Roadster会飞！发布会超全总结来了！](http://www.daogukj.com/3616935)
-- [徐艺洋24年6月的肚子](http://www.daogukj.com/pfvjuanz/)
-- [原来黄子韬从来没说过那段话](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [操 控 买 瓜 2.0](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [衣衫不整男孩总穿开裆裤或不穿裤子](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [男子花11万拿乌克兰硕士文凭成废纸](http://www.daogukj.com/asaygxgb/)
-- [美媒：中国造出了美国人喜欢的车](http://www.daogukj.com/zxvfwrkb/)
-- [“流浪大师”沈巍将退休 病休超30年](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [《绝区零》菲欧妮角色展示 | 不要死挑战](http://www.daogukj.com/7717389)
-- [女主播揭露团播潜规则 被要求陪大哥](http://www.daogukj.com/9746581)
-- [为什么有些人会喜欢看红果短剧？](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [《剃刀 》每一个也许都要付钱：0.8⁵ = 33%](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [无视风险 继续访问女coser的家](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [黄子韬徐艺洋宣布升级当爸妈，你对他们有哪些祝福？](http://www.daogukj.com/7650204)
-- [硫磺桂花](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [百事回应美国肯德基改可口可乐](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [短剧伤大脑？专家：多巴胺被透支](http://www.daogukj.com/0995452)
-- [特斯拉新车真的能飞](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [李嘉诚近年来在做什么](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [AI游戏占Steam新游三分之一，销量却只占约10%，为何游戏生产暴增，玩家需求却没有暴增？](http://www.daogukj.com/fivnrrsp/)
-- [工厂里那些「看一眼就知道不对」的老师傅，到底凭的是什么？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [考古到徐艺洋生完孩子后的首个红毯](http://www.daogukj.com/hldbetht/)
-- [教师不愿当班主任困局从何处破解](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [既然网球发球可以直接ace得分，那为什么不专门练发球？](http://www.daogukj.com/phqakpps/)
-- [深圳中小学推行春秋假，为什么很多家长反而不支持？春秋假的教育意义究竟是什么？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [飞行汽车距离普通人生活还有多远](http://www.daogukj.com/adpyviat/)
-- [9件文物里的长征记忆](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [后会友期官宣](http://www.daogukj.com/1571628)
-- [肯德基将换百事可乐为可口可乐](http://www.daogukj.com/9492876)
+- [Roadster对特斯拉还有多大意义](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [价值万元的哈根达斯融化 顺丰赔2千](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [何小鹏谈特斯拉Roadster会飞](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [德国为何一改稳健务实与法联名上书](http://www.daogukj.com/8743466)
+- [新人结婚当天婚房被烧了](http://www.daogukj.com/6087099)
+- [凯迪拉克](http://www.daogukj.com/8759192)
+- [全国粮食标准仓仓容达7.3亿吨](http://www.daogukj.com/nzlnmzmb/)
+- [第140届广交会有哪些新亮点](http://www.daogukj.com/6882941)
+- [香港名媛碎尸案庭审曝惊人场面](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [1.3万亿“国家长钱”到位](http://www.daogukj.com/9154473)
+- [黄子韬绣红旗人设被质疑割裂](http://www.daogukj.com/4411404)
+- [为什么 HR 大部分都是女性呢？](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [10个省份下大雨 多地将降温8℃以上](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [思路打开，面包丝信手拈来！今天吃千丝万缕虾和红米肠，一顿漂亮饭给娃小嘴吃的倍儿甜！](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [【赛尔号】全新版本PV「天地中原」](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [特斯拉新款 Roadster 正式亮相，能实现离地升空、空中翻滚，如何评价？你看好它的市场前景吗？](http://www.daogukj.com/aztauuey/)
+- [AL最发愁的居然是不会吵架？拷打Tarzan&Shanks的职业秘辛【视频播客 | 元来如此EP.08】](http://www.daogukj.com/7343685)
+- [AI挑战《杀戮尖塔》A20被虐惨，最终BOSS胜率仅10%，对此你怎么看？](http://www.daogukj.com/dhbposmt/)
+- [「豆包对低认知人群有权威性」引热议，你怎么看这一说法？缺乏辨别力更容易盲目相信 AI，还是会更抵触？](http://www.daogukj.com/1538095)
+- [9.9级地震是什么概念](http://www.daogukj.com/uznikqxj/)
+- [菲律宾换平台再闯黄岩岛意欲何为](http://www.daogukj.com/5158126)
+- [周鸿祎谈老干妈用AI一年赚54亿](http://www.daogukj.com/3616935)
+- [如何看待首批百余名 AI 学者发起学生「慢科研」联合倡议，并承诺不以论文数量选拔学生？](http://www.daogukj.com/pfvjuanz/)
+- [网友自带菜被餐厅多收 300 元，店家称贴有禁带告示对方不听，市监所称会组织调解，店家这么收费合理吗？](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [黄海南部连续47天禁入藏了什么深意](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [外交部：中方从不刻意追求贸易顺差](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [180名中国华文教师不得不离开菲律宾](http://www.daogukj.com/asaygxgb/)
+- [25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？](http://www.daogukj.com/zxvfwrkb/)
+- [科学家吴军回国：再多钱也留不住我](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [黄子韬儿子国籍](http://www.daogukj.com/7717389)
+- [周迅凭《初次尝到寂寞》获釜山电影节最佳女演员，加封国际 A 类影后，当下在华语演员里，她处于什么地位？](http://www.daogukj.com/9746581)
+- [特斯拉新车真的能飞](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [公司因单休招不到人改成双休](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [不会穿搭的建议反复观看](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [木板浮桥托起长征出发第一步](http://www.daogukj.com/7650204)
+- [如何看待网友说DeepSeek在爱里长大？](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [⚡️鬼畜者联盟，集合！【宗主豪华版】⚡️](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [枪械为什么要造得这么容易拆卸，连个螺丝都不用？](http://www.daogukj.com/0995452)
+- [李嘉诚近照公布：笑容满面精神奕奕](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [七天无理由退货的边界到底在哪儿](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [渔猎齐哥再曝硫磺桂花加工细节](http://www.daogukj.com/fivnrrsp/)
+- [冯远征苦恼招不到一米六几的女演员](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [硫磺桂花揭秘，这个你敢吃不？](http://www.daogukj.com/hldbetht/)
+- [你敢信苏联真的做过人猿杂交实验？走进地图上不存在的国家，探访那座被废弃的实验基地](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [日本误报称发生9.9级地震](http://www.daogukj.com/phqakpps/)
+- [“县政府主要负责同志”可以有名字](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [王老菊教你治愈节奏](http://www.daogukj.com/adpyviat/)
+- [大厂员工吐槽新来的校招生特别mean，被回复不mean根本过不了面试，真的吗？面试到底在选什么样的人？](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [既然网球发球可以直接ace得分，那为什么不专门练发球？](http://www.daogukj.com/1571628)
+- [如何看待郭皓回应 ZUIAN 美签三面被拒，称「所有俱乐部统一申请 B 签，从业十三年没贪过一毛钱」？](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？](https://www.zhihu.com/question/2093971346942158548)
+- [AI消失前的最后一天……](https://b23.tv/BV1AyJy6SESw)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d881e53223c1dc5b7ee7 -->
+<!-- content-fingerprint: be145397d0ef4c9af0ee -->
