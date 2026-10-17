@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 共同的名字叫长征
+# 广交会上这些展品频频圈粉海外客商
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：977322 · 分类：民生新闻 · 更新：2026-10-17T15:09:59+08:00
+> 来源：今日头条热榜 · 排名：第 3 位 · 热度：14953453 · 更新：2026-10-17T19:38:41+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“共同的名字叫长征”位列第 3 位，公开热度指标为 977322，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“广交会上这些展品频频圈粉海外客商”位列第 3 位，公开热度指标为 14953453。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [第九届进博会多项数据创历年新高](wan-zi-qian-hong.md)
-- [如何看待宾川老人误喝白桃香氛洁厕慕斯事件？日化产品外形模仿食品饮料包装是否合适？](niao-yu-hua-xiang.md)
-- [历经一个月！我们做到了！！](shan-qing-shui-xiu.md)
-- [黄奇帆被查 中纪委网站发文](feng-he-ri-li.md)
+- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](wan-zi-qian-hong.md)
+- [一口气看完故宫角楼建造全过程](niao-yu-hua-xiang.md)
+- [夫妻买2块劳力士不选不试戴 店员报警](shan-qing-shui-xiu.md)
+- [夫妻花67.3万买劳力士店员报警](feng-he-ri-li.md)
 
 ## 站内推荐
 
-- [班主任休产假家长称一定要生孩子吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [考上211后辞职做咖啡店店员](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [家长怒斥让小孩扫厕所老师怎么不干](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [张继科劝大家少接触刘丁硕](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [黄子韬徐艺洋孩子身高 拉腿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [欠薪345万却砸钱送孩子韩国出道](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [班主任休产假遭家长投诉质问「一定要生孩子吗」，教师称举报信数量激增，如何看待近几年兴起的校园投诉潮？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [“优秀的作品都在讲同一件事”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [【纪录片】中国救护2 05 家和万事兴](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [女生小肚子微微凸起才正常](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.daogukj.com/8034746)
-- [黄奇帆被查 中纪委网站发文](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
-- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.daogukj.com/yjeybyqr/)
-- [女性绝经后该怎样管理体重](http://www.movie.hkepx.cn/movie/0234270.htm)
-- [欠钱不还却有钱出道？是谁又在给老赖之女洗白？深扒李秀满新女团成员盛艾敬！](http://www.movie.hkepx.cn/xiju/1436315.htm)
-- [猴子持鞭打饲养员 分不清谁是大小王](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
-- [凡人修仙传动画196集观众满意吗？](http://www.movie.hkepx.cn/movie/0738215.htm)
-- [新王将至，旧王永垂不朽 ︳【侠盗猎车手V】终极鉴赏2026 (Leya蕾雅) ︳GTAV](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
-- [【纪录片】中国救护2 05 家和万事兴](http://www.movie.hkepx.cn/xiju/4806301.htm)
-- [如何看待《流浪地球3》首次票房预测为48亿？](http://www.movie.hkepx.cn/xiju/7489093.htm)
-- [“优秀的作品都在讲同一件事”](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
-- [中方回应白宫新闻秘书涉中国厕所言论](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
-- [女子生下龙凤胎 起诉已婚董事长](http://www.movie.hkepx.cn/movie/1016973.htm)
-- [自愿放弃社保无效](http://www.movie.hkepx.cn/movie/8785597.htm)
-- [班主任休产假家长称一定要生孩子吗](http://www.daogukj.com/uxoqsalx/)
-- [沈月好友翁小雯离婚](http://www.movie.hkepx.cn/movie/2181882.htm)
-- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](http://www.movie.hkepx.cn/movie/6448079.htm)
-- [孩子独自在家玩挂16楼防盗窗外](http://www.movie.hkepx.cn/movie/4252904.htm)
-- [《绝命毒师》老白儿子演员米特离世年仅 34 岁，你对他的表演有哪些回忆？](http://www.movie.hkepx.cn/movie/7165592.htm)
-- [朱棣：“我的侄子走丢了，有好心人能帮帮我吗？”](http://www.play.hengshemaoyi.cn/xiju/8975129.htm)
-- [德国一机器人涉嫌猥亵16岁少女，警方调查疑系机器人主人远程操控，案件调查难点在哪？如何认定相关责任？](http://www.movie.hkepx.cn/xiju/1092537.htm)
-- [历经一个月！我们做到了！！](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
-- [29岁教师瘫痪 刚怀孕的妻子回应](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
-- [事业编](http://www.daogukj.com/5516263)
-- [妈妈将大一儿子生活费从4000降至2000](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
-- [80万个假冰箱贴卖了1660万 主犯获刑](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
-- [重庆一车辆从60米高架桥坠落系谣言](http://www.daogukj.com/dxqevygl/)
-- [夫妻花67.3万买劳力士店员报警](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
-- [特斯拉新款 Roadster 实现离地升空、空中翻滚，是如何做到的？](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
-- [教师真的是社会阅历最少的人吗？](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
-- [刘丁硕疑暗讽张继科蹭热度、低价课扰乱市场，张继科回怼「段位不够、上不了台面」，你咋看？他两有啥纠葛吗？](http://www.daogukj.com/zkdbaajm/)
-- [为什么年轻人开始流行「纯过日子」？这是理性回归还是被迫收缩？](http://www.movie.hkepx.cn/movie/3226951.htm)
-- [如何看待宾川老人误喝白桃香氛洁厕慕斯事件？日化产品外形模仿食品饮料包装是否合适？](http://www.movie.hkepx.cn/movie/8362863.htm)
-- [一口气看完故宫角楼建造全过程](http://www.movie.hkepx.cn/movie/9956114.htm)
-- [酒厂在药酒里掺伟哥 被罚252万](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
-- [被问是否是特朗普替罪羊泽连斯基沉默](http://www.movie.hkepx.cn/xiju/7498992.htm)
-- [抖音和京东公开互呛](http://www.movie.hkepx.cn/movie/5631141.htm)
-- [再给我一个好吗](http://www.daogukj.com/1160189)
-- [王俊凯无畏契约表演赛](http://www.movie.hkepx.cn/movie/6067790.htm)
-- [2627赛季NBA季前赛开拓者 118:128 勇士，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
-- [伊藤美诚清空个人账号所有乒乓球内容](http://www.movie.hkepx.cn/movie/3280328.htm)
-- [网友演示特斯拉roadster吸在路上](http://www.daogukj.com/fkubbivn/)
-- [当我每次操作，都会同步改变世界所有区块！](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
-- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
-- [《异环》剧情过场丨「God Knows…（异环Cover ver.）」特别动画](http://www.daogukj.com/pdxfeqmt/)
-- [【暗区突围手游PV】兵临城下，全新篇章「战火重燃」10月29日上线！C2S0赛季即将开启](http://www.movie.hkepx.cn/xiju/4223434.htm)
-- [英伟达市值9天蒸发4万亿元](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
-- [女生小肚子微微凸起才正常](http://www.daogukj.com/9192187)
-- [独生女离世后男友为其母亲养老送终](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
-- [董宇辉的“榜一大哥”要补税7.9亿](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
+- [刘丁硕称王楚钦排名掉第四反倒松了口气](http://www.daogukj.com/8034746)
+- [夫妻花67.3万买劳力士店员报警](http://www.play.hengshemaoyi.cn/kongbu/6872945.htm)
+- [黄子韬直接包场免费请你们吃肥姨妈](http://www.daogukj.com/yjeybyqr/)
+- [贾乃亮否认有儿子](http://www.movie.hkepx.cn/movie/0234270.htm)
+- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.movie.hkepx.cn/xiju/1436315.htm)
+- [为什么年轻人开始流行「纯过日子」？这是理性回归还是被迫收缩？](http://www.play.hengshemaoyi.cn/xiju/6433381.htm)
+- [中纪委：只要搞腐败就没所谓平安着陆](http://www.movie.hkepx.cn/movie/0738215.htm)
+- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.play.hengshemaoyi.cn/xiju/3997303.htm)
+- [为什么感觉一代教父对任何事情云淡风轻，总可以拿捏很好，但二代教父感觉过的很艰难？](http://www.movie.hkepx.cn/xiju/4806301.htm)
+- [为什么现在很多人宁可把钱放在银行账户上，也不愿意拿出来消费?再多的钱不拿出来消费，只是一个数字？](http://www.movie.hkepx.cn/xiju/7489093.htm)
+- [越来越多的人开始注意「中式细胞延衰」，这种抗衰风潮的相关效果如何？](http://www.play.hengshemaoyi.cn/kongbu/6759756.htm)
+- [女子选“聪明又老实”的结婚后后悔](http://www.play.hengshemaoyi.cn/xiju/8987113.htm)
+- [德小蓝灰鲸鲨战车！这自带音响的小车谁不爱呢？可把玩可合体可扔出！4套检视也是没谁了吧？](http://www.movie.hkepx.cn/movie/1016973.htm)
+- [防癌神药出厂价不到1块钱](http://www.movie.hkepx.cn/movie/8785597.htm)
+- [欠薪345万却砸钱送孩子韩国出道](http://www.daogukj.com/uxoqsalx/)
+- [长白山天池“水怪”真容揭秘](http://www.movie.hkepx.cn/movie/2181882.htm)
+- [如何评价DeepSeek V4.1 Flash 1017?](http://www.movie.hkepx.cn/movie/6448079.htm)
+- [消失很久的“结婚大件”突然卖爆了](http://www.movie.hkepx.cn/movie/4252904.htm)
+- [郑合惠子任宥纶挽手遛狗路透](http://www.movie.hkepx.cn/movie/7165592.htm)
+- [男子为女友母亲养老送终获500万遗产](http://www.play.hengshemaoyi.cn/xiju/8975129.htm)
+- [女子每天两杯咖啡 打喷嚏断了根肋骨](http://www.movie.hkepx.cn/xiju/1092537.htm)
+- [夫妻买2块劳力士不选不试戴 店员报警](http://www.play.hengshemaoyi.cn/xiju/7851130.htm)
+- [让人生理性厌恶的两口子黄子韬徐艺洋](http://www.play.hengshemaoyi.cn/kongbu/0521134.htm)
+- [中建七局拖欠118名农民工合计320万工资，为何这些大企业也会拖欠工资？相关负责人可能会面临哪些处罚？](http://www.daogukj.com/5516263)
+- [事业编和公务员区别](http://www.play.hengshemaoyi.cn/kongbu/2221487.htm)
+- [网友称蒙古国草原火灾并非无力管控，而是他们认为烧荒能增加土壤肥力，是真的吗？长远看这种方式有哪些影响？](http://www.play.hengshemaoyi.cn/xiju/7484852.htm)
+- [华中科技大学女篮与武汉盛帆女篮爆发大规模冲突，华科主帅追打对方球员，具体情况如何？将面临什么处罚？](http://www.daogukj.com/dxqevygl/)
+- [二十年后发现老师早知道自己撒谎](http://www.play.hengshemaoyi.cn/kongbu/4439204.htm)
+- [多少岁才算老人家](http://www.play.hengshemaoyi.cn/xiju/7018592.htm)
+- [单位欠缴社保处罚新规将施行](http://www.play.hengshemaoyi.cn/xiju/4090990.htm)
+- [嫁金钗真敢拍](http://www.daogukj.com/zkdbaajm/)
+- [徐艺洋怀孕下楼梯那英扶了她一把](http://www.movie.hkepx.cn/movie/3226951.htm)
+- [一口气看完故宫角楼建造全过程](http://www.movie.hkepx.cn/movie/8362863.htm)
+- [解放军南北6处演训有何深意](http://www.movie.hkepx.cn/movie/9956114.htm)
+- [啊？61.0](http://www.play.hengshemaoyi.cn/kongbu/5405816.htm)
+- [胡先煦搓澡让人认出来了](http://www.movie.hkepx.cn/xiju/7498992.htm)
+- [社保新规11月1日起施行，明确自愿放弃社保无效，怎样解读？企业未足额缴纳社保，员工权益会受到哪些损害？](http://www.movie.hkepx.cn/movie/5631141.htm)
+- [黄奇帆被查 中纪委官网重磅发文](http://www.daogukj.com/1160189)
+- [我是人类](http://www.movie.hkepx.cn/movie/6067790.htm)
+- [沈腾说王楚然录一期顶他三期](http://www.play.hengshemaoyi.cn/kongbu/0488906.htm)
+- [【使命召唤23：现代战争4】4K 最高画质 全战役 全剧情流程通关攻略 战役模式 COD23 - Call of Duty:Modern Warfare 4](http://www.movie.hkepx.cn/movie/3280328.htm)
+- [张钧甯否认炒股4年赚上亿](http://www.daogukj.com/fkubbivn/)
+- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.play.hengshemaoyi.cn/kongbu/9900979.htm)
+- [中国飞行汽车在做什么](http://www.play.hengshemaoyi.cn/kongbu/4191080.htm)
+- [油价将于10月29日24时调整](http://www.daogukj.com/pdxfeqmt/)
+- [高市为何把参加APEC峰会门槛推给国会](http://www.movie.hkepx.cn/xiju/4223434.htm)
+- [《回合之间》｜致每一位登上闪耀大赛的你！](http://www.play.hengshemaoyi.cn/kongbu/4272283.htm)
+- [木乃伊能吃吗？](http://www.daogukj.com/9192187)
+- [2026重阳奇妙游](http://www.play.hengshemaoyi.cn/kongbu/1245087.htm)
+- [舅舅立遗嘱换我养老该怎么办？](http://www.play.hengshemaoyi.cn/xiju/7056898.htm)
 
 </details>
 
 ## 原始来源
 
-- [共同的名字叫长征](https://s.weibo.com/weibo?q=%E5%85%B1%E5%90%8C%E7%9A%84%E5%90%8D%E5%AD%97%E5%8F%AB%E9%95%BF%E5%BE%81)
+- [广交会上这些展品频频圈粉海外客商](https://www.toutiao.com/trending/7696986067627556883/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227696986067627556883%22%2C%22hot_board_impr_id%22%3A%2220261017193839F894B5BBB6D5F7F925EB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a82f1411347377a1d8a5 -->
+<!-- content-fingerprint: 8d484287a4743ecf9eb6 -->
