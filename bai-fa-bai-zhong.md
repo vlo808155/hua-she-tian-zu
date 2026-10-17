@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 广交会70年热卖单品大盘点
+# 电影院玩法持续“上新”
 
-> 来源：微博热搜 · 排名：第 3 位 · 热度：735154 · 分类：国内时政 · 更新：2026-10-17T19:38:41+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7618502 · 更新：2026-10-17T22:26:21+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“广交会70年热卖单品大盘点”位列第 3 位，公开热度指标为 735154，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“电影院玩法持续“上新””位列第 2 位，公开热度指标为 7618502。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，国家电影局、市场监管总局联合印发《关于促进电影院多样化经营 繁荣发展电影院文化的通知》，鼓励多元业态融合，提出“将电影院打造成为集观影、社交、娱乐、消费于一体的综合性文化体验空间”。电影院玩法不断“上新”，成为一座城市不可或缺的“公共文化客厅”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `国内时政`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [广交会上这些展品频频圈粉海外客商](qian-jun-wan-ma.md)
-- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](wan-zi-qian-hong.md)
-- [一口气看完故宫角楼建造全过程](niao-yu-hua-xiang.md)
-- [夫妻买2块劳力士不选不试戴 店员报警](shan-qing-shui-xiu.md)
+- [广交会真的太全面了](qian-jun-wan-ma.md)
+- [它们共同的名字叫“长征”](wan-zi-qian-hong.md)
+- [班主任休产假遭家长投诉质问「一定要生孩子吗」，教师称举报信数量激增，如何看待近几年兴起的校园投诉潮？](niao-yu-hua-xiang.md)
+- [我是人类](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [防癌神药出厂价不到1块钱](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [直击西安阿达西烤馕现场](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [木乃伊能吃吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [网友称蒙古国草原火灾并非无力管控，而是他们认为烧荒能增加土壤肥力，是真的吗？长远看这种方式有哪些影响？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [【毕导】不做诺奖科普的第一年，科普博主我还会做多久？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [多地试点直升高中](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [大学生7个月开20家店月流水破百万](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [大马丁重伤被担架抬下场](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [欠薪345万却砸钱送孩子韩国出道](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [刘丁硕置顶都是王楚钦](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [消失很久的“结婚大件”突然卖爆了](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [沈月好友翁小雯离婚](http://www.daogukj.com/nksrlhgk/)
-- [木乃伊能吃吗？](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [让人生理性厌恶的两口子黄子韬徐艺洋](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [啊？61.0](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [为什么感觉一代教父对任何事情云淡风轻，总可以拿捏很好，但二代教父感觉过的很艰难？](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [“会飞”的特斯拉能够“落地”吗](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [为什么毛不易要比汪苏泷顺利很多？](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.daogukj.com/7870973)
-- [客服回应大量iPhone漂浮海面](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [黄奇帆被查 中纪委官网重磅发文](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [舅舅立遗嘱换我养老该怎么办？](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [【纪录片】威尔史密斯的极地纵横 03 厄瓜多尔搜寻水蚺](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [Roadster 发布后，特斯拉、SpaceX 仍在大跌，马斯克身家四天缩水5286亿元，如何解读？](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [科学家们用物理智斗爱因斯坦？](http://www.daogukj.com/7724801)
-- [浪漫惊悚文字冒险《Rain98》第二支PV公开！Demo现已上线Steam！](http://www.daogukj.com/oxaknnjh/)
-- [“村干部”助农直播带货？小心骗局](http://www.daogukj.com/kxqitgac/)
-- [广交会上这些展品频频圈粉海外客商](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [新疆喀什要投资5000万新建景区？假](http://www.daogukj.com/eymoxoal/)
-- [二十年后发现老师早知道自己撒谎](http://www.daogukj.com/sblnbief/)
-- [李晨郑恺看到王祖蓝回归的反应](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [单位欠缴社保处罚新规将施行](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [中国飞行汽车在做什么](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [“最强”厄尔尼诺意味什么](http://www.daogukj.com/mqwqpttl/)
-- [长白山天池“水怪”真容揭秘](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [为什么年轻人开始流行「纯过日子」？这是理性回归还是被迫收缩？](http://www.daogukj.com/dubydsdf/)
-- [警方追查出1400余张加油机作弊主板](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [女子选“聪明又老实”的结婚后后悔](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [一口气看完故宫角楼建造全过程](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [震撼世界！当《黑神话·钟馗》走进现实，中式美学天花板在此！](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [夫妻买2块劳力士不选不试戴 店员报警](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [中建七局拖欠118名农民工合计320万工资，为何这些大企业也会拖欠工资？相关负责人可能会面临哪些处罚？](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [美国最肥披萨店！全球第一大50斤70000千卡有多离谱？](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [【毕导】不做诺奖科普的第一年，科普博主我还会做多久？](http://www.daogukj.com/oioomhrz/)
-- [郑合惠子任宥纶挽手遛狗路透](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.daogukj.com/btwajvnj/)
-- [员工没来上班 老板1个电话救了两条命](http://www.daogukj.com/8398590)
-- [华中科技大学女篮与武汉盛帆女篮爆发大规模冲突，华科主帅追打对方球员，具体情况如何？将面临什么处罚？](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [【使命召唤23：现代战争4】4K 最高画质 全战役 全剧情流程通关攻略 战役模式 COD23 - Call of Duty:Modern Warfare 4](http://www.daogukj.com/4390556)
-- [张钧甯否认炒股4年赚上亿](http://www.daogukj.com/skeidyel/)
-- [女子每天两杯咖啡 打喷嚏断了根肋骨](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [“优秀的作品都在讲同一件事”](http://www.daogukj.com/jdhlltmp/)
-- [教师真的是社会阅历最少的人吗？](http://www.daogukj.com/inrtjmju/)
-- [高市为何把参加APEC峰会门槛推给国会](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [如何看待《流浪地球3》首次票房预测为48亿？](http://www.daogukj.com/9107163)
-- [刘丁硕称王楚钦排名掉第四反倒松了口气](http://www.daogukj.com/ypwsrnna/)
-- [陪患癌哥哥化疗弟弟查出直肠癌](http://www.daogukj.com/7314066)
-- [朱棣：“我的侄子走丢了，有好心人能帮帮我吗？”](http://www.daogukj.com/3027269)
-- [沈腾说王楚然录一期顶他三期](http://www.daogukj.com/5993003)
+- [国家出手 养老账单要变了](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [你看好《明日方舟：终末地》这款游戏的未来吗？](http://www.daogukj.com/nksrlhgk/)
+- [大马丁重伤被担架抬下场](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [武网](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [黄子韬直接包场免费请你们吃肥姨妈](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [小伙睡太沉家人叫不醒哭着欲办后事](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [为什么现在很多人宁可把钱放在银行账户上，也不愿意拿出来消费?再多的钱不拿出来消费，只是一个数字？](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [演员全是俊男美女让冯远征犯了愁](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [《回合之间》｜致每一位登上闪耀大赛的你！](http://www.daogukj.com/7870973)
+- [沙特和以色列会共同针对胡塞吗](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [科学家们用物理智斗爱因斯坦？](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [福州击败厦门夺首届闽超冠军](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [日本宣称侵华战争是圣战](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [啊？61.0](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [如何看待《流浪地球3》首次票房预测为48亿？](http://www.daogukj.com/7724801)
+- [特斯拉飞行跑车遭遇“踢馆”](http://www.daogukj.com/oxaknnjh/)
+- [普京颁布法令接管四家外企在俄资产](http://www.daogukj.com/kxqitgac/)
+- [广交会真的太全面了](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [【纪录片】威尔史密斯的极地纵横 03 厄瓜多尔搜寻水蚺](http://www.daogukj.com/eymoxoal/)
+- [杭州大三女孩7个月开20家柠檬奶店](http://www.daogukj.com/sblnbief/)
+- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [社保新规11月1日起施行，明确自愿放弃社保无效，怎样解读？企业未足额缴纳社保，员工权益会受到哪些损害？](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [震撼世界！当《黑神话·钟馗》走进现实，中式美学天花板在此！](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [《遗忘之海》“歌丝莉”剧作者角色PV ——采风记](http://www.daogukj.com/mqwqpttl/)
+- [“重阳”的由来](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [吴奇隆戴老花眼镜拼豆 熬到凌晨3点](http://www.daogukj.com/dubydsdf/)
+- [浪漫惊悚文字冒险《Rain98》第二支PV公开！Demo现已上线Steam！](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [普京：炼油厂遭袭导致俄GDP下降1%](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [班主任休产假遭家长投诉质问「一定要生孩子吗」，教师称举报信数量激增，如何看待近几年兴起的校园投诉潮？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [斯瓦泰克武网夺冠在望](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [我是人类](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [曹骏滑铲空翻](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [徐艺洋怀孕下楼梯那英扶了她一把](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [刘丁硕置顶都是王楚钦](http://www.daogukj.com/oioomhrz/)
+- [特斯拉新款Roadster能像火箭一样「起飞」，它能解决哪些实际问题？在现行法律下能上路吗？](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [这些素菜是“升糖陷阱”](http://www.daogukj.com/btwajvnj/)
+- [妈妈将大一儿子生活费从4000降至2000](http://www.daogukj.com/8398590)
+- [“村干部”助农直播带货？小心骗局](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [直击西安阿达西烤馕现场](http://www.daogukj.com/4390556)
+- [20周年版iPhone命名](http://www.daogukj.com/skeidyel/)
+- [多家银行上调存款利率，五年期定存高至 2.1%，怎样看待这一变化？还会持续上调吗？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [女子被家暴终止妊娠 男方要求退彩礼](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [肖战演唱会南京太尽力了](http://www.daogukj.com/jdhlltmp/)
+- [《我家那闺女》不要再诉苦了](http://www.daogukj.com/inrtjmju/)
+- [美国最肥披萨店！全球第一大50斤70000千卡有多离谱？](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [总统“准儿媳”性骚扰财务丑闻连出](http://www.daogukj.com/9107163)
+- [网传世界杯一战封神的佛得角40岁门将沃齐尼亚被俱乐部弃用，疑似要提前退役，原因是什么？](http://www.daogukj.com/ypwsrnna/)
+- [科学家吴军辞去美终身教职回国加盟西湖大学，这一选择背后有哪些考量？](http://www.daogukj.com/7314066)
+- [郑合惠子任宥纶挽手遛狗路透](http://www.daogukj.com/3027269)
+- [【纪录片】中国救护2 05 家和万事兴](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [广交会70年热卖单品大盘点](https://s.weibo.com/weibo?q=%E5%B9%BF%E4%BA%A4%E4%BC%9A70%E5%B9%B4%E7%83%AD%E5%8D%96%E5%8D%95%E5%93%81%E5%A4%A7%E7%9B%98%E7%82%B9)
+- [电影院玩法持续“上新”](https://www.baidu.com/s?wd=%E7%94%B5%E5%BD%B1%E9%99%A2%E7%8E%A9%E6%B3%95%E6%8C%81%E7%BB%AD%E2%80%9C%E4%B8%8A%E6%96%B0%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9a3f60f102aed48ec39c -->
+<!-- content-fingerprint: ee6ef04e73154c507620 -->
