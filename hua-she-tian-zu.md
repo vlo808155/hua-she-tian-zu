@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 中国60岁以上人口超3.23亿
+# 房产证写谁名房子就是谁的吗
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7807863 · 更新：2026-10-18T14:34:11+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7808042 · 更新：2026-10-18T19:44:02+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中国60岁以上人口超3.23亿”位列第 1 位，公开热度指标为 7807863。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“房产证写谁名房子就是谁的吗”位列第 1 位，公开热度指标为 7808042。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据报道，我国60岁以上老年人口超3.23亿。今年以来，民政部会同有关部门，推动县乡村三级养老服务体系建设，初步建成覆盖城乡的养老服务“一张网”。
+来源公开摘要显示：10月18日，广州刘阿姨在中华遗嘱库订立遗嘱，确定房产归属。刘阿姨与继父重组家庭三十余年，婚后购置的学位房登记在继父名下，继父打算将房子过户给继子。中华遗嘱库表示，若无遗嘱，刘阿姨亲生女儿仅能分得房产约1/6份额，因此刘阿姨立遗嘱，把自己享有的1/2房产份额留给女儿。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [相亲对象不知道周末的意思](yi-xin-yi-yi.md)
-- [法国一市长遭以定居者殴打](san-xin-er-yi.md)
+- [接到网贷催收电话统一说不认识](yi-xin-yi-yi.md)
+- [丹麦男子卖中国包子日赚超5万元](san-xin-er-yi.md)
 - [冯远征苦恼话剧院招不到一米六几的女演员，现在演员同质化有多严重？艺术院校培养是否应倾向更多元的标准？](si-hai-wei-jia.md)
 - [长乐夜未央丨全新主题区域「未央城」即将上线](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
 - [本周我国硬核成果密集上新](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [樊振东绝地反击刘丁硕表情亮了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [Angelababy回应被说显老](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [张凌赫特别出演](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [终于知道有眼尾沟怎么画眼线了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [央视曝光：“防癌神药”竟是麦芽糊精](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [韩国网友要求盛艾敬退团](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [直击西安阿达西烤馕现场](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [做了鸡翅，孩子想多吃一个发现没有了，看到表弟碗里堆积几个，二宝看了一眼之后默默吃饭，你会怎么处理？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [法国一市长遭以定居者殴打](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [六小龄童回应“圣黛CP”](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [怎样看待老师制止学生插队，被家长举报体罚，最终调离岗位不再任教？如今学校老师管教孩子面临着哪些困境？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [中国人靠数羊入眠竟是翻译事故](http://www.daogukj.com/ihcjjgzd/)
-- [英国又想回到欧盟？不，是拯救欧盟！](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [《绝命毒师》中老白和灰质公司夫妇到底有何怨恨？](http://www.daogukj.com/hytgpxub/)
-- [法国多地奢侈品店被砸](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [⚡我发明了根治艾滋病的药物，能获得诺贝尔奖吗？⚡](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [手搓版迪迦奥特曼](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [丹麦男子卖中国包子日赚超5万元](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [🛳️杀死伪人🛳️](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [九九重阳今又重阳](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [职业差评现套餐服务，「450元销量下滑，1890元排名垫底」，反映了哪些市场乱象？法律上能怎样维权？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [盛艾敬是否应该退团](http://www.daogukj.com/ihcjjgzd/)
+- [球迷说刘丁硕把樊振东签名卖了五千一个](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [2526赛季NBA季前赛凯尔特人 125:120 76 人，如何评价这场比赛？](http://www.daogukj.com/hytgpxub/)
+- [印象中秦地干旱苍莽，《蒹葭》却把它写得烟水迷离，为什么？](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [花费上万！真人版弹丸论破开庭！](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [网传 DeepSeek V4.1 Flash 1017指纹测出 GPT-6 Astra，这是怎么回事？](http://www.movie.hkepx.cn/xiju/6451502.htm)
 - [长乐夜未央丨全新主题区域「未央城」即将上线](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [坐在火山口吃饭？全球最危险的餐厅吃个饭代价这么大？](http://www.daogukj.com/8357764)
-- [算力成草原新特产](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [法考主观题难度](http://www.daogukj.com/rdfrumhx/)
-- [工作越久越发现自己只是更熟练，并没有更值钱，该怎么办？](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [新人婚礼被奔跑吧站姐完整记录](http://www.daogukj.com/lntrsvpz/)
-- [员工仅1人的空壳公司中标3000万项目](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [月薪5000存款30万](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [银发族成消费市场增速较快人群](http://www.daogukj.com/mofrooiq/)
-- [日本一副市长被3吨重太鼓台压死](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [中国留学生课堂身披旭日旗 校方调查](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [父母欠薪345万捧出的爱豆令人烧心](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [副部级黄日波被查](http://www.daogukj.com/8424365)
+- [【盲人无障碍电影】冰雪奇缘第一部](http://www.daogukj.com/8357764)
+- [文化中国行九九重阳节](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [多家A股科技龙头拟出手回购股份](http://www.daogukj.com/rdfrumhx/)
+- [为了活下去 保时捷又造回油车了](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [手搓版迪迦奥特曼](http://www.daogukj.com/lntrsvpz/)
+- [特朗普放松对俄制裁为何在美引发反弹](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [黄多多在乌镇戏剧节被偶遇](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [Angelababy回应被说显老](http://www.daogukj.com/mofrooiq/)
+- [神父弥撒时被十字架砸中身亡](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [建议售价1980的眼镜片批发价30](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [日本流行“取消吃饭”](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [解放军4艘大型登陆舰实弹演练](http://www.daogukj.com/8424365)
 - [冯远征苦恼话剧院招不到一米六几的女演员，现在演员同质化有多严重？艺术院校培养是否应倾向更多元的标准？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [《鸣潮》共鸣者战斗演示 | 锁暝](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [我是人类](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [花费上万！真人版弹丸论破开庭！](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [房产证写谁名房子就是谁的吗](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [写尽人间春色的古诗词有哪些？](http://www.daogukj.com/4727274)
-- [鳄鱼和鸟类不会衰老是真的吗？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [超3万名伊朗女性接受忍者训练](http://www.daogukj.com/2266153)
-- [重阳节](http://www.daogukj.com/3795795)
-- [法国爆发近年来最严重暴力骚乱](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [《遗忘之海》“歌丝莉”剧作者角色PV ——采风记](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [96岁老人独自坐43小时火车到拉萨](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [法国发生近年来最严重暴力骚乱，约1200人被捕、超150名警察受伤，情况如何？为何此时矛盾进一步激化？](http://www.daogukj.com/uhjkuxrm/)
-- [内部人员代缴采暖费能打折系谣言](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [张雪机车水上行驶如履平地](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [终于知道有眼尾沟怎么画眼线了](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [现在好多演员都开始演伟人的角色了，未来特型演员会消失吗？](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [肯德基为何把百事可乐换成可口可乐](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
-- [印度发生严重踩踏事故](http://www.daogukj.com/5905118)
-- [哪些相声里有知识性的错误？](http://www.daogukj.com/gchjscql/)
-- [如果一颗星球黄金极度廉价普通金属昂贵，黄金会成为建材吗？](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [白鹿奔跑吧合照C位](http://www.daogukj.com/9269800)
-- [血栓最容易盯上谁](http://www.daogukj.com/7091853)
-- [男子叫救援队吊车后坠落被砸身亡](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [如何看待DeepSeek-4.1-flash-1017指纹测出来是6-astra，版本实测如何？](http://www.daogukj.com/2402025)
-- [法国骚乱百年市政厅被烧毁](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [张家齐妈妈买房不够的钱是向父亲借的](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [如果上帝可以让你免费去瑞士滑雪，去卢浮宫旅游，条件是禁止发朋友圈，禁止让任何人知道此事，你去吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [爸爸AB型血妈妈A型血 女儿O型血](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [动态视频｜下大棋！英伟达的RTX Spark笔记本电脑，靠谱吗？](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [茉莉奶白爆单店员劝退消费者](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [【使命召唤23：现代战争4】4K 最高画质 全战役 全剧情流程通关攻略 战役模式 COD23-Call of Duty：Modern Warfare 4【完结】](http://www.daogukj.com/4727274)
+- [公交转型：大车退场](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [老伴去世103岁爷爷暴瘦70斤](http://www.daogukj.com/2266153)
+- [肖战演唱会音乐总监刘卓到南京了](http://www.daogukj.com/3795795)
+- [《弟子不必不如师》](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [山姆会员回应食品安全风波](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [赵又廷：我也喜欢我老婆](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [结过婚我也认是什么梗【梗指南】](http://www.daogukj.com/uhjkuxrm/)
+- [郑州警方辟谣“一家五口烧炭自杀”](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [外媒：阿隆索早已发现皇马问题](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [做了鸡翅，孩子想多吃一个发现没有了，看到表弟碗里堆积几个，二宝看了一眼之后默默吃饭，你会怎么处理？](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [下周A股利好来了](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [这款游戏出现在21世纪还是太超前了](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [【独家】牧神记 第105集 屈山神殿](http://www.daogukj.com/5905118)
+- [洗衣机如何演奏《雨爱》？](http://www.daogukj.com/gchjscql/)
+- [多地解锁农村养老新模样](http://www.movie.hkepx.cn/xiju/1255661.htm)
+- [法国千余人被捕](http://www.daogukj.com/9269800)
+- [JDG KSG大师组加赛条件](http://www.daogukj.com/7091853)
+- [孩子总是玩手机，怎么才能引导孩子少看电子产品？](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [法国143年历史市政厅被烧毁](http://www.daogukj.com/2402025)
+- [田曦薇回应为何演《嫁金钗》](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [律师称AI广告无标注涉嫌消费欺诈](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [中国60岁以上人口超3.23亿](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD60%E5%B2%81%E4%BB%A5%E4%B8%8A%E4%BA%BA%E5%8F%A3%E8%B6%853.23%E4%BA%BF&sa=fyb_news&rsv_dl=fyb_news)
+- [房产证写谁名房子就是谁的吗](https://www.baidu.com/s?wd=%E6%88%BF%E4%BA%A7%E8%AF%81%E5%86%99%E8%B0%81%E5%90%8D%E6%88%BF%E5%AD%90%E5%B0%B1%E6%98%AF%E8%B0%81%E7%9A%84%E5%90%97&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9bdc64fe5cb1e38401f5 -->
+<!-- content-fingerprint: ab43e321780b1034ecb5 -->
