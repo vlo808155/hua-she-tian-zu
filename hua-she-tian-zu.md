@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 公交转型：大车退场
+# 中国60岁以上人口超3.23亿
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7809094 · 更新：2026-10-18T09:32:51+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7807863 · 更新：2026-10-18T14:34:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“公交转型：大车退场”位列第 1 位，公开热度指标为 7809094。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中国60岁以上人口超3.23亿”位列第 1 位，公开热度指标为 7807863。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当前，国内公交行业正经历结构性转型，车辆采购趋向小型化与场景定制。此前，受客流总量回落及多元出行方式分流影响，传统公交“定线、定站、定时”模式面临适配短板。如今，广州、南京等地加速布局微循环小巴与响应式公交。
+来源公开摘要显示：据报道，我国60岁以上老年人口超3.23亿。今年以来，民政部会同有关部门，推动县乡村三级养老服务体系建设，初步建成覆盖城乡的养老服务“一张网”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [山姆品质暴跌你还敢去吗](yi-xin-yi-yi.md)
-- [重阳节](san-xin-er-yi.md)
-- [英伟达市值 9 天蒸发约 4 万亿元，全球 AI 股集体遭抛售，AI 泡沫是不是要破了？](si-hai-wei-jia.md)
-- [【独家】《凡人修仙传之慕兰之战》第20集【总第196集】](wu-gu-feng-deng.md)
+- [相亲对象不知道周末的意思](yi-xin-yi-yi.md)
+- [法国一市长遭以定居者殴打](san-xin-er-yi.md)
+- [冯远征苦恼话剧院招不到一米六几的女演员，现在演员同质化有多严重？艺术院校培养是否应倾向更多元的标准？](si-hai-wei-jia.md)
+- [长乐夜未央丨全新主题区域「未央城」即将上线](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
-- [电影院玩法持续“上新”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [广西大学深夜通报](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [“车辆60米高架坠落车主轻伤”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [夫妻买2块劳力士不选不试戴 店员报警](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [多家银行上调存款利率，五年期定存高至 2.1%，怎样看待这一变化？还会持续上调吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [本周我国硬核成果密集上新](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [樊振东绝地反击刘丁硕表情亮了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [Angelababy回应被说显老](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [张凌赫特别出演](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [终于知道有眼尾沟怎么画眼线了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [重阳节](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [员工没来上班 老板1个电话救了两条命](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [胖东来把工地干成了艺术品](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [陪伴9年，绿宝石模组即将下线！零氪玩家没救了？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [国家出手 养老账单要变了](http://www.daogukj.com/ihcjjgzd/)
-- [嫁金钗这是奔着破纪录去的](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [⚡️大明天团下西洋胜利MVP结算,激情演唱Uptown Funk⚡️【AI MV大赛】](http://www.daogukj.com/hytgpxub/)
-- [为什么感觉一代教父对任何事情云淡风轻，总可以拿捏很好，但二代教父感觉过得很艰难？](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [内部人员代缴采暖费能打折系谣言](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [社保新规11月1日起施行，明确自愿放弃社保无效，怎样解读？企业未足额缴纳社保，员工权益会受到哪些损害？](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [【独家】《凡人修仙传之慕兰之战》第20集【总第196集】](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [⚡1000只猫vs1000只狗⚡](http://www.daogukj.com/8357764)
-- [世界艺术的上海时间](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [黄奇帆被查 中纪委官网重磅发文](http://www.daogukj.com/rdfrumhx/)
-- [向太：李连杰女儿患抑郁症遭高校拒收](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [“起兵yes削藩no，奉天靖难gogogo！”](http://www.daogukj.com/lntrsvpz/)
-- [特斯拉飞行跑车遭遇踢馆](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [班主任休产假遭家长投诉质问「一定要生孩子吗」，教师称举报信数量激增，如何看待近几年兴起的校园投诉潮？](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [网传世界杯一战封神的佛得角40岁门将沃齐尼亚被俱乐部弃用，疑似要提前退役，原因是什么？](http://www.daogukj.com/mofrooiq/)
-- [越来越多人不接陌生电话](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [以色列定居者袭击欧洲外交官](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [“2700元搞死一家店铺”](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [普京称赞包围消灭2000乌军战果](http://www.daogukj.com/8424365)
-- [英伟达市值 9 天蒸发约 4 万亿元，全球 AI 股集体遭抛售，AI 泡沫是不是要破了？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [现在好多演员都开始演伟人的角色了，未来特型演员会消失吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [北京马拉松](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [蒋依依方辟谣与郭麒麟结婚传闻](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [人胖的时候感受不到自己胖](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [央视曝光：“防癌神药”竟是麦芽糊精](http://www.daogukj.com/4727274)
-- [今又重阳岁岁重阳](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [《甄嬛传》为啥播出15年还在刷屏](http://www.daogukj.com/2266153)
-- [演员招不到黄胖子了](http://www.daogukj.com/3795795)
-- [亚马尔世界波破门](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [浙江富婆家有产业却没人情味](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [日美将举行大规模联合军演，投入兵力近 6 万人，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [多地试点直升高中](http://www.daogukj.com/uhjkuxrm/)
-- [徐艺洋弟弟发文](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [移动公司在我的名下给别人安装了个宽带，现在取不掉怎么办呢？](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [多家银行上调存款利率，五年期定存高至 2.1%，怎样看待这一变化？还会持续上调吗？](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [广西大学通报学生坠亡：排除刑事案件](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [花费上万！真人版弹丸论破开庭！](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
-- [手搓版迪迦奥特曼](http://www.daogukj.com/5905118)
-- [【微电影】星河外卖员：规则诡域](http://www.daogukj.com/gchjscql/)
-- [它们共同的名字叫“长征”](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [曾辉淘汰王赫野碎了](http://www.daogukj.com/9269800)
-- [爸爸AB型妈妈A型生出O型血宝宝](http://www.daogukj.com/7091853)
-- [做了鸡翅，孩子想多吃一个发现没有了，看到表弟碗里堆积几个，二宝看了一眼之后默默吃饭，你会怎么处理？](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [九月初九愿岁月久久](http://www.daogukj.com/2402025)
-- [医生回应AB型爸和A型妈生出O型娃](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [嫁金钗口碑发酵](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [法国一市长遭以定居者殴打](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [六小龄童回应“圣黛CP”](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [怎样看待老师制止学生插队，被家长举报体罚，最终调离岗位不再任教？如今学校老师管教孩子面临着哪些困境？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [中国人靠数羊入眠竟是翻译事故](http://www.daogukj.com/ihcjjgzd/)
+- [英国又想回到欧盟？不，是拯救欧盟！](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [《绝命毒师》中老白和灰质公司夫妇到底有何怨恨？](http://www.daogukj.com/hytgpxub/)
+- [法国多地奢侈品店被砸](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [⚡我发明了根治艾滋病的药物，能获得诺贝尔奖吗？⚡](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [手搓版迪迦奥特曼](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [长乐夜未央丨全新主题区域「未央城」即将上线](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [坐在火山口吃饭？全球最危险的餐厅吃个饭代价这么大？](http://www.daogukj.com/8357764)
+- [算力成草原新特产](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [法考主观题难度](http://www.daogukj.com/rdfrumhx/)
+- [工作越久越发现自己只是更熟练，并没有更值钱，该怎么办？](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [新人婚礼被奔跑吧站姐完整记录](http://www.daogukj.com/lntrsvpz/)
+- [员工仅1人的空壳公司中标3000万项目](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [月薪5000存款30万](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [银发族成消费市场增速较快人群](http://www.daogukj.com/mofrooiq/)
+- [日本一副市长被3吨重太鼓台压死](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [中国留学生课堂身披旭日旗 校方调查](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [父母欠薪345万捧出的爱豆令人烧心](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [副部级黄日波被查](http://www.daogukj.com/8424365)
+- [冯远征苦恼话剧院招不到一米六几的女演员，现在演员同质化有多严重？艺术院校培养是否应倾向更多元的标准？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [《鸣潮》共鸣者战斗演示 | 锁暝](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [我是人类](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [花费上万！真人版弹丸论破开庭！](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [房产证写谁名房子就是谁的吗](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [写尽人间春色的古诗词有哪些？](http://www.daogukj.com/4727274)
+- [鳄鱼和鸟类不会衰老是真的吗？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [超3万名伊朗女性接受忍者训练](http://www.daogukj.com/2266153)
+- [重阳节](http://www.daogukj.com/3795795)
+- [法国爆发近年来最严重暴力骚乱](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [《遗忘之海》“歌丝莉”剧作者角色PV ——采风记](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [96岁老人独自坐43小时火车到拉萨](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [法国发生近年来最严重暴力骚乱，约1200人被捕、超150名警察受伤，情况如何？为何此时矛盾进一步激化？](http://www.daogukj.com/uhjkuxrm/)
+- [内部人员代缴采暖费能打折系谣言](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [张雪机车水上行驶如履平地](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [终于知道有眼尾沟怎么画眼线了](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [现在好多演员都开始演伟人的角色了，未来特型演员会消失吗？](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [肯德基为何把百事可乐换成可口可乐](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [印度发生严重踩踏事故](http://www.daogukj.com/5905118)
+- [哪些相声里有知识性的错误？](http://www.daogukj.com/gchjscql/)
+- [如果一颗星球黄金极度廉价普通金属昂贵，黄金会成为建材吗？](http://www.movie.hkepx.cn/xiju/1255661.htm)
+- [白鹿奔跑吧合照C位](http://www.daogukj.com/9269800)
+- [血栓最容易盯上谁](http://www.daogukj.com/7091853)
+- [男子叫救援队吊车后坠落被砸身亡](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [如何看待DeepSeek-4.1-flash-1017指纹测出来是6-astra，版本实测如何？](http://www.daogukj.com/2402025)
+- [法国骚乱百年市政厅被烧毁](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [张家齐妈妈买房不够的钱是向父亲借的](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [公交转型：大车退场](https://www.baidu.com/s?wd=%E5%85%AC%E4%BA%A4%E8%BD%AC%E5%9E%8B%EF%BC%9A%E5%A4%A7%E8%BD%A6%E9%80%80%E5%9C%BA&sa=fyb_news&rsv_dl=fyb_news)
+- [中国60岁以上人口超3.23亿](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD60%E5%B2%81%E4%BB%A5%E4%B8%8A%E4%BA%BA%E5%8F%A3%E8%B6%853.23%E4%BA%BF&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9627a40b41c4237450bf -->
+<!-- content-fingerprint: 9bdc64fe5cb1e38401f5 -->
