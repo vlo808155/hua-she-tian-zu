@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 留学生披旭日旗岂能一句道歉就翻篇
+# 前护士张水华破赛会纪录夺得西马冠军，如何评价她的表现？
 
-> 来源：今日头条热榜 · 排名：第 4 位 · 热度：19228918 · 分类：热门事件 · 更新：2026-10-19T08:31:42+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：339 万热度 · 分类：问答 · 更新：2026-10-19T13:16:31+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“留学生披旭日旗岂能一句道歉就翻篇”位列第 4 位，公开热度指标为 19228918，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“前护士张水华破赛会纪录夺得西马冠军，如何评价她的表现？”位列第 4 位，公开热度指标为 339 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：10月18日7时30分，2026西安马拉松赛开跑。曾被称为“最快女护士”、后离职转型职业跑者的张水华参赛。今天（18日）上午，她以突破“230”（2小时30分钟）的成绩（2时29分07秒），打破赛会纪录，夺得女子组冠军。据主办方公开信息显示，本届“西马”女子第一名奖金为8万元人民币，今年增设破赛会纪录专项奖励，马拉松项目男子、女子第一名运动员，如完赛成绩打破赛会纪录（男子少于02:10:44，女子少于02:29:37），分别获得奖金2万元人民币。百度安全验证
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [杭州21岁大三女生摆摊卖柠檬奶，一年开出20家门店，月营业额超100万，她成功的因素有哪些？](bing-tian-xue-di.md)
-- [【独家】牧神记 第105集 屈山神殿](ri-xin-yue-yi.md)
-- [央视曝光药企围猎老年人](hua-she-tian-zu.md)
-- [我们的社会只筛选不培养](yi-xin-yi-yi.md)
+- [不是 AI 特效！这才是《中国功夫》的魅力！](bing-tian-xue-di.md)
+- [李思潼入围金鸡奖最佳女主](ri-xin-yue-yi.md)
+- [山姆品质暴跌？负责人回应](hua-she-tian-zu.md)
+- [金鸡奖提名](yi-xin-yi-yi.md)
 
 ## 站内推荐
 
-- [马克龙谴责法国多地暴力事件](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [大麦回应“肖战演唱会首排门票25万”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [为什么要把社保缴费的尺子统一起来](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [谷歌将 TPU 送上太空却因散热难题停机，太空算力中心前景如何？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [张雪回记者九号自动驾驶技术看法称“有点搞笑”引热议，发文回应仔细剖析争议点，有哪些信息值得关注？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [梁文锋和DeepSeek，为什么配得上"国运级"三个字？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [有人说砍掉科研圈95%的研究和论文，完全不影响科学发展，这话对吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [如何看待S16瑞士轮首轮抽签结果，IG首战GEN，TES遭遇 HLE？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [谷歌将 TPU AI芯片送入太空，每次执行约15分钟运算，之后必须暂停散热，太空算力中心前景如何？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [如何看待国家电影局、体育总局开展「跟着电影去运动」行动，鼓励利用电影院空闲时段开展重大体育赛事直播？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [人生不是一条直线](http://www.movie.hkepx.cn/xiju/0178022.htm)
-- [李昀锐下意识护着孟子义](http://www.play.hengshemaoyi.cn/xiju/5046145.htm)
-- [为什么故宫不做一些高仿的国宝呢？故宫博物院有很多美轮美奂的文物，为什么不能1:1复制一些呢？](http://www.play.hengshemaoyi.cn/xiju/9800998.htm)
-- [中国外贸风向标 创多项历史新高](http://www.movie.hkepx.cn/xiju/3631672.htm)
-- [客观来看，贫困生能花三千块治牙吗？为何这会引发热议，和之前的贫困生看演唱会、9.9元咖啡等区别在哪？](http://www.movie.hkepx.cn/movie/7462782.htm)
-- [高市政权越来越像个极端邪教](http://www.movie.hkepx.cn/xiju/1015798.htm)
-- [我们的社会只筛选不培养](http://www.play.hengshemaoyi.cn/xiju/5643924.htm)
-- [男子称入狱20多天网贷记录多了十几万](http://www.movie.hkepx.cn/movie/8759369.htm)
-- [特朗普新任白宫发言人上任仅5天就被解雇，创下史上最短纪录，为什么会这样？](http://www.play.hengshemaoyi.cn/xiju/4432368.htm)
-- [为什么要把社保缴费的尺子统一起来](http://www.play.hengshemaoyi.cn/xiju/6073467.htm)
-- [穆里尼奥：维尼修斯早该离开皇马](http://www.movie.hkepx.cn/xiju/5980262.htm)
-- [日本出现取消吃饭现象](http://www.play.hengshemaoyi.cn/xiju/2945070.htm)
-- [法国发生近年来最严重暴力骚乱，约1200人被捕、超150名警察受伤，情况如何？为何此时矛盾进一步激化？](http://www.play.hengshemaoyi.cn/xiju/1081763.htm)
-- [也是当上外卖大法官了【第三集】](http://www.play.hengshemaoyi.cn/kongbu/6377457.htm)
-- [遥控器一按实际油箱被“缩水”](http://www.play.hengshemaoyi.cn/kongbu/9983084.htm)
-- [多措并举推动银发经济提质升级](http://www.movie.hkepx.cn/movie/1590582.htm)
-- [儿时追过的第一部电视剧！明明抄袭但却依然挥之不去？](http://www.movie.hkepx.cn/movie/7344933.htm)
-- [奚梦瑶重返维密T台走秀](http://www.play.hengshemaoyi.cn/xiju/4915159.htm)
-- [AI剧真实到几乎可以替代演员](http://www.daogukj.com/7451395)
-- [一艘货轮在霍尔木兹海峡触雷沉没，大量全新iphone漂浮在海面，为何货轮会误入危险航道？损失有多大？](http://www.movie.hkepx.cn/xiju/0966300.htm)
-- [吴越质问“花姐”骗了多少钱](http://www.play.hengshemaoyi.cn/kongbu/6634694.htm)
-- [【特摄吐槽】谁家漫画给贝利亚加吻戏？](http://www.play.hengshemaoyi.cn/xiju/5096361.htm)
-- [本西蒙斯跟腱撕裂](http://www.play.hengshemaoyi.cn/xiju/7469741.htm)
-- [李秀满新女团 A2O 被曝最小成员仅 13 岁引发争议，如何看待 K-pop 偶像低龄化趋势？](http://www.movie.hkepx.cn/movie/9026192.htm)
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.play.hengshemaoyi.cn/kongbu/5604991.htm)
-- [2026维秘大秀](http://www.movie.hkepx.cn/movie/8308007.htm)
-- [全宇宙最team的一把救世主模式！！！](http://www.movie.hkepx.cn/xiju/7306986.htm)
-- [孕妇被快递员找上门吓到先兆流产](http://www.movie.hkepx.cn/xiju/0257863.htm)
-- [夫妻花67.3万元买劳力士手表，店员劝说2小时无果只好报警！](http://www.movie.hkepx.cn/xiju/6731294.htm)
-- [为什么不建议在简历上撒谎？](http://www.play.hengshemaoyi.cn/xiju/4090588.htm)
-- [早上喝盐水可以排毒？误导](http://www.play.hengshemaoyi.cn/kongbu/9168900.htm)
-- [为什么中餐的做法明明比日本料理繁复的多，国际上高端日料店却反而比高端中餐馆多？](http://www.daogukj.com/ncgkzwop/)
-- [大麦回应“肖战演唱会首排门票25万”](http://www.daogukj.com/jccbllpg/)
-- [张雪回记者九号自动驾驶技术看法称“有点搞笑”引热议，发文回应仔细剖析争议点，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/0279974.htm)
-- [伪造演员吴越形象带货账号被封](http://www.play.hengshemaoyi.cn/xiju/3554241.htm)
-- [法国严重暴力骚乱原因](http://www.play.hengshemaoyi.cn/xiju/8459729.htm)
-- [赵本山携手象牙山巨头们激情演唱《Uptown Funk》](http://www.daogukj.com/pzlzbctx/)
-- [杭州21岁大三女生摆摊卖柠檬奶，一年开出20家门店，月营业额超100万，她成功的因素有哪些？](http://www.play.hengshemaoyi.cn/xiju/7377262.htm)
-- [建议售价1980元的眼镜片批发价30元](http://www.daogukj.com/6372329)
-- [“九国联军”真能锁住台海大门吗](http://www.movie.hkepx.cn/movie/7614208.htm)
-- [赵又廷：我也喜欢我老婆](http://www.daogukj.com/2745725)
-- [长乐夜未央丨全新主题区域「未央城」即将上线](http://www.movie.hkepx.cn/movie/9778579.htm)
-- [钧正平批中国留学生披旭日旗](http://www.play.hengshemaoyi.cn/kongbu/3554017.htm)
-- [新一股冷空气将影响我国](http://www.movie.hkepx.cn/xiju/4074663.htm)
-- [“这才是许愿池真正的意义，每一枚硬币都藏着人间善意”](http://www.movie.hkepx.cn/xiju/6719507.htm)
-- [中国留学生身披旭日旗 钧正平发声](http://www.play.hengshemaoyi.cn/xiju/7707387.htm)
-- [没退休就意外离世交的社保怎么办](http://www.play.hengshemaoyi.cn/kongbu/3875519.htm)
-- [结婚偶遇跑男录制 新人喜提站姐神图](http://www.play.hengshemaoyi.cn/kongbu/8127611.htm)
-- [震撼世界！当《黑神话·钟馗》走进现实，中式美学天花板在此！](http://www.daogukj.com/oedjbnpj/)
-- [贾宝玉吃丫鬟嘴上的胭脂，放今天就是性骚扰，为什么在男女授受不亲的《红楼梦》里不是大问题？](http://www.daogukj.com/tsdqguup/)
+- [“这才是许愿池真正的意义，每一枚硬币都藏着人间善意”](http://www.movie.hkepx.cn/xiju/0178022.htm)
+- [泽连斯基：乌克兰多地遭袭](http://www.play.hengshemaoyi.cn/xiju/5046145.htm)
+- [《鸣潮》共鸣者战斗演示 | 锁暝](http://www.play.hengshemaoyi.cn/xiju/9800998.htm)
+- [陈奕迅开启重录旧唱片「现场录音式演唱会」，要求封存手机且禁止跟唱鼓掌，如何看待这一观演规定？](http://www.movie.hkepx.cn/xiju/3631672.htm)
+- [每一位认真谋生的人都值得被仰望](http://www.movie.hkepx.cn/movie/7462782.htm)
+- [女局长被“仙人跳”团伙敲诈19万](http://www.movie.hkepx.cn/xiju/1015798.htm)
+- [金鸡奖提名](http://www.play.hengshemaoyi.cn/xiju/5643924.htm)
+- [女子离婚6天用AI救了前夫一命](http://www.movie.hkepx.cn/movie/8759369.htm)
+- [土鸡蛋和普通鸡蛋有啥区别？](http://www.play.hengshemaoyi.cn/xiju/4432368.htm)
+- [如何看待S16瑞士轮首轮抽签结果，IG首战GEN，TES遭遇 HLE？](http://www.play.hengshemaoyi.cn/xiju/6073467.htm)
+- [科比23岁女儿首登维密T台大秀](http://www.movie.hkepx.cn/xiju/5980262.htm)
+- [女局长遭“仙人跳”被敲诈19万](http://www.play.hengshemaoyi.cn/xiju/2945070.htm)
+- [法国千所学校抗议演变成暴力骚乱，背后深层原因是什么？](http://www.play.hengshemaoyi.cn/xiju/1081763.htm)
+- [法国小龙虾泛滥，下笼就是200只？](http://www.play.hengshemaoyi.cn/kongbu/6377457.htm)
+- [专家：A股估值处于历史低位](http://www.play.hengshemaoyi.cn/kongbu/9983084.htm)
+- [第五届亚残运开幕](http://www.movie.hkepx.cn/movie/1590582.htm)
+- [【英雄联盟】K/DA官方MV - “FIRESTARTER（燃）”正式上线](http://www.movie.hkepx.cn/movie/7344933.htm)
+- [奚梦瑶鎏金翅膀](http://www.play.hengshemaoyi.cn/xiju/4915159.htm)
+- [志愿军女主 张子枫](http://www.daogukj.com/7451395)
+- [人生不是一条直线](http://www.movie.hkepx.cn/xiju/0966300.htm)
+- [河南一村子在荒郊野地安装健身器材](http://www.play.hengshemaoyi.cn/kongbu/6634694.htm)
+- [马克龙：法国人怎么能这样对待法国](http://www.play.hengshemaoyi.cn/xiju/5096361.htm)
+- [高市早苗3天内2次拜鬼](http://www.play.hengshemaoyi.cn/xiju/7469741.htm)
+- [该如何评论中国南京籍留学生，在莫斯科国立大学历史系课堂，身披旭日旗、桌上摆放日军军帽的事件？](http://www.movie.hkepx.cn/movie/9026192.htm)
+- [儿时追过的第一部电视剧！明明抄袭但却依然挥之不去？](http://www.play.hengshemaoyi.cn/kongbu/5604991.htm)
+- [国内车企为何没先想到Roadster](http://www.movie.hkepx.cn/movie/8308007.htm)
+- [辛芷蕾掉提金鸡奖](http://www.movie.hkepx.cn/xiju/7306986.htm)
+- [钧正平就中国留学生身披旭日旗发声](http://www.movie.hkepx.cn/xiju/0257863.htm)
+- [这款游戏出现在21世纪还是太超前了](http://www.movie.hkepx.cn/xiju/6731294.htm)
+- [【盲人无障碍电影】冰雪奇缘第一部](http://www.play.hengshemaoyi.cn/xiju/4090588.htm)
+- [如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？](http://www.play.hengshemaoyi.cn/kongbu/9168900.htm)
+- [熊出没最巅峰的一个系列，四季篇](http://www.daogukj.com/ncgkzwop/)
+- [有人说砍掉科研圈95%的研究和论文，完全不影响科学发展，这话对吗？](http://www.daogukj.com/jccbllpg/)
+- [如何看待国家电影局、体育总局开展「跟着电影去运动」行动，鼓励利用电影院空闲时段开展重大体育赛事直播？](http://www.play.hengshemaoyi.cn/xiju/0279974.htm)
+- [宋佳 金鸡奖](http://www.play.hengshemaoyi.cn/xiju/3554241.htm)
+- [陈妤颉称父母已帮她存好奖金](http://www.play.hengshemaoyi.cn/xiju/8459729.htm)
+- [中国留学生身披旭日旗 钧正平发声](http://www.daogukj.com/pzlzbctx/)
+- [不是 AI 特效！这才是《中国功夫》的魅力！](http://www.play.hengshemaoyi.cn/xiju/7377262.htm)
+- [Deepseek对百度搜索的冲击有多大？](http://www.daogukj.com/6372329)
+- [特朗普新任白宫发言人上任仅5天就被解雇，创下史上最短纪录，为什么会这样？](http://www.movie.hkepx.cn/movie/7614208.htm)
+- [2627赛季英超联赛英超第7轮诺丁汉森林 0:1 阿森纳，如何评价这场比赛？](http://www.daogukj.com/2745725)
+- [“China Haul”火到广交会](http://www.movie.hkepx.cn/movie/9778579.htm)
+- [网友吐槽金鸡奖提名](http://www.play.hengshemaoyi.cn/kongbu/3554017.htm)
+- [被问乌还算盟友吗 美财长连躲三次](http://www.movie.hkepx.cn/xiju/4074663.htm)
+- [🐧谁的大吉他最好玩!?🐧](http://www.movie.hkepx.cn/xiju/6719507.htm)
+- [孙颖莎 不鼓励生日应援活动](http://www.play.hengshemaoyi.cn/xiju/7707387.htm)
+- [眼镜的暴利被谁赚走了](http://www.play.hengshemaoyi.cn/kongbu/3875519.htm)
+- [奚梦瑶维密秀超大蝴蝶翅膀](http://www.play.hengshemaoyi.cn/kongbu/8127611.htm)
+- [全宇宙最team的一把救世主模式！！！](http://www.daogukj.com/oedjbnpj/)
+- [【科学修仙】怎能命丧于此？！~~~【up动画】](http://www.daogukj.com/tsdqguup/)
 
 </details>
 
 ## 原始来源
 
-- [留学生披旭日旗岂能一句道歉就翻篇](https://www.toutiao.com/trending/7698154013367520777/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227698154013367520777%22%2C%22hot_board_impr_id%22%3A%2220261019083140D0B988B0716AF7E454DD%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [前护士张水华破赛会纪录夺得西马冠军，如何评价她的表现？](https://www.zhihu.com/question/2095160978170181329)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: de90adda79447dc8d272 -->
+<!-- content-fingerprint: 9b4da87930fdd6a107f3 -->
