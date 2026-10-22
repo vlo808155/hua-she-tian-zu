@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 折1万次，会坏吗？iPhone Duo深度评测
+# 张雪公开求助如何让食堂的米饭好吃，不少人送米上门，张雪称不是米的问题，食堂做米饭有哪些技术难点？
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：1315980 · 分类：数码 · 更新：2026-10-22T07:24:14+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：453 万热度 · 分类：问答 · 更新：2026-10-22T09:46:16+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“折1万次，会坏吗？iPhone Duo深度评测”位列第 1 位，公开热度指标为 1315980，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“张雪公开求助如何让食堂的米饭好吃，不少人送米上门，张雪称不是米的问题，食堂做米饭有哪些技术难点？”位列第 1 位，公开热度指标为 453 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：相信各位和我们一样，对苹果的第一台折叠屏手机充满了好奇，这次我们为iPhone Duo准备了一系列特别的测试，甚至专门准备了一台能够把它折叠10000次的设备…我们想和你一起看看，iPhone Duo用起来到底怎么样？如果你喜欢这期节目，请多多支持我们，并把视频分享给你的朋友们一起看看～ 制作人员 监督/SUPERVISOR Tim 益君 导演/DIRECTOR Tim 花甲鱼 大橙 Shawn 思凡 Michael 老江 毛毛 制片/PRODUCER 朵朵 益君 Oscar 土豆泥 前任 摄影/
+来源公开摘要显示：10月19日，张雪机车创始人张雪在社交平台发布视频，向全网公开求助：谁能把其公司食堂的米饭做得好吃，可获奖励，甚至还可以承包公司食堂。 张雪在视频中表示，感觉公司食堂蒸出来的米饭没有家里电饭煲蒸出来的好吃，“如果你有能力能让1000多人的饭变得好吃，我可以买你的设备，你也可以来给我咨询，我可以给你付费。” 10月20日，张雪发布最新视频作出回应：“不要再给我们送米了，不是米的问题”“换个米就能把米饭做好吃，这个都不会，那我们公司包括我在内就是一群蠢猪”。他表示，视频发出后不少人专程送米上门，但食堂并不需要大米。在他看来，倘若仅靠换米就能改善米饭口感，团队
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [红果短剧自砍摇钱树](wu-gu-feng-deng.md)
-- [唐驳虎：中国老板已准备放弃越南了](liu-shen-wu-zhu.md)
-- [丹麦男子卖中国包子一天赚 5 万元，中式面食在海外有多受欢迎？还有哪些中国传统小吃最有可能在海外走红？](qi-shang-ba-xia.md)
-- [一束光，怎样变成你眼前的游戏世界？](ba-mian-ling-long.md)
+- [折1万次，会坏吗？iPhone Duo深度评测](wu-gu-feng-deng.md)
+- [地铁站内看书5小时被扣15元](liu-shen-wu-zhu.md)
+- [iPhoneDuo仅适合特定人群](qi-shang-ba-xia.md)
+- [普京称首艘油轮将向美国运4万吨柴油](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [传国玉玺究竟去哪了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [连英伟达都承认消费级显卡已超出其控制，AI 显卡内存涨价狂潮何时结束?](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [为什么数学题永远刷不完，总是千变万化？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [如何评价山东“仙人跳”犯罪团伙作案38起，其中3名受害者拒不付款被采取强制措施，有哪些细节值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [辅导孩子作业的时候，孩子迟迟不懂，你是反思自己不会教，还是觉得孩子笨呢？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [《边缘行者 2》开播获外媒满分评价，该作水准究竟如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [古代穷人为什么不搬到海边去？海边鱼多不是饿不死吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [国家癌症中心发布数据，甲状腺癌跃居发病第 3 位，20～39 岁男女发病率最高，为什么会这样？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [给91岁的超级玩家老爷爷爆改电竞房](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [《三过车门而不入》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [手机市场为何突然入冬了](http://www.daogukj.com/7394302)
-- [开超市到底该不该赊账？](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [影视飓风iPhoneDuo评测](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [传国玉玺究竟去哪了](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [日本年轻人流行「取消吃饭」，背后折射出怎样的现实困境？](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [宁德时代 A 股盘中跌超 10％，本轮大跌有哪些诱因？动力电池行业增长逻辑要变了吗？](http://www.daogukj.com/thgdlrxk/)
-- [肖战刘铮亮当群演了](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [芭莎 有人在后台不出来](http://www.daogukj.com/qqvbmaen/)
-- [体操世锦赛女团决赛](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [丹麦男子卖中国包子一天赚 5 万元，中式面食在海外有多受欢迎？还有哪些中国传统小吃最有可能在海外走红？](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [张小斐 救场](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [高市早苗推荐，暴打东大情报组织！日本大火的抗中神剧看瞎了我的眼【毒舌的南瓜】](http://www.daogukj.com/6313812)
-- [大难不死的男孩爱上纯血家族的女孩【AI全民制作人】](http://www.daogukj.com/wczbkkvt/)
-- [伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [联想词](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [解放军“围观”美日演习？学者解读](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [红果短剧自砍摇钱树](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [如何看待 52 岁刘恺威与 32 岁黎纪君恋情公开，两人因匹克球互生情愫，已秘密恋爱两个月？](http://www.daogukj.com/jjlkzcvz/)
-- [武志红李雪被指缺乏爱的体验](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [于东来：已拿出2000万投资爱情研究](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [白宫新闻发言人五天光速离职，我的评价是不如我](http://www.daogukj.com/drcaefzl/)
-- [【萌黄一槽】老紫[奇拉比落风传]全技能爆料！向你伸出温暖的灼炎“猿手”！](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [为啥这几年双十一、双十二活动周期被拉长、玩法不断改进，反而热度好像还不如以前了？你今年有「剁手」吗？](http://www.daogukj.com/rrxeunix/)
-- [《三过车门而不入》](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [⚡赵本山 《绅士Gentle Man》⚡](http://www.daogukj.com/qekijaaa/)
-- [祖海高定压轴款](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [肖战小城良方路人进场](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [泽连斯基做出重大让步释放什么信号](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [史诗级发现，曼从中间劈开是MAN](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [原来明星租一次高定这么贵啊](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [拜仁2比2阿森纳](http://www.daogukj.com/4880877)
-- [西安阿达西称现在没有利润还贴钱](http://www.daogukj.com/gyblgzpw/)
-- [泽连斯基：愿保留75%领土以达和平](http://www.daogukj.com/3742193)
-- [女子下班后绕道买菜，遭遇车祸身亡，人社部门不予认定工伤，法院判决算工伤，如何理解？](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [【何同学】能折！但代价呢？iPhone Duo首发体验](http://www.daogukj.com/yhmvbvtt/)
-- [张清颖平衡木15.066分](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [俄军目前在战区有90万名军人](http://www.daogukj.com/4405323)
-- [为什么数学题永远刷不完，总是千变万化？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [一家三口被困酒店卫生间超4小时，其间消防喷淋失控致婴儿险失温，当事人索赔15万，从法律角度如何解读？](http://www.daogukj.com/ydbbqbuc/)
-- [和女同事相处真的要小心分寸](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [事关公积金贷款宁波辟谣](http://www.daogukj.com/5927597)
-- [曝自费高定艺人名字](http://www.daogukj.com/3691526)
-- [有哪些国内能看到的书同时在国外是禁书？](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [网友高铁偶遇自称114岁老人，能熟练使用智能手机，年龄真实性如何？横跨民国到AI时代的人生会是怎样的？](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [古代穷人为什么不搬到海边去？海边鱼多不是饿不死吗？](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [人民日报评特斯拉能飞：不必妄自菲薄](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [“神探”李昌钰将安葬于扬州](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [张雪发现餐后水果没人吃要求更换](http://www.daogukj.com/9555051)
-- [邱祺缘 体操世锦赛](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [看中国使馆对线菲律宾魔怔人爽过AI短剧](http://www.daogukj.com/7394302)
+- [一起命案竟有三十多个嫌疑人？光天化日行凶，却没人看到？《谜探路德维希》第二季 上](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [14家银行叫停或限制个人异地存款](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [《边缘行者 2》开播获外媒满分评价，该作水准究竟如何？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [于东来：已拿出2000万投资爱情研究](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [【何同学】能折！但代价呢？iPhone Duo首发体验](http://www.daogukj.com/thgdlrxk/)
+- [人民日报评特斯拉能飞：不必妄自菲薄](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [张小斐 救场](http://www.daogukj.com/qqvbmaen/)
+- [问界M9起火公关应对](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [iPhoneDuo仅适合特定人群](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [曝自费高定艺人名字](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [入局](http://www.daogukj.com/6313812)
+- [辛芷蕾凭《日掛中天》获威尼斯影后却未入围金鸡奖，如何看待这一结果？](http://www.daogukj.com/wczbkkvt/)
+- [泽连斯基：愿保留75%领土以达和平](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [陆濯知道魏娆身份后就开始放飞自我了](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [这台世界顶尖大科学装置首次出光](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [红果把观众的时间标好了价](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [折1万次，会坏吗？iPhone Duo深度评测](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [小城良方开播成绩](http://www.daogukj.com/jjlkzcvz/)
+- [白宫新闻发言人五天光速离职，我的评价是不如我](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [重庆：拟追责问责公职人员94人](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [原来明星租一次高定这么贵啊](http://www.daogukj.com/drcaefzl/)
+- [中国体操女团夺冠解说哽咽了](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [骗子冒充儿子朋友上门取走5万](http://www.daogukj.com/rrxeunix/)
+- [五部门发布骗局风险提示](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [致敬伟大的胜利](http://www.daogukj.com/qekijaaa/)
+- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [中国经济发展绿色化底色愈加鲜明](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [打疫苗会破坏自身免疫系统？假的](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [中国这一冠 等了20年](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [日本79岁女护理员上18小时夜班](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [抽象历史人物志——张作霖](http://www.daogukj.com/4880877)
+- [周杰伦说我是中国人有什么可讨论的](http://www.daogukj.com/gyblgzpw/)
+- [儿科医生辞职去高端私立医院](http://www.daogukj.com/3742193)
+- [史诗级发现，曼从中间劈开是MAN](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [女子称被自家12斤猫踹进手术室](http://www.daogukj.com/yhmvbvtt/)
+- [不抛弃不放弃，摩托老哥双排，七星大佬化身如来！](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [腾讯新游《人间异想计划》首曝 22 分钟实机，本作玩法与画质表现如何？](http://www.daogukj.com/4405323)
+- [国家癌症中心发布数据，甲状腺癌跃居发病第 3 位，20～39 岁男女发病率最高，为什么会这样？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [红果短剧自砍摇钱树](http://www.daogukj.com/ydbbqbuc/)
+- [开超市到底该不该赊账？](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [超强台风来了：江浙沪台周末要下台风雨，华南福建先降温后又升温](http://www.daogukj.com/5927597)
+- [多款 3A 老游戏被 AI 光速反编译并移植网页端，将对游戏行业带来哪些冲击？](http://www.daogukj.com/3691526)
+- [宇树机器人展示举起汽车救人](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [杭州大二学生开一人公司营收破60万](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [中国体操女团时隔20年世锦赛夺冠](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [西安阿达西称现在没有利润还贴钱](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [负债7w另有1万信用卡即将逾期](http://www.daogukj.com/9555051)
+- [iPhoneDuo3.2万次折叠后手感无变化](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [折1万次，会坏吗？iPhone Duo深度评测](https://b23.tv/BV1xrnz6gEVD)
+- [张雪公开求助如何让食堂的米饭好吃，不少人送米上门，张雪称不是米的问题，食堂做米饭有哪些技术难点？](https://www.zhihu.com/question/2096179248318911470)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4b1d4aee962378448e59 -->
+<!-- content-fingerprint: 2cd09c3c2df020eaf66d -->
