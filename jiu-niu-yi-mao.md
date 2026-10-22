@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 张雪公开求助如何让食堂的米饭好吃，不少人送米上门，张雪称不是米的问题，食堂做米饭有哪些技术难点？
+# 再鉴定几个洛克王国的精灵
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：803 万热度 · 分类：问答 · 更新：2026-10-22T14:46:46+08:00
+> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：508828 · 分类：出行 · 更新：2026-10-22T20:36:14+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“张雪公开求助如何让食堂的米饭好吃，不少人送米上门，张雪称不是米的问题，食堂做米饭有哪些技术难点？”位列第 2 位，公开热度指标为 803 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“再鉴定几个洛克王国的精灵”位列第 2 位，公开热度指标为 508828，榜单分类为“出行”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月19日，张雪机车创始人张雪在社交平台发布视频，向全网公开求助：谁能把其公司食堂的米饭做得好吃，可获奖励，甚至还可以承包公司食堂。 张雪在视频中表示，感觉公司食堂蒸出来的米饭没有家里电饭煲蒸出来的好吃，“如果你有能力能让1000多人的饭变得好吃，我可以买你的设备，你也可以来给我咨询，我可以给你付费。” 10月20日，张雪发布最新视频作出回应：“不要再给我们送米了，不是米的问题”“换个米就能把米饭做好吃，这个都不会，那我们公司包括我在内就是一群蠢猪”。他表示，视频发出后不少人专程送米上门，但食堂并不需要大米。在他看来，倘若仅靠换米就能改善米饭口感，团队
+来源公开摘要显示：《洛克王国:世界》在之前的久久公益活动中通过腾讯公益为共同守护濒危物种项目捐赠了200万元。10月23日的小豚安家记活动则将会通过腾讯基金会支持“留住长江的微笑”公益项目，和各位小洛克一起来保护长江旗舰物种——江豚。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `出行`
 
 ## 相关热点
 
-- [折1万次，会坏吗？iPhone Duo深度评测](shi-quan-shi-mei.md)
-- [回望长征岁月 奋进复兴征程](bai-fa-bai-zhong.md)
-- [致敬伟大的长征](qian-jun-wan-ma.md)
-- [无名忠骨 山河永记](wan-zi-qian-hong.md)
+- [红军为何总能绝处逢生](shi-quan-shi-mei.md)
+- [向着胜利再出发](bai-fa-bai-zhong.md)
+- [薪火相传走好新的长征路](qian-jun-wan-ma.md)
+- [为什么我国的中学生大部分都不会做引体向上？](wan-zi-qian-hong.md)
 
 ## 站内推荐
 
-- [已知西瓜瓤在西瓜被切开后是红色的，那切开之前是什么颜色的？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [为什么猪尾巴越来越少见了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [贾乃亮从早播到晚](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [黄金](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [《代号：神不言》UFSH2026参会实机技术演示&实机特别影像](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [参加过四级手术](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [问界M9碰撞后逃生窗口](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [这一刻突然明白了有车的意义](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [A股继续探底](http://www.movie.hkepx.cn/movie/4879804.htm)
-- [广州白云代孕窝点无人开门难处置](http://www.movie.hkepx.cn/movie/5294565.htm)
-- [张萌后悔找马天宇上节目](http://www.movie.hkepx.cn/xiju/8234213.htm)
-- [多款 3A 老游戏被 AI 光速反编译并移植网页端，将对游戏行业带来哪些冲击？](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
-- [韩国要收回美国权力指挥美军](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
-- [红果短剧宣布将下线金币功能，这一商业决策背后有哪些考虑？是不需要靠「薅羊毛」引流实现增长了吗？](http://www.movie.hkepx.cn/xiju/2272650.htm)
-- [演员白鹿名下公司均已注销](http://www.movie.hkepx.cn/movie/5183558.htm)
-- [长实集团再澄清：李嘉诚健康情况良好](http://www.daogukj.com/qcalvqip/)
-- [你听过哪些「被逼到没有退路，最后自己硬是走出一条路」的故事？](http://www.daogukj.com/qsfzwgun/)
-- [为什么猪尾巴越来越少见了](http://www.daogukj.com/broiawjw/)
-- [山姆紧急下架牡蛎精胶囊](http://www.movie.hkepx.cn/xiju/2682801.htm)
-- [黄婷婷 李艺彤](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
-- [回望长征岁月 奋进复兴征程](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
-- [怎么看解放军4艘大型登陆舰实弹演练](http://www.movie.hkepx.cn/xiju/8343373.htm)
-- [车灯新国标公布后，「外显大屏」形态的像素灯将成为历史，汽车大灯的技术发展方向将如何调整？](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
-- [历史上的今天红军三大主力会师](http://www.daogukj.com/8483541)
-- [嫁金钗君黛死在魏娆怀里](http://www.daogukj.com/qxxcgldr/)
-- [430吨巨无霸过境 收费站拆岗亭让路](http://www.daogukj.com/9209363)
-- [张凌赫赴台被拒他们到底在怕什么](http://www.movie.hkepx.cn/xiju/3158244.htm)
-- [贾乃亮从早播到晚](http://www.daogukj.com/cyhwfhva/)
-- [杨瀚森打满第四节得5分3 板，2627赛季NBA常规赛，太阳 83:124 开拓者，如何评价这场比赛？](http://www.daogukj.com/tfhkqorv/)
-- [杭州大二学生开一人公司营收破60万](http://www.movie.hkepx.cn/xiju/7580051.htm)
-- [坚持吃糙米6个月体检可能有哪些变化](http://www.daogukj.com/knzztlfc/)
-- [开超市到底该不该赊账？](http://www.movie.hkepx.cn/movie/0847264.htm)
-- [郑欣宜在沈殿霞墓前哭](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
-- [西安阿达西称现在没有利润还贴钱](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
-- [《最绝望の守门员》](http://www.movie.hkepx.cn/movie/1751427.htm)
-- [郑欣宜在沈殿霞墓前落泪](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
-- [经纪公司回应崔秀彬照片事件](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
-- [前女友曝陈天润语音](http://www.movie.hkepx.cn/movie/1023624.htm)
-- [古代穷人为什么不搬到海边去？海边鱼多不是饿不死吗？](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
-- [手握10篇SCI医学生盲猜病情引争议](http://www.daogukj.com/7693477)
-- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.movie.hkepx.cn/xiju/2826252.htm)
-- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
-- [致敬伟大的长征](http://www.daogukj.com/1461847)
-- [生死攸关绝地翻盘 就在遵义这三天](http://www.movie.hkepx.cn/xiju/0818230.htm)
-- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
-- [《嫁金钗》把观众当傻子](http://www.daogukj.com/xoshfaqj/)
-- [地铁站内看书5小时被扣15元](http://www.movie.hkepx.cn/xiju/4934568.htm)
-- [《明日方舟：终末地》「镌宇铭星-共赴星海」合作纪录 PV（下）](http://www.daogukj.com/wiudnclj/)
-- [开心果价格狂飙 消费者直呼吃不起](http://www.movie.hkepx.cn/movie/0173822.htm)
-- [为什么我国的中学生大部分都不会做引体向上？](http://www.daogukj.com/4402502)
-- [湖三疯VS勇三崩 湖人大胜勇士22分](http://www.movie.hkepx.cn/xiju/3001134.htm)
-- [如何看待乘客错过高铁检票后情绪崩溃跪求工作人员，12306 回应无论是否发车不会例外放行？](http://www.daogukj.com/wkrcfluq/)
-- [3Blue1Brown 称「现在是学数学的最佳时机」，如何看待此观点？](http://www.movie.hkepx.cn/movie/6354712.htm)
-- [网友称黄豆吃多在列车连放128个闷屁，疑多位同车厢乘客称被臭到怀疑人生，黄豆吃多「危害」真有这么大吗？](http://www.movie.hkepx.cn/xiju/8131821.htm)
-- [高市早苗推荐，暴打东大情报组织！日本大火的抗中神剧看瞎了我的眼【毒舌的南瓜】](http://www.daogukj.com/4751279)
-- [创业板失守2600点](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
-- [开拓者41分射落太阳 杨瀚森5分2板](http://www.daogukj.com/6772234)
-- [凯斯勒首秀刷爆湖人纪录](http://www.movie.hkepx.cn/movie/1847830.htm)
+- [北京市副市长夏林茂被查](http://www.movie.hkepx.cn/movie/4879804.htm)
+- [民进党当局拒绝艺人张凌赫赴台交流，国台办回应称「与广大台湾同胞的意愿背道而驰」，如何看待这件事？](http://www.movie.hkepx.cn/movie/5294565.htm)
+- [张本智和被打出0-11惨败](http://www.movie.hkepx.cn/xiju/8234213.htm)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/9991397.htm)
+- [银行回应每天仅营业3.5小时](http://www.play.hengshemaoyi.cn/xiju/4841239.htm)
+- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](http://www.movie.hkepx.cn/xiju/2272650.htm)
+- [厉娜恨过许飞非常久](http://www.movie.hkepx.cn/movie/5183558.htm)
+- [贾乃亮从早播到晚](http://www.daogukj.com/qcalvqip/)
+- [【Day 3】致B站所有大肥鱼：鲸鱼娘内部会议，现在开始~](http://www.daogukj.com/qsfzwgun/)
+- [问界M9碰撞后逃生窗口](http://www.daogukj.com/broiawjw/)
+- [麻六记回应阿宽食品应收账款](http://www.movie.hkepx.cn/xiju/2682801.htm)
+- [特朗普为何给内塔尼亚胡送“大礼”](http://www.play.hengshemaoyi.cn/xiju/7849884.htm)
+- [向着胜利再出发](http://www.play.hengshemaoyi.cn/kongbu/4588094.htm)
+- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.movie.hkepx.cn/xiju/8343373.htm)
+- [《影之刃零》最终预告](http://www.play.hengshemaoyi.cn/kongbu/6126397.htm)
+- [迪迦领衔平成三杰们激情演唱《uptown funk》 【AI MV大赛】](http://www.daogukj.com/8483541)
+- [人民日报评医学生盲猜病情](http://www.daogukj.com/qxxcgldr/)
+- [亚锦赛国乒女团0比1日本](http://www.daogukj.com/9209363)
+- [东北开启入冬囤煤模式](http://www.movie.hkepx.cn/xiju/3158244.htm)
+- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.daogukj.com/cyhwfhva/)
+- [VOGUE阵容](http://www.daogukj.com/tfhkqorv/)
+- [多款 3A 老游戏被 AI 光速反编译并移植网页端，将对游戏行业带来哪些冲击？](http://www.movie.hkepx.cn/xiju/7580051.htm)
+- [车灯新国标公布后，「外显大屏」形态的像素灯将成为历史，汽车大灯的技术发展方向将如何调整？](http://www.daogukj.com/knzztlfc/)
+- [多地辟谣外地患者到高校传播艾滋病](http://www.movie.hkepx.cn/movie/0847264.htm)
+- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.play.hengshemaoyi.cn/xiju/1988669.htm)
+- [到底是谁开着空调还要裹毯子啊？！](http://www.play.hengshemaoyi.cn/kongbu/2417374.htm)
+- [欧洲多国爆发抗议示威 民众怎么看](http://www.movie.hkepx.cn/movie/1751427.htm)
+- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.play.hengshemaoyi.cn/kongbu/5219311.htm)
+- [张萌后悔找马天宇上节目](http://www.play.hengshemaoyi.cn/xiju/3247104.htm)
+- [外地患者组团到高校传播艾滋病不实](http://www.movie.hkepx.cn/movie/1023624.htm)
+- [电影《沙丘 3》中国内地定档 12 月 31 日上映，晚于北美 12 天，对此你有何期待？](http://www.play.hengshemaoyi.cn/xiju/3802726.htm)
+- [张本智和输球后扶桌跪地](http://www.daogukj.com/7693477)
+- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.movie.hkepx.cn/xiju/2826252.htm)
+- [韩国要收回美国权力指挥美军](http://www.play.hengshemaoyi.cn/xiju/0039351.htm)
+- [薪火相传走好新的长征路](http://www.daogukj.com/1461847)
+- [员工离职情绪高涨 宝马关闭补偿计划](http://www.movie.hkepx.cn/xiju/0818230.htm)
+- [折1万次，会坏吗？iPhone Duo深度评测](http://www.play.hengshemaoyi.cn/kongbu/4994421.htm)
+- [参与过四级手术](http://www.daogukj.com/xoshfaqj/)
+- [泽连斯基对领土态度为什么突然松动](http://www.movie.hkepx.cn/xiju/4934568.htm)
+- [张智霖：19岁的儿子未必帅过55岁的我](http://www.daogukj.com/wiudnclj/)
+- [阿根廷男足与主帅斯卡洛尼续约，新合同将延续到2030年7月，对此你怎么看？](http://www.movie.hkepx.cn/movie/0173822.htm)
+- [泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？](http://www.daogukj.com/4402502)
+- [特朗普称将砸逾 4 亿美元助共和党选举，或成美国历史上烧钱最多的中期选举，共和党胜算有多大？](http://www.movie.hkepx.cn/xiju/3001134.htm)
+- [乌克兰最好的结局是成为芬兰吗](http://www.daogukj.com/wkrcfluq/)
+- [日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼](http://www.movie.hkepx.cn/movie/6354712.htm)
+- [燕云×1818黄金眼 | 长乐未央，天下无诈](http://www.movie.hkepx.cn/xiju/8131821.htm)
+- [《见面》](http://www.daogukj.com/4751279)
+- [《最绝望の守门员》](http://www.play.hengshemaoyi.cn/xiju/8958881.htm)
+- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.daogukj.com/6772234)
+- [人民日报评星巴克“消费入座”](http://www.movie.hkepx.cn/movie/1847830.htm)
 
 </details>
 
 ## 原始来源
 
-- [张雪公开求助如何让食堂的米饭好吃，不少人送米上门，张雪称不是米的问题，食堂做米饭有哪些技术难点？](https://www.zhihu.com/question/2096179248318911470)
+- [再鉴定几个洛克王国的精灵](https://b23.tv/BV1mfn662EHb)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 34c6c68ee3cef0fa898b -->
+<!-- content-fingerprint: bbb6429a918f90f6a653 -->
