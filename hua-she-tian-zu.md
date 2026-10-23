@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 网红拼豆店 倒闭潮
+# 西藏7.0级地震救援最新进展
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7809222 · 更新：2026-10-24T04:56:03+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7808333 · 更新：2026-10-24T07:49:44+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“网红拼豆店 倒闭潮”位列第 1 位，公开热度指标为 7809222。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“西藏7.0级地震救援最新进展”位列第 1 位，公开热度指标为 7808333。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：今年10月起不少拼豆店面临倒闭潮。近日，记者走访成都春熙路一家拼豆店发现，店内从日日爆满转为“上二休五”。店主张先生无奈表示，单价从巅峰大幅下跌，自己3个月亏了10万。此前高峰期该片区曾扎堆70至80家店，因误以为门槛低、投入少，结果陷入价格战。
+来源公开摘要显示：10月23日18时，西藏那曲市巴青县7.0级地震救援最新进展：经3轮全覆盖排查未发现失联人员。目前，5000余救援力量已开展安置，玛如乡51顶帐篷全部入住且部分通电，震区通信恢复至震前水平。此前，10月22日22时33分许，西藏那曲市巴青县发生7.0级地震。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -20,16 +20,16 @@
 
 - [独生女继承2亿遗产1年后遭离婚分产](yi-xin-yi-yi.md)
 - [西藏强震成因揭晓](san-xin-er-yi.md)
-- [如何评价Kimi K3.1？](si-hai-wei-jia.md)
-- [《原神》7.2版本PV：「坏灭肇始之时」](wu-gu-feng-deng.md)
+- [Kimi K3.1 Pro 正式发布，如何评价该新模型？有哪些值得关注的亮点？](si-hai-wei-jia.md)
+- [人工耳蜗里的声音，到底是什么样的？](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
 - [人民子弟兵投入西藏巴青抗震救灾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [新人结婚 大鹏：这照片就是我随的份子](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [祝贺！中国成功发射一箭六星](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
 - [警惕涉西藏巴青7.0级地震不实信息](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [刘亦菲 凤凰神女](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [张亮真的联动张亮麻辣烫了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [美日演习航母旁的黑色小艇有何用途](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [中国军号发视频打脸菲律宾](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [西藏强震成因揭晓](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [S16瑞士轮BLG 0:1 KOI，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [⚡魔 鬼 小 瞒 腰⚡](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [西藏地震地面裂缝比手宽](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [在夜晚东京街头唱了《真夜中のドア〜stay with me》会穿越回泡沫经济时代吗？](http://www.daogukj.com/ihcjjgzd/)
-- [DeepSeek拟新融资1000亿元，腾讯、宁德时代出资最多，这会不会改写国内大模型的竞争格局？](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [孙怡：李小冉想找头婚的不容易](http://www.daogukj.com/hytgpxub/)
-- [一个家里只能有一个女主人](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [松岛辉空张本美和亚锦赛混双冠军](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [海底捞小便案细节：商家索赔2300万](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [LPL瑞士轮三连败](http://www.daogukj.com/ihcjjgzd/)
+- [怀疑妻子“出轨” 男子砍断她3根手指](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [如何评价博主「赛车星冰乐」涉嫌诋毁嘲讽尊界 S800，公开向尊界汽车道歉？具体发生了什么？](http://www.daogukj.com/hytgpxub/)
+- [讲台上的刘欢：香烟粉笔与花体字](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
 - [为什么阿里巴巴和腾讯估值低，股价却总是下跌？](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [泽连斯基表态「愿以领土换和平协议」后，普京也确认愿恢复俄美乌三方谈判，为什么各方突然都松口了？](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [《原神》7.2版本PV：「坏灭肇始之时」](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [如何看待最高法通报牟某虐待案中曾高频次、长时间、持续性辱骂女友，让其通过人工流产等方式换取心理平衡？](http://www.daogukj.com/8357764)
+- [s16瑞士轮AL0:1KC，如何评价LPL四连败？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [人工耳蜗里的声音，到底是什么样的？](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [Anthropic 科学家称「AGI 若三年内到来读博将失去意义」，如何看待这一观点？](http://www.daogukj.com/8357764)
 - [红星照耀青春长征路](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [接班贾玲 她行吗](http://www.daogukj.com/rdfrumhx/)
-- [泽连斯基：真不想打仗了](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [TES](http://www.daogukj.com/lntrsvpz/)
-- [警告！别跟海绵宝宝学做蟹黄堡！！](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [西藏巴青地震为一次拉张型破裂](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [刘冲内场左边刘亦菲右边迪丽热巴](http://www.daogukj.com/mofrooiq/)
-- [GEN翻盘iG](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [不减136斤不结婚，减掉还赢25万美金](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [哈啰顺风车 涉黄](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [许家印被曝曾花13亿港元买艺术品](http://www.daogukj.com/8424365)
-- [如何评价Kimi K3.1？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [前有白冰被指偷穿高定，后有曝一明星自费买高定引品牌方暴怒，为啥奢侈品行业要设置这些普通人看不懂的规矩？](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [曝波兰爆发大规模抗议活动，数百万人涌上街头，具体什么情况？为啥欧洲最近都在陆续爆发大规模的抗议活动？](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [Zuian督战TES打HLE](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [牛弹琴：普京最新表态这五刀真够狠](http://www.daogukj.com/4727274)
-- [讲台上的刘欢：香烟粉笔与花体字](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [热巴蝴蝶飞走瞬间 列入内娱史册](http://www.daogukj.com/2266153)
-- [三年之期已到，恭迎世一上归位！【第14集】](http://www.daogukj.com/3795795)
-- [当男摄和女摄相遇……](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [如何评价 iPhone Duo 经拆机，纳米纹理表面并非玻璃而是纳米纹理膜（磨砂膜）？](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [13岁女孩卖金项链被金店当面熔化](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [专家：日美勾连暗藏大阴谋](http://www.daogukj.com/uhjkuxrm/)
-- [为了妈妈，全校老师同学最团结的一集](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [宝格丽认领](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [张亮真的联动张亮麻辣烫了](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [海底捞小便案细节：商家索赔2300万](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [影视飓风员工，开什么车？](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [肖战灯牌不可以带哦听话](http://www.daogukj.com/rdfrumhx/)
+- [《星溯》首曝PV丨重启停滞的轮回](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [如何看待最高法通报牟某虐待案中曾高频次、长时间、持续性辱骂女友，让其通过人工流产等方式换取心理平衡？](http://www.daogukj.com/lntrsvpz/)
+- [祖海官方账号认领迪丽热巴](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [刘亦菲亮相红毯被称“凤凰神女”](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [热巴娜扎刘亦菲 好权威的脸](http://www.daogukj.com/mofrooiq/)
+- [BLG重量级爆冷](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [刘亦菲第二套](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [LPL首轮全军覆没](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [普京问乌克兰真准备战至最后一人吗](http://www.daogukj.com/8424365)
+- [Kimi K3.1 Pro 正式发布，如何评价该新模型？有哪些值得关注的亮点？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [劳动争议开庭前夕，娃哈哈法定代表人许思敏突然辞职，从宗馥莉卸任到许思敏离职，娃哈哈内部管理发生了什么？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [接班贾玲 她行吗](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [前有白冰被指偷穿高定，后有曝一明星自费买高定引品牌方暴怒，为啥奢侈品行业要设置这些普通人看不懂的规矩？](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [13岁女孩卖金项链被金店当面熔化](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [不减136斤不结婚，减掉还赢25万美金](http://www.daogukj.com/4727274)
+- [舒服了](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [众解说看LPL瑞士轮四连败反应](http://www.daogukj.com/2266153)
+- [黄多多正式进圈](http://www.daogukj.com/3795795)
+- [“大肥鱼适合做女朋友吗？”](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [新人结婚 大鹏：这照片就是我随的份子](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [孙怡：李小冉想找头婚的不容易](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [史上第一个智械危机受害者](http://www.daogukj.com/uhjkuxrm/)
+- [四人行，必有一怂蛋](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [LPL](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [中国军号发视频打脸菲律宾](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [李雪健已无法说话 仅靠表情完成演出](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [《原神》7.2版本PV：「坏灭肇始之时」](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
 - [【独家】时光代理人 第三季 PartOne 第12集 欢迎回家【8月国创】](http://www.daogukj.com/5905118)
-- [辽宁舰现身菲律宾家门口意味着啥](http://www.daogukj.com/gchjscql/)
+- [S16瑞士轮HLE 1:0 TES，如何评价这场比赛？](http://www.daogukj.com/gchjscql/)
 - [数字看长征 回望英雄路](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [欧阳娜娜红毯变装创意太妙了](http://www.daogukj.com/9269800)
-- [黄多多正式进圈](http://www.daogukj.com/7091853)
-- [台风蔷琵最新路径预测](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [两女生投150万开无烟酒吧倒闭](http://www.daogukj.com/2402025)
-- [娃哈哈集团董事长被曝辞职](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [MKOI对战BLG](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [“每个班都有学生因心困休学”](http://www.daogukj.com/9269800)
+- [王楚钦多次退赛会被赋零分吗](http://www.daogukj.com/7091853)
+- [牛弹琴：普京最新表态这五刀真够狠](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [国乒混双2:3不敌日本 亚锦赛遗憾摘银](http://www.daogukj.com/2402025)
+- [黄友政陈熠2比3日本组合获亚军](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [lpl瑞士轮首轮全败](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [网红拼豆店 倒闭潮](https://www.baidu.com/s?wd=%E7%BD%91%E7%BA%A2%E6%8B%BC%E8%B1%86%E5%BA%97+%E5%80%92%E9%97%AD%E6%BD%AE&sa=fyb_news&rsv_dl=fyb_news)
+- [西藏7.0级地震救援最新进展](https://www.baidu.com/s?wd=%E8%A5%BF%E8%97%8F7.0%E7%BA%A7%E5%9C%B0%E9%9C%87%E6%95%91%E6%8F%B4%E6%9C%80%E6%96%B0%E8%BF%9B%E5%B1%95&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8590ff36de9e16486fc2 -->
+<!-- content-fingerprint: 53da778b8c15f23ea5ef -->
