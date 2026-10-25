@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 男孩偷超市饮料，被父亲拿着戒尺送到派出所「自首」，感受手铐重量后向店主道歉，你支持这种教育方式吗？
+# 广西一病人转院被网约车司机丢弃致死，家属索赔96万，法院一审判司机平台赔1.3万，如何从法律角度解读？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：316 万热度 · 分类：问答 · 更新：2026-10-25T09:31:41+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：1035 万热度 · 分类：问答 · 更新：2026-10-25T14:47:54+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“男孩偷超市饮料，被父亲拿着戒尺送到派出所「自首」，感受手铐重量后向店主道歉，你支持这种教育方式吗？”位列第 1 位，公开热度指标为 316 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“广西一病人转院被网约车司机丢弃致死，家属索赔96万，法院一审判司机平台赔1.3万，如何从法律角度解读？”位列第 1 位，公开热度指标为 1035 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，湖北宜昌。一男孩偷拿超市饮料藏进校服，被父亲拿着戒尺送到派出所“自首”。 事发10月15日傍晚6时许，男孩放学途中路过小区门口的超市时，趁店主招呼其他顾客的间隙，从门口冷藏柜里拿了一瓶冰红茶，悄悄塞进衣服里带回了家。 他自以为藏得隐蔽，没想到很快就被父亲发现了，得知原委后，这位父亲做出了一个出人意料的决定，牵着孩子的手直奔派出所。 “小事不能小视，错了就要认账。”在父亲看来，哪怕只是一瓶几块钱的饮料也不能让孩子形成“不经允许偷拿别人东西无所谓” 的认知。 了解事情经过后，值班民警把男孩叫到身旁，蹲下身来看着孩子的眼睛，一字一句地说道：“勿以恶小而为
+来源公开摘要显示：男子就诊期间病情加重，家属呼叫网约车准备转院，不料行驶途中司机以乘客可能呕吐为由，将病重男子及家属中途甩在路边。后来，男子经120送医抢救无效死亡，家属将涉事医院、网约车平台、司机一并告上法庭，索赔96万余元。近日，南宁市西乡塘区人民法院对此案作出一审判决，认定涉事医院无责，涉事司机赔偿8000元，网约车平台赔偿5000元。 ▲事发当天，杨某家属在网上叫的网约车。受访者供图 2025年8月13日，杨某因发热多日，伴随头晕头痛等症状，在家人的陪同下前往南宁市中医医院就诊，初步怀疑肺部感染。院方先后三次建议患者住院治疗，家属均拒绝，坚持门诊输液，并签署了《拒
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [写了全国所有省份的love me！](wu-gu-feng-deng.md)
-- [人民日报评“人们不愿接陌生电话”](liu-shen-wu-zhu.md)
-- [女生拒绝表白后照片被发在色情软件](qi-shang-ba-xia.md)
+- [女子花3.8万鹤岗买房 搬进去后傻眼](liu-shen-wu-zhu.md)
+- [全国总人口面临跌破14亿](qi-shang-ba-xia.md)
 - [泽连斯基：绝不接受放弃25%领土提议](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [美初创公司宣称已实现「汞变稳定黄金」，但成果尚未得到独立验证，技术原理是啥？技术可行性与商业价值如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [诺奖得主 Hassabis 称 AGI 最快 2 年内到来，如何看待这一预判？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [夫妻花67.3万买劳力士却不挑选不试戴，店员果断报警，最终证实夫妻两人遭遇诈骗，这背后有着怎样的骗局？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [马尔芙小姐，我能请你共舞一曲吗？｜PV](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [微信被指在苹果折叠屏上公摊面积过大](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [重点中学教师称高一开学仅一个月，其任教的每个班均有学生因心理问题休学，这是普遍现象吗？为什么会这样？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [S16 瑞士轮次日 TES 1:0 击败 AL 拿下首胜，如何评价这场比赛？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [美国公布新一批 UFO 文件，其中一飞行物可无声悬停、3 秒飞出 2.4 公里，还有哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [古代偷偷晒海水难道不可以少量自制盐吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [为什么很多计算机书籍都是 PDF，而不是 EPUB？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“非洲优等生”成功密码是什么？天降猛男的得与失【中非04丨卢旺达】](http://www.daogukj.com/7394302)
-- [【独家】《凡人修仙传之慕兰之战》第21集【总第197集】](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [西藏巴青县地震前后遥感图发布](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [美初创公司宣称已实现「汞变稳定黄金」，但成果尚未得到独立验证，技术原理是啥？技术可行性与商业价值如何？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [靳伟任湖南省委副书记](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [【纪录片】中国救护2 06 此去仍有光](http://www.daogukj.com/thgdlrxk/)
-- [媒体人：山东泰山将决定中超冠军归属](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [西藏震区小学墙体裂缝比拳头还大](http://www.daogukj.com/qqvbmaen/)
-- [爱马仕称中国市场目前很困难](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [女生拒绝表白后照片被发在色情软件](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [儿媳愿出钱但不与婆婆同住](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [他再也不用去卫生间了](http://www.daogukj.com/6313812)
-- [假如眼镜王蛇和金环蛇互咬，它们会被对方的毒毒死吗？](http://www.daogukj.com/wczbkkvt/)
-- [日民间团体：日美联合军演应立即停止](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [厉娜 许飞](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [渝昆高铁全线铺轨完成](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [金正恩访问丹东 王沪宁陪同](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [经济学者任泽平公众号违规被禁止关注，背后的原因可能有哪些？](http://www.daogukj.com/7394302)
+- [【独家】牧神记 第106集 道剑十四篇](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [为什么我们越来越害怕成为“嘉豪”？](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [重点中学教师称高一开学仅一个月，其任教的每个班均有学生因心理问题休学，这是普遍现象吗？为什么会这样？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [毛不易婚礼发言引网友争议](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [全网最高记录，单局十颗非洲之心](http://www.daogukj.com/thgdlrxk/)
+- [日剧Vivant抹黑中国](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [这是数学还是语文](http://www.daogukj.com/qqvbmaen/)
+- [深圳水贝被挤爆](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [全国总人口面临跌破14亿](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [迪丽热巴全平台爆出圈](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/6313812)
+- [斯里兰卡遭遇全国性断电 6 小时，太阳能发电过剩为何会导致电网崩溃？](http://www.daogukj.com/wczbkkvt/)
+- [国考83个职位无人报名](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [多名女性被发色情软件都接触过同一人](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [向英雄致敬迎英雄回家](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [一线明星参演、高成本制作、高市早苗点名要看？热播日剧背后的认知投毒真危险！](http://www.movie.hkepx.cn/xiju/4060100.htm)
 - [写了全国所有省份的love me！](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [HLE GEN](http://www.daogukj.com/jjlkzcvz/)
-- [⚡⚡逆 天 复 仇 者⚡⚡](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [女生拒绝表白后照片被发到色情软件](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [被状告后高铁宁波站撤掉禁烟标志](http://www.daogukj.com/drcaefzl/)
-- [有哪些曾经只有专业车手才能做的事，现在普通人开车也能体验到？](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [重点中学教师称高一开学仅一个月，其任教的每个班均有学生因心理问题休学，这是普遍现象吗？为什么会这样？](http://www.daogukj.com/rrxeunix/)
-- [地震躲“生命三角”避险不靠谱](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [台湾光复纪念日](http://www.daogukj.com/qekijaaa/)
-- [“全网最土拼豆店”](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [子弟兵为西藏震区受灾群众煮上热饭](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [谷爱凌穿旗袍逛苏州](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [泽连斯基：拒绝接受放弃25%领土提议](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [58岁骑手维权“找不到用人单位”](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [金价大跌 深圳水贝又被挤爆了](http://www.daogukj.com/4880877)
-- [毛不易婚礼发言引网友争议](http://www.daogukj.com/gyblgzpw/)
-- [鸡蛋别放冰箱门格子里](http://www.daogukj.com/3742193)
-- [穿越战锤24年，你终靠实力拿下星球总督王座，你的余生会如何度过？](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [派大星跳伞是什么梗【梗指南】](http://www.daogukj.com/yhmvbvtt/)
-- [迪丽热巴蝴蝶飞走是巧合](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [女子离婚12年后接前婆婆一起生活](http://www.daogukj.com/4405323)
-- [夫妻花67.3万买劳力士却不挑选不试戴，店员果断报警，最终证实夫妻两人遭遇诈骗，这背后有着怎样的骗局？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [祖海态度](http://www.daogukj.com/ydbbqbuc/)
-- [【司凤TV】司凤音乐270个视频14小时合集 看完这辈子都通透了](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [2025年出生人口男孩多于女孩](http://www.daogukj.com/jjlkzcvz/)
+- [现在的西红柿为何不好吃？](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [暗粥野排现状](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [自家车经常被鸟拉屎男子莫名确诊肺炎](http://www.daogukj.com/drcaefzl/)
+- [王者荣耀共创之夜节目单](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [地震躲“生命三角”避险不靠谱](http://www.daogukj.com/rrxeunix/)
+- [辽宁锦州大暴雨致街道成海是谣言](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [张雪在家乡刷新吉尼斯纪录](http://www.daogukj.com/qekijaaa/)
+- [张水华获成都马拉松亚军](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [超6万件套救援物资运往灾区](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [菲防长叫嚣“战争行为”恐吓中国](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [张雪把县委书记丢河里了](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [成都蓉城为何快成“笑话”了](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [我花了3个月！把MC爆改成别的游戏！！](http://www.daogukj.com/4880877)
+- [香港中环偶遇虞书欣](http://www.daogukj.com/gyblgzpw/)
+- [县委书记拒绝张雪为家乡打广告](http://www.daogukj.com/3742193)
+- [【头文字F4】德彪~德彪~得意的彪](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [花少8全员上车](http://www.daogukj.com/yhmvbvtt/)
+- [陕西问界车毁人亡后，有人发现懂车帝2024年就指出问界汽车油路太靠前，碰撞后容易自燃，如何看待？](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [女儿跪地迎接抗美援朝烈士画像回家](http://www.daogukj.com/4405323)
+- [美国公布新一批 UFO 文件，其中一飞行物可无声悬停、3 秒飞出 2.4 公里，还有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [亚洲最长的地铁环线来了](http://www.daogukj.com/ydbbqbuc/)
+- [名片交换](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
 - [抽象新闻：10月人类迷惑行为大赏（上）](http://www.daogukj.com/5927597)
-- [古代偷偷晒海水难道不可以少量自制盐吗？](http://www.daogukj.com/3691526)
-- [DK世界赛翻盘T1](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [国考83个职位无人报名](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [假如眼镜王蛇和金环蛇互咬，它们会被对方的毒毒死吗？](http://www.daogukj.com/3691526)
+- [江苏姑娘网购鹤岗房搬进去后傻眼](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [新角色：大肥鱼](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
 - [羌塘无人区失踪一年多后，自行车意外被人发现，李聪明](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [奥巴马批特朗普：赤裸裸地借机敛财](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [二十国混战：速通复盘中土网友对线大战](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [走路是运动延寿“第一名”](http://www.daogukj.com/9555051)
-- [BLG对战TL](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [张雪：打99分留1分不要太骄傲](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [iPhoneDuo王者荣耀黑边](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [A股指数重要调整明起实施](http://www.daogukj.com/9555051)
+- [唐诡五六季一起拍80集](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [男孩偷超市饮料，被父亲拿着戒尺送到派出所「自首」，感受手铐重量后向店主道歉，你支持这种教育方式吗？](https://www.zhihu.com/question/2097008886175872404)
+- [广西一病人转院被网约车司机丢弃致死，家属索赔96万，法院一审判司机平台赔1.3万，如何从法律角度解读？](https://www.zhihu.com/question/2097409044340105309)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 65d7dd722f9fd883dff0 -->
+<!-- content-fingerprint: 68d82b180b656978dbc1 -->
