@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 多地幼儿园改为养老院
+# 国防部：中国卫星看看中国台湾很正常
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7809634 · 更新：2026-10-26T12:50:56+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7809088 · 更新：2026-10-26T18:44:09+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“多地幼儿园改为养老院”位列第 1 位，公开热度指标为 7809634。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“国防部：中国卫星看看中国台湾很正常”位列第 1 位，公开热度指标为 7809088。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月30日，常州市首个公办幼儿园闲置校舍转型养老服务项目落地。此前，2025年我国老年抚养比首次超过少儿抚养比，少子化与老龄化深刻影响教育领域。受此影响，多地幼儿园改为养老院，如济南、浙江金华均有老牌幼儿园转型案例。
+来源公开摘要显示：10月26日，国防部回应称中国卫星看中国台湾大好河山很正常，没什么可大惊小怪的。同时通过“吉林一号”卫星视角，俯瞰祖国宝岛，展示了台湾桃园国际机场、台湾大学、台北故宫博物院等多地画面。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [后会友期爆料](yi-xin-yi-yi.md)
-- [二十届五中全会开始举行](san-xin-er-yi.md)
-- [如何看待周星驰《功夫女足》在烂番茄开分 0 分？](si-hai-wei-jia.md)
-- [【2026全球总决赛】10月26日 IG vs HLE](wu-gu-feng-deng.md)
+- [兰香如故](yi-xin-yi-yi.md)
+- [长鑫存储硬气拒绝苹果](san-xin-er-yi.md)
+- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](si-hai-wei-jia.md)
+- [张麻子《鹅城FUNK》](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
-- [二十届五中全会今起在北京召开](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [馅饼店老板 沈腾就是太饿了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [卢拉用标志“小跳”庆祝连任](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [《玉簟秋》：一簟秋凉乱世情](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [“23:59:60”今后将不再出现](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [一组数据感受中国“新”引力](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [第三个4万亿城市要来了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [卢拉赢得连任，当选巴西新一任总统，怎样看待这一结果？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [遇到射手牢玩家，我李信只能急的原地转圈圈](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [这游戏给我恐高症治好了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [二十届五中全会开始举行](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [杨幂给林俊杰伴舞](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [老干妈AI裁员传闻引争议](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [我做了个AI捡漏神器，薅全世界的羊毛！](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [丈夫砍死出轨妻子法院认定妻子有责任](http://www.daogukj.com/ihcjjgzd/)
-- [张智霖演唱会邀前女友同台](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [锐评S16瑞士轮 IG战胜HLE TES战胜G2：这就是IG！LPL全胜！](http://www.daogukj.com/hytgpxub/)
-- [武契奇承认前进党在议会选举中败选，称将以反对党身份开展政治活动，将对塞尔维亚政坛产生哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [气旋撞击喜马拉雅？中央气象台回应](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [【2026全球总决赛】10月26日 IG vs HLE](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [才知道汽水瓶底5个凸起是干这个的](http://www.daogukj.com/8357764)
-- [纪念红军长征胜利90周年主题长卷](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [巴西货币雷亚尔暴跌11.5%](http://www.daogukj.com/rdfrumhx/)
-- [网友偶遇刘强东父亲逛商场](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [如何看待iPhone Duo才开卖一天，网上就很多内屏损坏的案例，而且在同一个位置？](http://www.daogukj.com/lntrsvpz/)
-- [老干妈600人变48人意味着什么](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [蒋万安竞选总部将成立](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [顾客理发时突发疾病死亡，店员施救反被索赔46万，法院一二审均驳回，是否合理？如何理解家属的追责行为？](http://www.daogukj.com/mofrooiq/)
-- [小城良方初吻也是告别吻](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [马天宇主动提起李明德是要有反转了吗](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [安踏卖不动了](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [80岁卢拉再次当选巴西总统](http://www.daogukj.com/8424365)
-- [如何看待周星驰《功夫女足》在烂番茄开分 0 分？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [如何看待张雪机车成功挑战摩托车水上漂40公里吉尼斯世界纪录？这对硬件和技术有怎样的要求？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [第一批拿到iPhone Duo的人有点烧心](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [山东日照捕获260余斤“鲅鱼王”](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [住房公积金更好用了](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.daogukj.com/4727274)
-- [凌晨一点突袭大米庄园！竟然见证了TES创造奇迹...](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [媒体：让AI与骗子周旋值得借鉴](http://www.daogukj.com/2266153)
-- [京东上线多款49.9元羽绒服](http://www.daogukj.com/3795795)
-- [年轻人正成为红色旅游主力军](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [李昀锐和特仑苏带你畅游迪士尼](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [爱马仕增速创阶段新低，CFO称中国市场「非常困难」，是它一家的问题还是全行业信号？](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [名片交换](http://www.daogukj.com/uhjkuxrm/)
-- [和胡彦斌分手后状态反差](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [为啥小孩子更喜欢奥特曼，而非孙悟空？](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [“23:59:60”今后将不再出现](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [金价创纪录 俄罗斯矿企财务状况改善](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [张麻子《鹅城FUNK》](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
-- [【真实锐评】IG战胜HLE TES战胜G2 还下雨吗小黑子 IG全员拉满干碎HLE 9哥起飞！](http://www.daogukj.com/5905118)
-- [自驾1500km，我们去北疆的原始村落寻找秋天｜K-POP 秋日特辑](http://www.daogukj.com/gchjscql/)
-- [在新征程上持之以恒推进全面从严治党](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [多个“首部”“首次”布局发展新方向](http://www.daogukj.com/9269800)
-- [媒体：蒋万安“乖乖牌”遇“闪身步”](http://www.daogukj.com/7091853)
-- [朝媒报道金正恩访丹东配乐是歌唱祖国](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [如何看待博主称国内某知名头部无人机企业报警，把 Geekcon 参会人员、裁判都带走暂停活动？](http://www.daogukj.com/2402025)
-- [詹姆斯真老了](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [黄金价格再次下跌](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [长鑫存储硬气拒绝苹果](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [男子出狱砍死妻子二审维持死缓判决](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [DeepSeek 营收只有几亿，却融资上千亿，这种模式合理吗？](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [长期吃素能“排毒”系谣言](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [如何看待iPhone Duo才开卖一天，网上就很多内屏损坏的案例，而且在同一个位置？](http://www.daogukj.com/ihcjjgzd/)
+- [日本军演展示射程1000公里岸舰导弹](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [皇马管理层送樊振东巴萨官方赠票](http://www.daogukj.com/hytgpxub/)
+- [天津女排队员与德云社相声演员订婚](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [大衣哥因频繁被举报回老家种地](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [一家三口食用炒鸡蛋后中毒，原因是水洗后储藏导致变质了，为什么这样保存有风险？放冰箱门格子影响有多大？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [张麻子《鹅城FUNK》](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [安踏FILA特步卖不动了](http://www.daogukj.com/8357764)
+- [震区3个场景照见生命至上](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [如果早知道，阿伟可以手搓时光机](http://www.daogukj.com/rdfrumhx/)
+- [马天宇主动提起李明德是要有反转了吗](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [抗癌网红离世 生前劝诫大家少喝酒](http://www.daogukj.com/lntrsvpz/)
+- [iPhone Duo被曝使用几天甚至几小时就出现内屏裂纹，拆解报告称可能与铰链有关，哪些细节值得关注？](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [吴站长携天津站男团激情演唱《Uptown Funk》](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.daogukj.com/mofrooiq/)
+- [长鑫拒绝为苹果降价](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [媒体批「一有分歧家长就举报」，暴露了哪些问题？家校信任危机该如何破解？](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [长鑫拒绝苹果](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [中国卫星看中国台湾的大好河山很正常](http://www.daogukj.com/8424365)
+- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [网友说「桂花香是一种非牛顿流体」，越用力闻气味越淡，越不用力闻气味越浓，这种说法有道理吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [陆毅晒贝儿18岁生日照](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [北京对单身女性有多友好](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [普京坦言非常惊讶](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [徐艺洋个人品牌多次使用小海豚元素](http://www.daogukj.com/4727274)
+- [樊振东文笔](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [中国的卫星看中国台湾很正常](http://www.daogukj.com/2266153)
+- [为啥小孩子更喜欢奥特曼，而非孙悟空？](http://www.daogukj.com/3795795)
+- [从“种土豆”到“种Token”](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [深圳水贝被挤爆](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [身体出现这些症状 可能是“栓”住了](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [为什么平板不好卖了](http://www.daogukj.com/uhjkuxrm/)
+- [气旋撞击喜马拉雅？不实](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [双人抬棺](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [这游戏给我恐高症治好了](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [外交部回应印方诬称中方破坏边境和平](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](http://www.daogukj.com/5905118)
+- [樊振东的东式幽默藏不住了](http://www.daogukj.com/gchjscql/)
+- [用党的创新理论凝心铸魂](http://www.movie.hkepx.cn/xiju/1255661.htm)
+- [从三峡工程看国家水网建设](http://www.daogukj.com/9269800)
+- [火箭军开展无预告战斗发射训练](http://www.daogukj.com/7091853)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [外交部：中方尊重巴西人民的选择](http://www.daogukj.com/2402025)
+- [奥迪中国四环标和字母标正式分家](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [老干妈辟谣AI裁员传闻](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [多地幼儿园改为养老院](https://www.baidu.com/s?wd=%E5%A4%9A%E5%9C%B0%E5%B9%BC%E5%84%BF%E5%9B%AD%E6%94%B9%E4%B8%BA%E5%85%BB%E8%80%81%E9%99%A2&sa=fyb_news&rsv_dl=fyb_news)
+- [国防部：中国卫星看看中国台湾很正常](https://www.baidu.com/s?wd=%E5%9B%BD%E9%98%B2%E9%83%A8%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%8D%AB%E6%98%9F%E7%9C%8B%E7%9C%8B%E4%B8%AD%E5%9B%BD%E5%8F%B0%E6%B9%BE%E5%BE%88%E6%AD%A3%E5%B8%B8&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 964adbb3ab07ab74853d -->
+<!-- content-fingerprint: ad12bacfb3b20e2839fd -->
