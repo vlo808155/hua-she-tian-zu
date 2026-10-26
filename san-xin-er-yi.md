@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 长鑫存储硬气拒绝苹果
+# 樊振东「卧底」西班牙国家德比，被反复质疑盘查，因表现不狂热遭巴萨球迷投诉，对此你怎么看？
 
-> 来源：今日头条热榜 · 排名：第 1 位 · 热度：14330895 · 更新：2026-10-26T18:44:09+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：2047 万热度 · 分类：问答 · 更新：2026-10-27T01:02:51+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“长鑫存储硬气拒绝苹果”位列第 1 位，公开热度指标为 14330895。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“樊振东「卧底」西班牙国家德比，被反复质疑盘查，因表现不狂热遭巴萨球迷投诉，对此你怎么看？”位列第 1 位，公开热度指标为 2047 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：樊振东发文： 第一次诺坎普之旅，荒诞得像一场梦。 而这场梦迎来了最好的结局。 去过不少知名球场，甚至在伯纳乌主席台看过国家德比。在皇马主席台上，有些观众全程佩戴巴萨围巾，看台上零零星星的巴萨球衣更不足为奇。比赛归比赛，立场归立场，一切运转得相当正常。 以为自己算是见过足球世界的大场面，直到这次去客场，才发现自己对足球的理解还是太浅薄了。 事情要从买票说起。本来想通过皇马俱乐部买客队球迷区的票，堂堂正正穿皇马球衣进诺坎普。结果皇马管理层非常热情，担心我在山顶观赛视野不好，送了我巴萨给皇马的官方赠票。 很好，一张来自对手的邀请函。事情从这里开始变得微妙。 虽
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](si-hai-wei-jia.md)
-- [张麻子《鹅城FUNK》](wu-gu-feng-deng.md)
-- [长鑫拒绝苹果](liu-shen-wu-zhu.md)
-- [老干妈辟谣AI裁员传闻](qi-shang-ba-xia.md)
+- [混进小米公司狂吃爽玩！单挑AI赛车手，大厂程序员都是这么过节的？](si-hai-wei-jia.md)
+- [人造古镇为啥集体哑火了](wu-gu-feng-deng.md)
+- [2个衣架轻松收纳大衣](liu-shen-wu-zhu.md)
+- [王兴兴两次认错 宇树暴涨1100亿](qi-shang-ba-xia.md)
 
 ## 站内推荐
 
-- [用党的创新理论凝心铸魂](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [男子用树枝搭建巨型齐天大圣](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [老干妈回应“用AI把600人裁到48人”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [2026款理想i6还没上市就被拆了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [樊振东文笔](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [张麻子《鹅城FUNK》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [《星溯》首曝PV丨重启停滞的轮回](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [胖东来5名员工遭顾客打骂获补偿](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [县委书记被扔下水是干群的互相成全](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [兰香如故](http://www.daogukj.com/dycpetil/)
-- [为什么平板不好卖了](http://www.movie.hkepx.cn/movie/5655338.htm)
-- [多所高校将通过数字人民币发工资](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
-- [武契奇承认前进党在议会选举中败选，称将以反对党身份开展政治活动，将对塞尔维亚政坛产生哪些影响？](http://www.daogukj.com/3221972)
-- [火箭军开展无预告战斗发射训练](http://www.movie.hkepx.cn/movie/8631365.htm)
-- [泽连斯基划死谈判红线？学者解读](http://www.movie.hkepx.cn/xiju/3338351.htm)
-- [国防部：中国卫星看看中国台湾很正常](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
-- [一家三口食用炒鸡蛋后中毒，原因是水洗后储藏导致变质了，为什么这样保存有风险？放冰箱门格子影响有多大？](http://www.daogukj.com/vmuhfhdx/)
-- [外交部回应印方诬称中方破坏边境和平](http://www.movie.hkepx.cn/xiju/7746644.htm)
-- [老干妈回应“用AI把600人裁到48人”](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
-- [如何看待周星驰《功夫女足》在烂番茄开分 0 分？](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
-- [贵州真是旅游宝藏，贵州人嘴真严！](http://www.daogukj.com/4437175)
-- [大家用workbuddy都干点儿啥？](http://www.daogukj.com/lclnvtmc/)
-- [长鑫拒绝为苹果降价](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
-- [卢拉赢得连任，当选巴西新一任总统，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
+- [15个中央巡视组组长公布](http://www.daogukj.com/dycpetil/)
+- [老干妈日销售额从万元跌至千元](http://www.movie.hkepx.cn/movie/5655338.htm)
+- [被取消演出的大衣哥回家干农活了](http://www.play.hengshemaoyi.cn/kongbu/2822370.htm)
+- [安徽亳州打掉一流窜“取现车队”](http://www.daogukj.com/3221972)
+- [即便真的有人像夏洛一样穿越回1997年抄袭了周杰伦的全部歌曲，周杰伦就无法创作出同等水平的歌曲了么？](http://www.movie.hkepx.cn/movie/8631365.htm)
+- [内存价格出现倒挂](http://www.movie.hkepx.cn/xiju/3338351.htm)
+- [被张雪扔下水县委书记拿到大结果](http://www.play.hengshemaoyi.cn/xiju/8991079.htm)
+- [那些用开塞露涂脸的人怎么样了](http://www.daogukj.com/vmuhfhdx/)
+- [The shy：我不是F6！](http://www.movie.hkepx.cn/xiju/7746644.htm)
+- [《星溯》首曝PV丨重启停滞的轮回](http://www.play.hengshemaoyi.cn/xiju/2337127.htm)
+- [梦泪偷塔十周年，《想赢的人脸上是没有笑容的》](http://www.play.hengshemaoyi.cn/xiju/2254604.htm)
+- [“何以中国”的答案在哪里](http://www.daogukj.com/4437175)
+- [国家为什么迟迟不肯挖掘秦始皇陵呢？](http://www.daogukj.com/lclnvtmc/)
+- [菲尔兹奖得主邓煜评论 AI 公司「你不能只在你蒸馏全人类的知识时支持蒸馏」，如何看待模型厂的反蒸馏？](http://www.play.hengshemaoyi.cn/xiju/2648323.htm)
+- [气旋撞击喜马拉雅？不实](http://www.play.hengshemaoyi.cn/kongbu/7137515.htm)
 - [如何看待iPhone Duo才开卖一天，网上就很多内屏损坏的案例，而且在同一个位置？](http://www.daogukj.com/0713363)
-- [既然国家允许重新高考，为什么不少经济条件尚可、没有巨大生存压力的成年人，依然不选择报考？](http://www.movie.hkepx.cn/xiju/6077524.htm)
-- [装X翻车全网群嘲？医学界有自己的翟天临！深扒李子祺事变](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
-- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](http://www.daogukj.com/9378383)
-- [陆毅晒贝儿18岁生日照](http://www.movie.hkepx.cn/movie/3280477.htm)
-- [爽！！！我们能赢LCK！仁川人2026年还在创造奇迹！IG掀翻银河战舰HLE！TES拿下G2！【1酱赛评世界赛瑞士轮day3 】](http://www.movie.hkepx.cn/movie/9632113.htm)
-- [从“种土豆”到“种Token”](http://www.daogukj.com/6919034)
-- [武契奇承认败选](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
-- [《鸣潮》世界观PV | 超验TRANSCENDO](http://www.daogukj.com/ttcnrbsi/)
-- [台湾艺人阿雅公开表态“一个中国”](http://www.movie.hkepx.cn/movie/6836580.htm)
-- [DeepSeek把自家“印钞机”开源了](http://www.daogukj.com/dfvjlhgg/)
-- [美国客户一口气在广州买200套房](http://www.movie.hkepx.cn/movie/8186104.htm)
-- [遇到射手牢玩家，我李信只能急的原地转圈圈](http://www.movie.hkepx.cn/movie/9874745.htm)
-- [从三峡工程看国家水网建设](http://www.daogukj.com/nkpmcahd/)
-- [吴站长携天津站男团激情演唱《Uptown Funk》](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
-- [美俄乌又准备谈判了，但泽圣还在秀操作](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
-- [普京坦言非常惊讶](http://www.movie.hkepx.cn/movie/4332345.htm)
-- [用党的创新理论凝心铸魂](http://www.movie.hkepx.cn/movie/8953215.htm)
-- [中国卫星看中国台湾的大好河山很正常](http://www.daogukj.com/hhucwvns/)
-- [第三个4万亿城市要来了](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
-- [长期吃素能“排毒”系谣言](http://www.daogukj.com/lpvatlfx/)
-- [震区3个场景照见生命至上](http://www.daogukj.com/3115605)
-- [网友说「桂花香是一种非牛顿流体」，越用力闻气味越淡，越不用力闻气味越浓，这种说法有道理吗？](http://www.movie.hkepx.cn/movie/1459959.htm)
-- [中方就福田康夫逝世表示沉痛哀悼](http://www.daogukj.com/6281492)
-- [【阴阳师同人动画】爱，创作和人类](http://www.movie.hkepx.cn/xiju/4232291.htm)
-- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
-- [双人抬棺](http://www.movie.hkepx.cn/movie/0376230.htm)
-- [31 省份去年平均工资出炉，全国城镇非私营单位平均工资 129441 元，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/2775998.htm)
-- [DeepSeek 营收只有几亿，却融资上千亿，这种模式合理吗？](http://www.daogukj.com/8542217)
-- [男子用树枝搭建巨型齐天大圣](http://www.movie.hkepx.cn/xiju/2386261.htm)
-- [如果早知道，阿伟可以手搓时光机](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.movie.hkepx.cn/movie/8948693.htm)
-- [长鑫拒绝苹果](http://www.movie.hkepx.cn/movie/7516507.htm)
-- [“这家馅饼很普通 沈腾就是太饿了”](http://www.daogukj.com/3234327)
-- [皇马管理层送樊振东巴萨官方赠票](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
+- [女子新房未入住被他人装修出租20年](http://www.movie.hkepx.cn/xiju/6077524.htm)
+- [如何评价呼和浩特盛乐国际机场将于 2026 年 11 月 26 日正式投入运营？](http://www.play.hengshemaoyi.cn/xiju/3417684.htm)
+- [混进小米公司狂吃爽玩！单挑AI赛车手，大厂程序员都是这么过节的？](http://www.daogukj.com/9378383)
+- [勒庞民调领先 法国政坛要变天了吗](http://www.movie.hkepx.cn/movie/3280477.htm)
+- [尚公主开播三日云合走势](http://www.movie.hkepx.cn/movie/9632113.htm)
+- [特朗普当众轻佻评论女歌手身材](http://www.daogukj.com/6919034)
+- [iPad mini](http://www.play.hengshemaoyi.cn/kongbu/7102338.htm)
+- [“鸣人 其实我也没有考上中忍”（完整版）](http://www.daogukj.com/ttcnrbsi/)
+- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.movie.hkepx.cn/movie/6836580.htm)
+- [台湾艺人阿雅公开表态“一个中国”](http://www.daogukj.com/dfvjlhgg/)
+- [“西游记这么拍 去影院五刷”](http://www.movie.hkepx.cn/movie/8186104.htm)
+- [CBA开赛后以贺希宁、庞峥麟为首的一批国家队球员状态急剧下滑，这是什么原因，未来国家队会继续集训吗？](http://www.movie.hkepx.cn/movie/9874745.htm)
+- [我国风光累计装机容量突破20亿千瓦](http://www.daogukj.com/nkpmcahd/)
+- [张雪米饭问题已经解决，让天下没有难吃的米饭！](http://www.play.hengshemaoyi.cn/kongbu/2951284.htm)
+- [接招吧，由精锐弓床弩组成的密集火力网！【帝国时代4】](http://www.play.hengshemaoyi.cn/xiju/9318342.htm)
+- [既然国家允许重新高考，为什么不少经济条件尚可、没有巨大生存压力的成年人，依然不选择报考？](http://www.movie.hkepx.cn/movie/4332345.htm)
+- [家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？](http://www.movie.hkepx.cn/movie/8953215.htm)
+- [如何看待老干妈回应「用AI把600名工人裁到48人」，称是不实信息？品牌能挽回消费者信任吗？](http://www.daogukj.com/hhucwvns/)
+- [电动自行车行业将迎来新一轮洗牌吗](http://www.play.hengshemaoyi.cn/kongbu/6208363.htm)
+- [贵州真是旅游宝藏，贵州人嘴真严！](http://www.daogukj.com/lpvatlfx/)
+- [用党的创新理论凝心铸魂](http://www.daogukj.com/3115605)
+- [不刷牙睡觉vs不刷牙吃早餐哪个更伤身](http://www.movie.hkepx.cn/movie/1459959.htm)
+- [后会友期 臭鱼烂虾爱看的节目](http://www.daogukj.com/6281492)
+- [如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？](http://www.movie.hkepx.cn/xiju/4232291.htm)
+- [凯恩造81球本世纪金球得主排第4](http://www.play.hengshemaoyi.cn/kongbu/3884919.htm)
+- [红灯变绿后，为什么总有前车要愣两三秒才起步？](http://www.movie.hkepx.cn/movie/0376230.htm)
+- [去亿年溶洞演奏千年前的声音，是什么体验？【杜比全景声】](http://www.movie.hkepx.cn/xiju/2775998.htm)
+- [如何看待六小龄童称「圣黛CP」既有意义也很有趣，但需做好正确引导？你认为文艺作品的二创需要设立底线吗？](http://www.daogukj.com/8542217)
+- [张麻子《鹅城FUNK》](http://www.movie.hkepx.cn/xiju/2386261.htm)
+- [网友说「桂花香是一种非牛顿流体」，越用力闻气味越淡，越不用力闻气味越浓，这种说法有道理吗？](http://www.play.hengshemaoyi.cn/xiju/8572984.htm)
+- [如何看待Anthropic提交IPO申请，将以「ANT」为代码登陆纳斯达克？会给AI行业带来哪些改变？](http://www.movie.hkepx.cn/movie/8948693.htm)
+- [2个衣架轻松收纳大衣](http://www.movie.hkepx.cn/movie/7516507.htm)
+- [租客不辞而别 留下字条和277块现金](http://www.daogukj.com/3234327)
+- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](http://www.play.hengshemaoyi.cn/kongbu/1262210.htm)
 
 </details>
 
 ## 原始来源
 
-- [长鑫存储硬气拒绝苹果](https://www.toutiao.com/trending/7700013630267572250/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227700013630267572250%22%2C%22hot_board_impr_id%22%3A%222026102618440782D4584ABD747E569964%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [樊振东「卧底」西班牙国家德比，被反复质疑盘查，因表现不狂热遭巴萨球迷投诉，对此你怎么看？](https://www.zhihu.com/question/2098047112466227298)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 26c337cbe33ef23aac10 -->
+<!-- content-fingerprint: b44fa5d7cdbd8e229daf -->
