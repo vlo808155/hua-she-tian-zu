@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？
+# 江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：162 万热度 · 分类：问答 · 更新：2026-10-27T05:37:18+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：514 万热度 · 分类：问答 · 更新：2026-10-27T08:51:02+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？”位列第 3 位，公开热度指标为 162 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？”位列第 3 位，公开热度指标为 514 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[图片]
+来源公开摘要显示：近日，多所大学发布相关通知，学校在职在编人员工资将通过数字人民币钱包发放。 扬州大学财务处10月20日发布通知，接省财政厅预通知，自2026年11月起，学校在职在编人员（含人事代理）工资将通过数字人民币钱包发放，请相关人员根据自己目前的工资卡情况，于10月23日前完成数币钱包的开立与升级。 南通大学财务处发布《关于做好数字人民币钱包开通及11月份工资数币发放工作的通知》：各位教职工：接省财政厅通知，自2026年11月起全校在编人员、人事代理人员工资将通过数币钱包发放。请相关人员于10月30日前完成数币钱包的开立与升级（工资、绩效分两张卡发放，两张均需开立
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [张麻子《鹅城FUNK》](shan-qing-shui-xiu.md)
-- [樊振东分享观赛西班牙国家德比](feng-he-ri-li.md)
-- [捐日军罪证15岁少年遭网暴](chun-nuan-hua-kai.md)
-- [DeepSeek 营收只有几亿，却融资上千亿，这种模式合理吗？](qiu-gao-qi-shuang.md)
+- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](shan-qing-shui-xiu.md)
+- [为什么手机越卖越少越卖越贵](feng-he-ri-li.md)
+- [iOS27.2禁止摇一摇跳转](chun-nuan-hua-kai.md)
+- [巴西大选卢拉因何实现逆风翻盘](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [如何看待老干妈回应「用AI把600名工人裁到48人」，称是不实信息？品牌能挽回消费者信任吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [生命起源：四十亿年前，地球如何诞生第一个生命？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [贵州真是旅游宝藏，贵州人嘴真严！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [【2026全球总决赛】10月26日 IG vs HLE](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [县委书记被扔下水没必要尬吹硬捧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [S16瑞士轮第 3 轮低分淘汰赛，AL0:2TLAW，被称为LPL历史最差一号种子，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [张麻子《鹅城FUNK》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [【抢先看】植物大战僵尸・超长番：从新手村到万物共生，一集封神！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [Kimi致歉](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [CFO对战T1](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [樊振东分享观赛西班牙国家德比](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [别对需要独居的人谈弊端](http://www.daogukj.com/8743466)
-- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](http://www.daogukj.com/6087099)
-- [租客不辞而别 留下字条和277块现金](http://www.daogukj.com/8759192)
-- [外媒聚焦二十届五中全会](http://www.daogukj.com/nzlnmzmb/)
+- [LPL连续两年一号种子止步16强](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [中土互联网大战，有多爆笑？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [为什么手机越卖越少越卖越贵](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [德国总统抵达安徽开启访华行程](http://www.daogukj.com/8743466)
+- [《名侦探柯南》必然会以柯南永久性变回工藤新一为大结局吗？](http://www.daogukj.com/6087099)
+- [62岁女子坚持健身5年多](http://www.daogukj.com/8759192)
+- [数说中国外贸澎湃动能](http://www.daogukj.com/nzlnmzmb/)
 - [“看不见的外贸”畅跑全球](http://www.daogukj.com/6882941)
-- [iPhoneDuo折叠挑战后摔坏](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [The shy：我不是F6！](http://www.daogukj.com/9154473)
-- [这游戏给我恐高症治好了](http://www.daogukj.com/4411404)
-- [每次熬夜都在消耗甲状腺寿命](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [凯恩造81球本世纪金球得主排第4](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [武契奇承认败选](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [哈利波特发现自己继承了父母的巨额遗产后，为什么不分点给姨夫姨妈一家报答养育之恩？](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [AI短片《齐天大圣》为何能引发关注](http://www.daogukj.com/aztauuey/)
-- [如何看待六小龄童称「圣黛CP」既有意义也很有趣，但需做好正确引导？你认为文艺作品的二创需要设立底线吗？](http://www.daogukj.com/7343685)
-- [深圳水贝被挤爆](http://www.daogukj.com/dhbposmt/)
-- [母女被未拴绳大狗逼到墙角 警方回应](http://www.daogukj.com/1538095)
-- [被张雪扔下水县委书记拿到大结果](http://www.daogukj.com/uznikqxj/)
-- [苹果发布新款iPad mini](http://www.daogukj.com/5158126)
-- [县委书记被扔下水没必要尬吹硬捧](http://www.daogukj.com/3616935)
-- [樊振东用荒诞形容首次诺坎普之旅](http://www.daogukj.com/pfvjuanz/)
-- [老公把我要走了换成出去玩儿啦](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [新款iPadmini发布](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [那些用开塞露涂脸的人怎么样了](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [杨贵媚金钟奖三封视后](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [渡鸦风云记](http://www.daogukj.com/9154473)
+- [如何看待Anthropic提交IPO申请，将以「ANT」为代码登陆纳斯达克？会给AI行业带来哪些改变？](http://www.daogukj.com/4411404)
+- [侯明昊百妖谱客串](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [人造古镇为啥集体哑火了](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [寒武纪辟谣明年出货100万颗芯片](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [如何看待老干妈回应「用AI把600名工人裁到48人」，称是不实信息？品牌能挽回消费者信任吗？](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [城管摇了摊主好了顾客笑了](http://www.daogukj.com/aztauuey/)
+- [AL三连败出局](http://www.daogukj.com/7343685)
+- [苹果回应iPhone Duo折叠屏开裂](http://www.daogukj.com/dhbposmt/)
+- [学者：中国如何面对更加分裂的巴西](http://www.daogukj.com/1538095)
+- [73名省部级及以上干部被立案](http://www.daogukj.com/uznikqxj/)
+- [接招吧，由精锐弓床弩组成的密集火力网！【帝国时代4】](http://www.daogukj.com/5158126)
+- [Kimi致歉](http://www.daogukj.com/3616935)
+- [肖战做好拿奖的准备吧](http://www.daogukj.com/pfvjuanz/)
+- [刚入职叫女领导一个月熊大](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [百合网创始人慕岩在朋友圈化缘要饭](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [女子驾车过高架车顶被风筝线割破](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
 - [越造越大越卖越贵 纯电小车变味了吗](http://www.daogukj.com/asaygxgb/)
-- [王兴兴两次认错 宇树暴涨1100亿](http://www.daogukj.com/zxvfwrkb/)
-- [【灰石剧场400杀】摆完挂机 简单好抄](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [如果早知道，阿伟可以手搓时光机](http://www.daogukj.com/7717389)
-- [电动自行车行业将迎来新一轮洗牌吗](http://www.daogukj.com/9746581)
-- [5秒10枪4死1重伤，顶级射手实力有多恐怖？ | 漫谈《枪王》【02】](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [【2026全球总决赛】10月26日 IG vs HLE](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [为什么手机越卖越少越卖越贵](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [维修报价需要3000，回收报价700，转身修好卖5000。](http://www.daogukj.com/7650204)
-- [媒体：娱乐至死的医疗真人秀该叫停了](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [为什么那些大佬每天要处理许多事情，还精力充沛?](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [外交部：中方尊重巴西人民的选择](http://www.daogukj.com/0995452)
-- [欧阳娜娜在娣娣面前姐感好强](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [遇到射手牢玩家，我李信只能急的原地转圈圈](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [皇马绝杀巴萨](http://www.daogukj.com/fivnrrsp/)
-- [生命起源：四十亿年前，地球如何诞生第一个生命？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？](http://www.daogukj.com/hldbetht/)
-- [你是怎么突然发现同事很有钱的？](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [如何看待Anthropic提交IPO申请，将以「ANT」为代码登陆纳斯达克？会给AI行业带来哪些改变？](http://www.daogukj.com/phqakpps/)
-- [红灯变绿后，为什么总有前车要愣两三秒才起步？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](http://www.daogukj.com/adpyviat/)
+- [拒让张雪打广告的县委书记为何出圈](http://www.daogukj.com/zxvfwrkb/)
+- [为什么大家都说圆形餐桌好，却给家里选了长桌？](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.daogukj.com/7717389)
+- [150万开无烟酒吧倒闭 当事人回应](http://www.daogukj.com/9746581)
+- [如何评价呼和浩特盛乐国际机场将于 2026 年 11 月 26 日正式投入运营？](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [【抢先看】植物大战僵尸・超长番：从新手村到万物共生，一集封神！](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [贵州真是旅游宝藏，贵州人嘴真严！](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [《琵琶行》中白居易听曲后痛哭的描写，是不是写得太假了？](http://www.daogukj.com/7650204)
+- [老公把我要走了换成出去玩儿啦](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [金球奖官方回应获奖页面提前泄露](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [新款iPadmini发布](http://www.daogukj.com/0995452)
+- [AL一号种子16强](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [369 赛后采访称「本来做好了挨揍准备，结果发现大家好像也没差太多」是他天赋高还是本届上单地位有下滑？](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [尼采：纵然上帝已死，我仍努力向生命举杯](http://www.daogukj.com/fivnrrsp/)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [15个中央巡视组组长公布](http://www.daogukj.com/hldbetht/)
+- [捐日军罪证15岁少年遭网暴](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [年轻人流行起「重养父母」，教妈妈护肤、帮爸爸抢演唱会票，怎样看待这种反向哺育？其中的边界感该如何把控？](http://www.daogukj.com/phqakpps/)
+- [为什么广东那么潮湿却没养成吃辣椒祛湿的习惯？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [国家为什么迟迟不肯挖掘秦始皇陵呢？](http://www.daogukj.com/adpyviat/)
 - [用党的创新理论凝心铸魂](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [城管摇了摊主好了顾客笑了](http://www.daogukj.com/1571628)
-- [金球揭晓时间](http://www.daogukj.com/9492876)
+- [金球奖](http://www.daogukj.com/1571628)
+- [凯恩发表获奖感言时亚马尔表情](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？](https://www.zhihu.com/question/2097410474967045543)
+- [江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？](https://www.zhihu.com/question/2098056179788391425)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4f8a17adb3c81abb4e50 -->
+<!-- content-fingerprint: 51df8ac94862f97eb3a3 -->
