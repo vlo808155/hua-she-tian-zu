@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 西班牙高铁相撞事故已造成 64 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？
+# 【2026全球总决赛】10月29日 LYON vs IG
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：456 万热度 · 分类：问答 · 更新：2026-10-29T07:34:53+08:00
+> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：2248570 · 分类：电子竞技 · 更新：2026-10-29T10:54:22+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“西班牙高铁相撞事故已造成 64 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？”位列第 1 位，公开热度指标为 456 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【2026全球总决赛】10月29日 LYON vs IG”位列第 1 位，公开热度指标为 2248570，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：西班牙卡斯蒂利亚-拉曼查自治区政府28日说，当天上午在其首府托莱多发生的高速铁路列车相撞事故死亡人数上升至64人。初步调查显示，事故系人为调度失误所致。 由于救援人员在推进至受损车厢内部及坍塌残骸深处时发现了更多尸体，官方明确表示遇难者人数还将继续上升。西班牙列车相撞事故已致64人死亡 初步调查指向调度失误 初步调查显示 事故系人为失误所致 官方调查显示，两辆列车相撞时车速均超过了每小时100公里。 调查分析显示，控制中心的操作人员在前方列车占用轨道的情况下错误下达指令，导致后方列车继续行驶引发碰撞。当地交通运输部与事故调查委员会已针对控制中心调度失误及
+来源公开摘要显示：【2026全球总决赛】10月29日 LYON vs IG
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
 
 ## 相关热点
 
-- [喝可乐不打嗝小游戏~](wu-gu-feng-deng.md)
-- [微信新功能来了：只用动嘴](liu-shen-wu-zhu.md)
-- [女子欠1700元被限高公开照片](qi-shang-ba-xia.md)
-- [新一轮冷空气将登场](ba-mian-ling-long.md)
+- [“高盐刺客”就在你的餐桌上](wu-gu-feng-deng.md)
+- [阿维塔新车发布会取消](liu-shen-wu-zhu.md)
+- [云南小伙结婚数千网友赶来撑场面](qi-shang-ba-xia.md)
+- [小天才手表封闭社交引争议，不买真会被孤立吗？如何看待这种现象？](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [如何评价秦朔发文《可怕的红果与中国互联网的字节时间》？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [唱哭薛之谦的贵州小伙被签约](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [西班牙列车相撞 车厢有人“被甩飞”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [皇马道歉完还须补课](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [姆巴佩的道歉没发1.35亿粉的iG上](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [三年之期已到，恭迎世一上归位！【第15集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [男生最怕的事也莫过于此](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [⚡《新 三 国 FUNK》⚡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [李大钊诞辰137周年](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [TheShy被欧刚逗笑了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [T1击败MKOI晋级S16八强](http://www.daogukj.com/7394302)
-- [巴基斯坦对台湾地区航司关闭领空](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [每天吃四个鸡蛋一个月血脂会怎样](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [如何评价秦朔发文《可怕的红果与中国互联网的字节时间》？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [如何看待刘涛与某品牌创始人合影时，被对方频繁触碰胸部腰部，陈都灵也被贴身触碰？遇到这种情况该怎样应对？](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [三丽鸥将与抹黑中国日剧再次联名](http://www.daogukj.com/thgdlrxk/)
-- [如果鸡能长到100千克重，那人是不是就有巨大的鸡翅可以吃了？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [150人考试149人通过牵出作弊案](http://www.daogukj.com/qqvbmaen/)
-- [西班牙列车相撞已致68死](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [女子欠1700元被限高公开照片](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [长鑫科技已被纳入上证综指和上证科创综指，均位列第一大权重股，其股价波动会给指数带来多大影响？](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [十日终焉](http://www.daogukj.com/6313812)
-- [中国“智造家”加速出海](http://www.daogukj.com/wczbkkvt/)
-- [特朗普为了中期大选真拼了](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [人民日报评姆巴佩翻车](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [第140届广交会第二期圆满收官](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [樊振东说很荣幸走进棒球世界](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [喝可乐不打嗝小游戏~](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [美国各界热议「要不要对中国车开放」，若放宽准入会对美本土汽车产业带来哪些冲击？](http://www.daogukj.com/jjlkzcvz/)
-- [妈妈称男孩1米75没法见人](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [剑来](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [3000万豪宅地库出入口在隧道](http://www.daogukj.com/drcaefzl/)
-- [研究发现吃肉可能与长寿有关](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [杀同学，杀朋友，杀网络喷子，英国未来女首相竟是个连环杀手？！《谜探路德维希》第二季 下](http://www.daogukj.com/rrxeunix/)
-- [“割麦证”驳斥“红军过境抢粮”](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [巴基斯坦对台湾航司关闭领空](http://www.daogukj.com/qekijaaa/)
-- [可观测宇宙最可爱的古风大肥鱼](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [找准发展新质生产力的着力点](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [【捉迷躲猫王】😱太阴了躲在粪坑下面？？大哥你无敌了啊？！废弃监狱超高难度捉迷藏~！](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [西媒就姆巴佩闯下大祸算了笔账](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [被人买凶杀死的自媒体人徽剑【热点详解01】](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [肖战演出了恐惧耳鸣的状态](http://www.daogukj.com/4880877)
-- [安徽女子赴泰失联近 3 个月，家属称被拐至园区 50 万元遭转走，警方已立案，具体情况如何？](http://www.daogukj.com/gyblgzpw/)
-- [三丽鸥致歉](http://www.daogukj.com/3742193)
-- [美股收盘：SK海力士涨超13%](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [为什么都是汽车行业，外国汽车行业发展的时候，供应商过得挺好，国内汽车行业发展了，供应商变得这么难？](http://www.daogukj.com/yhmvbvtt/)
-- [华为“天才少年”杨玉雯加盟南京大学](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [刚用四天iPhone Duo，喀嚓一声炸屏了](http://www.daogukj.com/4405323)
-- [西班牙列车相撞 车厢有人“被甩飞”](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [男子多次触摸女同事隐私部位被拘捕](http://www.daogukj.com/ydbbqbuc/)
-- [MKOI对战T1](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [中年人心血管体检性价比最高](http://www.daogukj.com/5927597)
-- [祭祀用品印有高秀敏张少华 网友谴责](http://www.daogukj.com/3691526)
-- [多所高校工资绕开银行卡意味着什么](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [开始推理吧官宣第五季](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [爸爸去哪儿 x Counting Stars](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [「酱油」一词为什么正在被「生抽」和「老抽」替代？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [华为 PuraXView 销量超 60 万台且持续缺货，阔直屏形态会成为行业新趋势吗？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [令人心动的offer8停更](http://www.daogukj.com/9555051)
-- [近五年旋转小火锅新增门店超2万家，海底捞等巨头争相入局，为啥旋转小火锅又火了？这一次热潮能持续多久？](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [乔布斯嘲讽的触屏笔记本苹果真出了](http://www.daogukj.com/7394302)
+- [姆巴佩的“天价”账单才刚刚开始](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [S16 瑞士轮 iG 2:1 击败 LYON，时隔 2565 天重新闯进淘汰赛，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [三年之期已到，恭迎世一上归位！【第15集】](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [朱之文：黑粉不仅骂我还不放过我家人](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [3人编造哄抢农作物谣言被处罚](http://www.daogukj.com/thgdlrxk/)
+- [西班牙高铁事故已致68死，相撞时车速超100公里/时，系人为失误，暴露什么问题？防撞系统为啥没起作用？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [HelloKitty的道歉未同步海外账号](http://www.daogukj.com/qqvbmaen/)
+- [Hello Kitty深夜致歉](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [云南小伙结婚数千网友赶来撑场面](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [男子造谣餐馆因顾客系外籍免单被拘](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [香氛 年轻人的“情绪搭子”](http://www.daogukj.com/6313812)
+- [显卡价格大面积回调：11连涨被终结｜显卡日报10月29日](http://www.daogukj.com/wczbkkvt/)
+- [《令人心动的 offer 8》停更，具体是怎么回事？和最近的风波有关吗？](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [特朗普与奥巴马因一家餐厅开战](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [找准发展新质生产力的着力点](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [西班牙高铁事故关键录音曝光](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [“高盐刺客”就在你的餐桌上](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [算力网加速织就 八大枢纽各展所长](http://www.daogukj.com/jjlkzcvz/)
+- [武汉老哥的开车日常](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [多地以旧换新上新 最高补贴2000元](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [西班牙列车相撞已致68死](http://www.daogukj.com/drcaefzl/)
+- [李亮称秦朔文章存在「常识性错误」，双方各执一词，中国互联网存在「字节时间」吗？如何评价当前竞争格局？](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [成都马拉松两名配速员赛中违规换装被取消成绩和禁赛，免费装备为何有如此吸引力让跑者「以身试法」？](http://www.daogukj.com/rrxeunix/)
+- [厉娜怒吼许飞我所有的经济损失呢](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [管泽元宁王看iG晋级S16八强](http://www.daogukj.com/qekijaaa/)
+- [姆巴佩的道歉没发1.35亿粉的iG上](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [张雪现身重庆大学校招，承诺「大部分员工入职一年后涨薪 20% 」，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [如何评价苹果首度为 Mac 引入灵动岛、时隔 10 年发光 Logo 回归、加入触屏功能？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [现在就出发](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [如何评价秦朔发文《可怕的红果与中国互联网的字节时间》？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [39岁中国籍老板在泰遭袭身亡](http://www.daogukj.com/4880877)
+- [白百何疑新恋情曝光](http://www.daogukj.com/gyblgzpw/)
+- [西班牙宣布全国哀悼3天](http://www.daogukj.com/3742193)
+- [亲戚资助出国玩 低保资格会被取消吗](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [当你穿进老钱班38](http://www.daogukj.com/yhmvbvtt/)
+- [美联储宣布维持利率不变](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [IG战胜LYON晋级S16八强](http://www.daogukj.com/4405323)
+- [⚡《新 三 国 FUNK》⚡](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [郑合惠子 跟我提结婚我肯定吓得腿软](http://www.daogukj.com/ydbbqbuc/)
+- [中国“智造家”加速出海](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [特大暴雪暴雨！新一轮冷空气将来袭](http://www.daogukj.com/5927597)
+- [杀同学，杀朋友，杀网络喷子，英国未来女首相竟是个连环杀手？！《谜探路德维希》第二季 下](http://www.daogukj.com/3691526)
+- [西班牙高铁事故是怎么发生的](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [三丽鸥将与抹黑中国日剧再次联名](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [多所高校内出现这种“小房子”](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [百家中资网贷出海印度亏损 70 亿退场，导致这一溃败的核心原因是什么？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [【究极佐菲格斗】第五集 危险的雄狮！佐菲机器人 雷欧 泰罗 超兽黑鸽子 黑暗星人巴巴尔 登场](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [妻子透露蒋万安曾为长子遭攻击落泪](http://www.daogukj.com/9555051)
+- [德国总统为何时隔8年再访华](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [西班牙高铁相撞事故已造成 64 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？](https://www.zhihu.com/question/2098832855782482837)
+- [【2026全球总决赛】10月29日 LYON vs IG](https://b23.tv/BV1Eas967EY9)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0abb8c78f881e657b229 -->
+<!-- content-fingerprint: af87227b8765d188cca9 -->
