@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 街道试点“共享儿女”：最低199元每月
+# 工资发到数币钱包和打银行卡有何不同
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7807876 · 更新：2026-10-31T07:15:56+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7809618 · 更新：2026-10-31T10:32:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“街道试点“共享儿女”：最低199元每月”位列第 1 位，公开热度指标为 7807876。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“工资发到数币钱包和打银行卡有何不同”位列第 1 位，公开热度指标为 7809618。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：长沙芙蓉区推出最低199元/月“共享儿女”养老服务，目前已有145名老人报名。该服务通过政府补贴100至300元、老人自缴及企业让利运作。
+来源公开摘要显示：近日，江苏多所高校相继发布通知，教职工工资将逐步通过数字人民币钱包发放。记者解读此举和打银行卡的区别时称：二者都是存在银行里的钱，从数币钱包兑回绑定银行卡，免手续费、实时到账，跨行同样适用。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [黄金](yi-xin-yi-yi.md)
-- [黄金大跌 铜价为何创新高](san-xin-er-yi.md)
-- [39 岁中国老板在泰国工地遇袭身亡，4 名缅甸劳工自首，哪些信息值得关注？](si-hai-wei-jia.md)
-- [三阶段了 杀手一曲Golden Hour征服老哥](wu-gu-feng-deng.md)
+- [英特尔美股暴跌科技股同步大跌](yi-xin-yi-yi.md)
+- [“攻击-21”成功起降](san-xin-er-yi.md)
+- [英特尔股价暴跌28.58%创52年来最大日跌幅，市值蒸发近1500亿美元，怎样解读市场的反应？](si-hai-wei-jia.md)
+- [白蚁豪宅被大象拿来擦屁股，没想到擦出了一个微观水世界！](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
 - [这件“关系民生的大事”务必抓实抓好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [马天宇劝文吉儿不要做的太绝情](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [为什么老一辈人觉得“搭伙过日子”很幸福，而现在的年轻人却很排斥？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [国产 3A 新作《影之刃零》本体容量达 145G 引热议，为何现在大作体积越来越膨胀？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [热度过后现在该如何评价《黑神话：悟空》这款游戏?](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [小沈阳获《披荆斩棘》总冠军](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [一喝水，尿就多，是肾坏了吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [为什么古代的食用油那么珍贵，老百姓们还能吃得起炸油条？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [东莞多所中学小卖部只卖水和牛奶，这样合理吗？为什么现在有很多网友反对？规定实行至今各方需求有何变化？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黄金大跌 铜价为何创新高](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [我觉得我都要爱上厉娜了](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [人民日报：警惕“中国AI跑偏论”](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [《星游记》前传电影启动，方向黑洞，目标彩虹海！](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [媒体：银行“离柜概不负责”早该撤了](http://www.daogukj.com/ihcjjgzd/)
-- [孙楠感谢那英](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [一次性内裤终于有了“底”线](http://www.daogukj.com/hytgpxub/)
-- [G.E.M.邓紫棋【自由的你】MV（官方｜4K超清）](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [北京启动2026年网络辟谣宣传月活动](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [《崩坏：星穹铁道》4.7版本「此刻，将群星付之一笑」前瞻特别节目](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [三阶段了 杀手一曲Golden Hour征服老哥](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [纳指收跌2.9% 英特尔暴跌28%](http://www.daogukj.com/8357764)
-- [开创新时代管党治党兴党强党新局面](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [宜家、霸王茶姬等品牌开始试点「消费入座」，如何看待这一措施？你支持吗？](http://www.daogukj.com/rdfrumhx/)
-- [作家大冰 不是靠直播翻红](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [“攻击-21”成功起降](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [主持人跑网约车被抽成破防](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [iPhone Duo的铰链是AI打造的吗](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [红军突围靠打不靠让 驳“放水论”](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [新人包双层巴士和复古铛铛车接亲](http://www.daogukj.com/ihcjjgzd/)
+- [霍姆格伦髌腱撕裂](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [波兰被指发生“政变” 总统紧急回国](http://www.daogukj.com/hytgpxub/)
+- [奶龙＆豆包《Trouble Maker》token没啦【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [吾恩去世](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [DeepSeek 居然会对用户说「我去吃饭了」「我去睡了」，为啥会出现这样的现象？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [白蚁豪宅被大象拿来擦屁股，没想到擦出了一个微观水世界！](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [西藏唇腭裂男童面诊完爸爸笑了](http://www.daogukj.com/8357764)
+- [六网协同夯实中国式现代化底座](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [为什么老一辈人觉得“搭伙过日子”很幸福，而现在的年轻人却很排斥？](http://www.daogukj.com/rdfrumhx/)
+- [王濛对唐艺昕说“我喜欢你老公”](http://www.movie.hkepx.cn/xiju/4910358.htm)
 - [亮记闲谈-如果恐龙活着它的肉是什么味？](http://www.daogukj.com/lntrsvpz/)
-- [男子在星巴克不消费占座被劝离后报警](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [员工被辞退后，若劳动仲裁时是按公司违法辞退诉求赔偿金即2N，仲裁失败的，一审还能改诉经济补偿金N吗？](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [《此弟不宜久留》](http://www.daogukj.com/mofrooiq/)
-- [小沈阳披荆斩棘冠军](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [邀全网喝喜酒小伙家里布置1万枝玫瑰](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [股票群再度“鸦雀无声”](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [今年全国实现生娃基本不花钱](http://www.daogukj.com/8424365)
-- [39 岁中国老板在泰国工地遇袭身亡，4 名缅甸劳工自首，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [“我本该命途齐天”【孙悟空＆新·与天齐】](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [赵丽颖是85后演员首位](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [宋慧乔是宋仲基的逆鳞](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [孟加拉国总理无视引导不向日国旗鞠躬](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [《当爱已成往事》夯爆了](http://www.daogukj.com/4727274)
+- [古风歌手吾恩离世](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [为啥《影之刃：零》中，所有追杀者，都叫魂这个叛徒为“魂大人”？](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [《派游记》南京赏秋](http://www.daogukj.com/mofrooiq/)
+- [波兰政变](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [选民嘴瓢喊万斯“总统先生”](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [有地方明确：12345不再接这几类诉求](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [大批理发店关停10元快剪走红](http://www.daogukj.com/8424365)
+- [英特尔股价暴跌28.58%创52年来最大日跌幅，市值蒸发近1500亿美元，怎样解读市场的反应？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [张雪机车90后专科生员工年薪五六十万，张雪对校招生直言「你们起点比他高」，现场学生真能年薪比他们高吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [好剧本都要从赵丽颖手中过一遍](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [赵丽颖不鸣则已一鸣惊人](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [HLE抽到BLG众人反应](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [1个病房住4个肺癌患者全是烟民](http://www.daogukj.com/4727274)
 - [郑州大学讲师陈浩垚“查无此人”](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [男孩不爱吃饭医生点肯德基当场治好](http://www.daogukj.com/2266153)
-- [何炅被杨丽萍当场说哭](http://www.daogukj.com/3795795)
-- [美股](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [外网爆火的心脏病征兆](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [透明的镜片居然有影子？观众的问题让我脑洞大开！](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [阿维塔撤掉发布会 救不了卖不动的车](http://www.daogukj.com/uhjkuxrm/)
-- [赵丽颖不鸣则已一鸣惊人](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [如何评价前小米高管王腾的公司发布首款智能戒指 ISHO Ring，定价 1799-2199 元？](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [热度过后现在该如何评价《黑神话：悟空》这款游戏?](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [一喝水，尿就多，是肾坏了吗？](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [CPOPwave出海长红IP——《原神》让世界认识中国游戏](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [文吉儿王子璇争议事件新反转](http://www.daogukj.com/2266153)
+- [孟加拉国总理无视引导不向日国旗鞠躬](http://www.daogukj.com/3795795)
+- [共和党或已找好中期选举“背锅侠”](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [开创新时代管党治党兴党强党新局面](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [常态入鞘彩蛋出鞘！这剑气帅不帅吧？黑伤实际演示！影之刃零联动近战武器！](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [经济日报：“速成车”标签不可乱贴](http://www.daogukj.com/uhjkuxrm/)
+- [辟谣周榜｜辽宁大暴雨街道成海？假的](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [我用Ai让AUDI和键盘侠打了一架](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [东莞多所中学小卖部只卖水和牛奶，这样合理吗？为什么现在有很多网友反对？规定实行至今各方需求有何变化？](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [“共享儿女”试点：每月最低199元](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [三阶段了 杀手一曲Golden Hour征服老哥](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
 - [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](http://www.daogukj.com/5905118)
-- [车辆全身被鸟屎覆盖](http://www.daogukj.com/gchjscql/)
+- [BLG瑞士轮生死战抽到HLE](http://www.daogukj.com/gchjscql/)
 - [全面从严治党和鼓励担当作为内在统一](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [于东来：建议制度支持消费入座](http://www.daogukj.com/9269800)
-- [为什么医院每天那么大的现金流还是不挣钱，甚至还亏钱？](http://www.daogukj.com/7091853)
-- [大学生用四年codex，每天进步一点，四年之后，与没用上codex的同学会有很大的差距么？](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [如何评价 369 采访称「想赢才会兴奋，怕输才会紧张」？](http://www.daogukj.com/2402025)
-- [女子万元手机火车上充电时被顺走](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [披荆斩棘成团名单](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [菲军舰“跟踪”辽宁舰这场戏演给谁看](http://www.daogukj.com/9269800)
+- [今年全国实现生娃基本不花钱](http://www.daogukj.com/7091853)
+- [阿维塔新车发布会取消，具体是咋回事？背后的原因可能是啥？](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [小沈阳披荆斩棘冠军](http://www.daogukj.com/2402025)
+- [金球奖公布投票详情](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [S16抽签](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [街道试点“共享儿女”：最低199元每月](https://www.baidu.com/s?wd=%E8%A1%97%E9%81%93%E8%AF%95%E7%82%B9%E2%80%9C%E5%85%B1%E4%BA%AB%E5%84%BF%E5%A5%B3%E2%80%9D%EF%BC%9A%E6%9C%80%E4%BD%8E199%E5%85%83%E6%AF%8F%E6%9C%88&sa=fyb_news&rsv_dl=fyb_news)
+- [工资发到数币钱包和打银行卡有何不同](https://www.baidu.com/s?wd=%E5%B7%A5%E8%B5%84%E5%8F%91%E5%88%B0%E6%95%B0%E5%B8%81%E9%92%B1%E5%8C%85%E5%92%8C%E6%89%93%E9%93%B6%E8%A1%8C%E5%8D%A1%E6%9C%89%E4%BD%95%E4%B8%8D%E5%90%8C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6a40b712fa2de40c0630 -->
+<!-- content-fingerprint: b66b0a1a0780ffdfac18 -->
