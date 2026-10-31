@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 小区物业退场 谁来收拾“烂摊子”
+# 日本访华代表团鞠躬谢罪
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7521171 · 更新：2026-10-31T10:32:47+08:00
+> 来源：今日头条热榜 · 排名：第 4 位 · 热度：13504445 · 更新：2026-10-31T16:50:53+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“小区物业退场 谁来收拾“烂摊子””位列第 3 位，公开热度指标为 7521171。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“日本访华代表团鞠躬谢罪”位列第 4 位，公开热度指标为 13504445。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：多地小区陷入“服务滑坡-拒缴物业费-物业退场”的恶性循环，背后交织着质价不符、权责错位、行业逻辑转变等多重矛盾，业主自治门槛极高，多方正在探索酬金制、信托制等多元治理出路。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [波兰政变](chun-nuan-hua-kai.md)
-- [纳指跌近3%英特尔创52年来最大日跌幅](qiu-gao-qi-shuang.md)
-- [传统武术为什么会有“掌”这种离谱的攻击方式？](bing-tian-xue-di.md)
-- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](ri-xin-yue-yi.md)
+- [为什么古代的食用油那么珍贵，老百姓们还能吃得起炸油条？](chun-nuan-hua-kai.md)
+- [灭建国的超能力](qiu-gao-qi-shuang.md)
+- [大金镯子又香了](bing-tian-xue-di.md)
+- [微博视界大会节目单](ri-xin-yue-yi.md)
 
 ## 站内推荐
 
-- [有地方明确：12345不再接这几类诉求](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [英特尔创52年来最大日跌幅](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [热度过后现在该如何评价《黑神话：悟空》这款游戏?](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [为什么老一辈人觉得“搭伙过日子”很幸福，而现在的年轻人却很排斥？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [阿维塔新车发布会取消，具体是咋回事？背后的原因可能是啥？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [官方披露：将有两名中国人登陆月球](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [钓鱼男子被钱塘江涌潮吞没后游上岸](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [“假笑男孩”16岁了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [中国找矿获重大突破](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [意大利50多个城市爆发示威游行](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么老一辈人觉得“搭伙过日子”很幸福，而现在的年轻人却很排斥？](http://www.daogukj.com/2989641)
-- [攻击21在四川舰上完成起降意味什么](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
-- [HLE抽到BLG](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
-- [于东来：建议制度支持消费入座](http://www.daogukj.com/5775563)
-- [为啥《影之刃：零》中，所有追杀者，都叫魂这个叛徒为“魂大人”？](http://www.daogukj.com/1579567)
-- [这几天股市为啥下滑这么大？](http://www.movie.hkepx.cn/xiju/6976513.htm)
-- [古风歌手吾恩离世](http://www.daogukj.com/rvgjqsig/)
-- [撞脸王祖贤女生去景区上班](http://www.daogukj.com/vcxumdys/)
-- [德国总统访华现场视频](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
-- [HLE抽到BLG众人反应](http://www.daogukj.com/4998351)
-- [菲军舰“跟踪”辽宁舰这场戏演给谁看](http://www.daogukj.com/puqecrgq/)
-- [阿维塔新车发布会取消，具体是咋回事？背后的原因可能是啥？](http://www.movie.hkepx.cn/movie/8856283.htm)
-- [《此弟不宜久留》](http://www.daogukj.com/mbleegev/)
-- [宜家、霸王茶姬等品牌开始试点「消费入座」，如何看待这一措施？你支持吗？](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
-- [今年全国实现生娃基本不花钱](http://www.daogukj.com/9378743)
-- [小沈阳获《披荆斩棘》总冠军](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
-- [德总统夫妇在北京人艺观看《李白》](http://www.movie.hkepx.cn/xiju/6148838.htm)
-- [新人包双层巴士和复古铛铛车接亲](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
-- [文吉儿王子璇争议事件新反转](http://www.daogukj.com/4067994)
-- [多地呼吁京东MALL返场5折活动](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
-- [李艺彤和黄婷婷关系破裂的原因是什么？](http://www.daogukj.com/0687577)
-- [付辛博 井柏然](http://www.daogukj.com/0028791)
-- [辟谣周榜｜辽宁大暴雨街道成海？假的](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
-- [郑州大学讲师陈浩垚“查无此人”](http://www.movie.hkepx.cn/xiju/7549792.htm)
-- [“攻击-21”成功起降](http://www.daogukj.com/0384955)
-- [经济日报：“速成车”标签不可乱贴](http://www.daogukj.com/yjaakhwu/)
-- [亮记闲谈-如果恐龙活着它的肉是什么味？](http://www.movie.hkepx.cn/xiju/4748578.htm)
-- [《星游记》前传电影启动，方向黑洞，目标彩虹海！](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
-- [有地方明确：12345不再接这几类诉求](http://www.daogukj.com/6760233)
-- [赵丽颖不鸣则已一鸣惊人](http://www.daogukj.com/0471626)
-- [《派游记》南京赏秋](http://www.daogukj.com/znjtiiff/)
-- [DeepSeek 居然会对用户说「我去吃饭了」「我去睡了」，为啥会出现这样的现象？](http://www.daogukj.com/dduwvxya/)
-- [英特尔股价暴跌28.58%创52年来最大日跌幅，市值蒸发近1500亿美元，怎样解读市场的反应？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
-- [日本访华代表团鞠躬谢罪](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
-- [小时候直肠子就这样讲话](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
-- [白蚁豪宅被大象拿来擦屁股，没想到擦出了一个微观水世界！](http://www.movie.hkepx.cn/movie/1344966.htm)
-- [BLG瑞士轮生死战抽到HLE](http://www.movie.hkepx.cn/movie/7886240.htm)
-- [西藏唇腭裂男童面诊完爸爸笑了](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
-- [最逆天的一节课！！](http://www.movie.hkepx.cn/xiju/5857827.htm)
-- [小小徐婚礼6米蛋糕用了80斤水果](http://www.daogukj.com/jmwlrqbo/)
-- [常态入鞘彩蛋出鞘！这剑气帅不帅吧？黑伤实际演示！影之刃零联动近战武器！](http://www.daogukj.com/7834239)
-- [我用Ai让AUDI和键盘侠打了一架](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
-- [美批准向乌出售500枚“爱国者”导弹](http://www.movie.hkepx.cn/movie/2182682.htm)
-- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](http://www.daogukj.com/5450676)
-- [CPOPwave出海长红IP——《原神》让世界认识中国游戏](http://www.movie.hkepx.cn/xiju/5833368.htm)
-- [六网协同夯实中国式现代化底座](http://www.daogukj.com/3022115)
-- [小沈阳披荆斩棘冠军](http://www.daogukj.com/9730014)
-- [一喝水，尿就多，是肾坏了吗？](http://www.daogukj.com/vgdwnerp/)
-- [主持人跑网约车被抽成破防](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
-- [英特尔美股暴跌科技股同步大跌](http://www.daogukj.com/pmvtaymm/)
+- [中国找矿获重大突破](http://www.daogukj.com/2989641)
+- [吾恩去世](http://www.play.hengshemaoyi.cn/xiju/6818721.htm)
+- [这几天股市为啥下滑这么大？](http://www.play.hengshemaoyi.cn/kongbu/7006518.htm)
+- [肖战十日终焉获金主全场鼓掌](http://www.daogukj.com/5775563)
+- [勒布伦2比1孙颖莎](http://www.daogukj.com/1579567)
+- [刘恺威与小20岁女友甜蜜互动曝光](http://www.movie.hkepx.cn/xiju/6976513.htm)
+- [李昀锐向镜头展示尚公主言尚](http://www.daogukj.com/rvgjqsig/)
+- [波兰政变](http://www.daogukj.com/vcxumdys/)
+- [月薪4000一年攒了2万4](http://www.play.hengshemaoyi.cn/kongbu/1623443.htm)
+- [接触过一些身居高位的领导，感觉到他们的情绪都很稳定，这种观察普遍成立吗？](http://www.daogukj.com/4998351)
+- [梦舟载人飞船和揽月着陆器将首次飞行](http://www.daogukj.com/puqecrgq/)
+- [意大利50多个城市爆发示威游行](http://www.movie.hkepx.cn/movie/8856283.htm)
+- [小升初还有近1年 六年级家长已坐不住](http://www.daogukj.com/mbleegev/)
+- [赵今麦状态太好了](http://www.play.hengshemaoyi.cn/xiju/5038112.htm)
+- [热度过后现在该如何评价《黑神话：悟空》这款游戏?](http://www.daogukj.com/9378743)
+- [日代表团：掘开侵华日军坟墓让其谢罪](http://www.play.hengshemaoyi.cn/kongbu/5430708.htm)
+- [“我本该命途齐天”【孙悟空＆新·与天齐】](http://www.movie.hkepx.cn/xiju/6148838.htm)
+- [小酒窝收到董璇张维伊送的小狗哭了](http://www.play.hengshemaoyi.cn/kongbu/9367617.htm)
+- [人民锐评发文驳斥「中国 AI 跑偏论」，如何看待中美在 AI 落地路径上的差异？](http://www.daogukj.com/4067994)
+- [女子因吃猪蹄住院 从170斤瘦到88斤](http://www.play.hengshemaoyi.cn/kongbu/2435932.htm)
+- [古力娜扎直播卸妆像没卸](http://www.daogukj.com/0687577)
+- [斯诺克国锦赛：丁俊晖vs萨希尔](http://www.daogukj.com/0028791)
+- [娜扎直播卸妆卸了个寂寞](http://www.play.hengshemaoyi.cn/kongbu/4991704.htm)
+- [最逆天的一节课！！](http://www.movie.hkepx.cn/xiju/7549792.htm)
+- [金饰克价年内跌了近550元](http://www.daogukj.com/0384955)
+- [【丧病中配】当2077的CV来配音《赛博朋克：边缘行者2》（第一话）](http://www.daogukj.com/yjaakhwu/)
+- [张雪机车90后专科生员工年薪五六十万，张雪对校招生直言「你们起点比他高」，现场学生真能年薪比他们高吗？](http://www.movie.hkepx.cn/xiju/4748578.htm)
+- [今年全国实现生娃基本不花钱，多地密集出台生育支持措施，涉及哪些方面？会带来哪些积极影响？](http://www.play.hengshemaoyi.cn/kongbu/7264359.htm)
+- [官方披露：将有两名中国人登陆月球](http://www.daogukj.com/6760233)
+- [小沈阳发文回应夺冠](http://www.daogukj.com/0471626)
+- [长鑫科技前三季度净利润1320亿元，营收暴增7倍多，拟最高20亿元回购股份并注销其中50%，如何解读？](http://www.daogukj.com/znjtiiff/)
+- [男子回家发现床上有两只藏马熊](http://www.daogukj.com/dduwvxya/)
+- [四千元的冰柜被「仅退款」，买家称已销毁，商家跨千里发现商品仍在使用，买卖双方各执一词，责任该如何认定？](http://www.play.hengshemaoyi.cn/kongbu/4601043.htm)
+- [【逆水寒×中国歌剧舞剧院】再见仍是初遇的惊艳，国家队跳阿初祈月舞！](http://www.play.hengshemaoyi.cn/xiju/2478624.htm)
+- [广交会亮出国货新风采](http://www.play.hengshemaoyi.cn/xiju/8455203.htm)
+- [【独家】《凡人修仙传之慕兰之战》第22集【总第198集】](http://www.movie.hkepx.cn/movie/1344966.htm)
+- [《此弟不宜久留》](http://www.movie.hkepx.cn/movie/7886240.htm)
+- [语文课文在此刻形成闭环](http://www.play.hengshemaoyi.cn/kongbu/0195135.htm)
+- [人生不只往上走，也可以往宽了过｜杨澜对话刘嘉铭](http://www.movie.hkepx.cn/xiju/5857827.htm)
+- [詹姆斯补篮杀死比赛](http://www.daogukj.com/jmwlrqbo/)
+- [如何评价理想、小米成欣旺达动力第二、第三大股东？](http://www.daogukj.com/7834239)
+- [红果短剧年营收超150亿，为什么创作者两个月11部剧只赚了9块6？](http://www.play.hengshemaoyi.cn/kongbu/7621685.htm)
+- [娜扎的素颜给了导演一点小震撼](http://www.movie.hkepx.cn/movie/2182682.htm)
+- [微博视界大会节目单](http://www.daogukj.com/5450676)
+- [如何看待网友提出「初中禁绝游戏和电子产品，培养看云发呆的爱好，长大一天吃一个白面馒头也很开心」的观点？](http://www.movie.hkepx.cn/xiju/5833368.htm)
+- [BLG 抽中 HLE，最后一轮中韩大战谁输谁回家，如何评价瑞士轮的最后一轮抽签？](http://www.daogukj.com/3022115)
+- [实在抱歉！我哥疯了 （阿晴教学篇op/ed）【28】](http://www.daogukj.com/9730014)
+- [红军破险篇 驳“放水论”](http://www.daogukj.com/vgdwnerp/)
+- [古风歌手吾恩去世](http://www.play.hengshemaoyi.cn/xiju/7354422.htm)
+- [全球最赚钱公司中国占七席](http://www.daogukj.com/pmvtaymm/)
 
 </details>
 
 ## 原始来源
 
-- [小区物业退场 谁来收拾“烂摊子”](https://www.baidu.com/s?wd=%E5%B0%8F%E5%8C%BA%E7%89%A9%E4%B8%9A%E9%80%80%E5%9C%BA+%E8%B0%81%E6%9D%A5%E6%94%B6%E6%8B%BE%E2%80%9C%E7%83%82%E6%91%8A%E5%AD%90%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [日本访华代表团鞠躬谢罪](https://www.toutiao.com/trending/7702460899273818633/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227702460899273818633%22%2C%22hot_board_impr_id%22%3A%22202610311650528C4605F5367804B1267D%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 99f813ce890040ca38d8 -->
+<!-- content-fingerprint: 243aac084dcbe8e975ba -->
