@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 大金镯子又香了
+# 接触过一些身居高位的领导，感觉到他们的情绪都很稳定，这种观察普遍成立吗？
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7429399 · 更新：2026-10-31T16:50:53+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：337 万热度 · 分类：问答 · 更新：2026-10-31T22:58:51+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“大金镯子又香了”位列第 4 位，公开热度指标为 7429399。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“接触过一些身居高位的领导，感觉到他们的情绪都很稳定，这种观察普遍成立吗？”位列第 4 位，公开热度指标为 337 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月30日，受国际油价上涨及美联储加息预期升温影响，国际金价跌至一年来新低，国内金饰价格较年内高点回落近550元/克。金价下跌激发消费投资热情，北京金店客流增长，投资金条升温；在广东深圳水贝黄金市场，婚庆黄金和生肖新品走俏，有门店销售额较上月翻番。
+来源公开摘要显示：因为工作关系，经常会接触到身居高位的领导，给自己的印象都是情绪非常稳定，真的让人敬佩，非常想知道这是普遍现象吗？他们是怎么做到的。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [微博视界大会节目单](ri-xin-yue-yi.md)
-- [卖650万捐赠房产要缴450万的税](hua-she-tian-zu.md)
-- [全球最赚钱公司中国占七席](yi-xin-yi-yi.md)
-- [金饰克价年内跌了近550元](san-xin-er-yi.md)
+- [玩具熊：模仿者的秘密，第5期，全结局](ri-xin-yue-yi.md)
+- [央视曝光：2388元的蜜丸检出镇痛药](hua-she-tian-zu.md)
+- [孙颖莎vs早田希娜](yi-xin-yi-yi.md)
+- [无锡队苏超夺冠](san-xin-er-yi.md)
 
 ## 站内推荐
 
-- [“城市更新”要更新什么](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [男子回家发现床上有两只藏马熊](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [广西男子造谣“石场死了3个”被处罚](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [BLG瑞士轮生死战抽到HLE](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [丈夫调解现场2次抢警枪 想击打妻子](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [我国首次载人登月任务乘组计划由三人组成，两人着陆月球表面，哪些细节值得关注？此次任务重点在哪？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [无锡队夺苏超冠军](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [厉娜评论区打脸来得太快](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [阿维塔新车发布会取消，具体是咋回事？背后的原因可能是啥？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [有哪些游玩《影之刃零》的小技巧与实用攻略？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [白百何被曝疑似新恋情后首露面](http://www.movie.hkepx.cn/movie/4471620.htm)
-- [金饰克价年内跌了近550元](http://www.daogukj.com/xebdfgux/)
-- [日本访华代表团鞠躬谢罪](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
-- [斯诺克国锦赛：丁俊晖vs萨希尔](http://www.movie.hkepx.cn/xiju/5621807.htm)
-- [vibe知识大赏：秦始皇—嬴政](http://www.daogukj.com/dzktieeu/)
-- [《此弟不宜久留》](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
-- [白蚁豪宅被大象拿来擦屁股，没想到擦出了一个微观水世界！](http://www.movie.hkepx.cn/movie/4977487.htm)
-- [如何看待网友提出「初中禁绝游戏和电子产品，培养看云发呆的爱好，长大一天吃一个白面馒头也很开心」的观点？](http://www.movie.hkepx.cn/xiju/7776753.htm)
-- [43岁博士辞职因书太多开了家书店](http://www.daogukj.com/0771353)
-- [官方通报村支书威胁环保博主](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
-- [月薪4000一年攒了2万4](http://www.movie.hkepx.cn/xiju/1266622.htm)
-- [微博视界大会节目单](http://www.daogukj.com/bnubczgn/)
-- [烽火地带巴克什全新阵营对抗玩法，11月5日，即刻抉择！](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
-- [人生不只往上走，也可以往宽了过｜杨澜对话刘嘉铭](http://www.movie.hkepx.cn/xiju/3833912.htm)
-- [李昀锐向镜头展示尚公主言尚](http://www.daogukj.com/qygzdgwj/)
-- [小时候直肠子就这样讲话](http://www.movie.hkepx.cn/movie/3609280.htm)
-- [接触过一些身居高位的领导，感觉到他们的情绪都很稳定，这种观察普遍成立吗？](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
-- [胃癌里最会伪装的印戒细胞癌](http://www.daogukj.com/dxagawao/)
-- [热度过后现在该如何评价《黑神话：悟空》这款游戏?](http://www.daogukj.com/qdpevqqj/)
-- [“假笑男孩”16岁了](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
-- [原歌词越正，改成小调就越阴？你熟悉的童真歌曲变成小调后哪首反差最大？](http://www.daogukj.com/tpbetyah/)
-- [“城市更新”要更新什么](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
-- [小升初还有近1年 六年级家长已坐不住](http://www.movie.hkepx.cn/xiju/3442051.htm)
-- [狐狸叼着高原大米饭路过王一博](http://www.movie.hkepx.cn/xiju/4635137.htm)
-- [江苏反思2008年高考改革](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
-- [男子回家发现床上有两只藏马熊](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
-- [【逆水寒×中国歌剧舞剧院】再见仍是初遇的惊艳，国家队跳阿初祈月舞！](http://www.daogukj.com/eqtbqajy/)
-- [护：什么叫哥单三把挂队杀了？ 什么叫我工作没了？ 售后冲进办公室见人就打！](http://www.movie.hkepx.cn/movie/5314158.htm)
-- [假如主角身边全是奸臣(大合集)一次性看完!](http://www.movie.hkepx.cn/movie/1796986.htm)
-- [日代表团：掘开侵华日军坟墓让其谢罪](http://www.daogukj.com/yldwicuv/)
-- [小沈阳披荆斩棘冠军](http://www.movie.hkepx.cn/xiju/1923731.htm)
-- [官方披露：将有两名中国人登陆月球](http://www.movie.hkepx.cn/xiju/5823393.htm)
-- [卖650万捐赠房产要缴450万的税](http://www.daogukj.com/2626307)
-- [梦舟载人飞船和揽月着陆器将首次飞行](http://www.movie.hkepx.cn/xiju/9508117.htm)
-- [“我本该命途齐天”【孙悟空＆新·与天齐】](http://www.movie.hkepx.cn/xiju/9262898.htm)
-- [最逆天的一节课！！](http://www.daogukj.com/tqdltahc/)
-- [女子因吃猪蹄住院 从170斤瘦到88斤](http://www.movie.hkepx.cn/xiju/9646924.htm)
-- [灭建国的超能力](http://www.daogukj.com/1624901)
-- [长鑫科技前三季度净利润1320亿元，营收暴增7倍多，拟最高20亿元回购股份并注销其中50%，如何解读？](http://www.movie.hkepx.cn/movie/6632805.htm)
-- [人民锐评发文驳斥「中国 AI 跑偏论」，如何看待中美在 AI 落地路径上的差异？](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
-- [网友无意中摔坏孩子的双层保温碗，发现里面满是霉菌，水都是臭的，为啥会这样？使用这种碗有啥风险？](http://www.daogukj.com/5122805)
-- [张一鸣不到30岁微博汇总](http://www.movie.hkepx.cn/movie/7942093.htm)
-- [四千元的冰柜被「仅退款」，买家称已销毁，商家跨千里发现商品仍在使用，买卖双方各执一词，责任该如何认定？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
-- [赵今麦状态太好了](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
-- [如何评价理想、小米成欣旺达动力第二、第三大股东？](http://www.daogukj.com/hdlfcclx/)
-- [肖战十日终焉获金主全场鼓掌](http://www.daogukj.com/1703206)
-- [波兰司法控制权争端升级，总理被指对宪法法院发动政变，目前局势如何？前因后果是怎样的？](http://www.daogukj.com/1803044)
-- [小沈阳发文回应夺冠](http://www.daogukj.com/3520679)
-- [广西男子造谣“石场死了3个”被处罚](http://www.movie.hkepx.cn/xiju/3318389.htm)
-- [勒布伦2比1孙颖莎](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
+- [到底是编剧的水平问题，还是投资方的问题造成现在影视作品烂?](http://www.movie.hkepx.cn/movie/4471620.htm)
+- [无锡队苏超夺冠](http://www.daogukj.com/xebdfgux/)
+- [人民日报评朱之文被“黑粉”举报](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
+- [如何看待网友提出「初中禁绝游戏和电子产品，培养看云发呆的爱好，长大一天吃一个白面馒头也很开心」的观点？](http://www.movie.hkepx.cn/xiju/5621807.htm)
+- [李乃文帮刘敏涛捡掉落的耳环](http://www.daogukj.com/dzktieeu/)
+- [伊朗最高领袖：要对敌方威胁作立即回应](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
+- [宋威龙搞砸了](http://www.movie.hkepx.cn/movie/4977487.htm)
+- [男孩想闯红灯被老人劝阻情绪失控](http://www.movie.hkepx.cn/xiju/7776753.htm)
+- [12月14日全球公测 |《白银之城》角色PV - 库拉蒂：愚者与勇者](http://www.daogukj.com/0771353)
+- [继女养老送终 亲闺女分走50万](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
+- [柯文哲点名沈伯洋不肯回答市政问题](http://www.movie.hkepx.cn/xiju/1266622.htm)
+- [玩具熊：模仿者的秘密，第5期，全结局](http://www.daogukj.com/bnubczgn/)
+- [女子花3元买彩票中1439万](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
+- [宋威龙太勤快闯祸了](http://www.movie.hkepx.cn/xiju/3833912.htm)
+- [耗资上万！我重制了网页版MC！【B站AI创造公开赛】](http://www.daogukj.com/qygzdgwj/)
+- [以钉钉子精神加强党的作风建设](http://www.movie.hkepx.cn/movie/3609280.htm)
+- [奔跑吧厉娜](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
+- [早田希娜看笔记打孙颖莎](http://www.daogukj.com/dxagawao/)
+- [纯黑《影之刃零》逆天者全程无伤一镜到底攻略解说 第一期](http://www.daogukj.com/qdpevqqj/)
+- [网友无意中摔坏孩子的双层保温碗，发现里面满是霉菌，水都是臭的，为啥会这样？使用这种碗有啥风险？](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
+- [广西男子造谣“石场死了3个”被处罚](http://www.daogukj.com/tpbetyah/)
+- [我国首次载人登月任务乘组计划由三人组成，两人着陆月球表面，哪些细节值得关注？此次任务重点在哪？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
+- [苏超哈兰德是无锡产的](http://www.movie.hkepx.cn/xiju/3442051.htm)
+- [将有两名中国人登陆月球](http://www.movie.hkepx.cn/xiju/4635137.htm)
+- [“若神不能理解我，那祂便算不上神！！”](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
+- [无锡队夺苏超冠军](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
+- [日本访华代表团鞠躬谢罪](http://www.daogukj.com/eqtbqajy/)
+- [被文吉儿霸凌当事人回应](http://www.movie.hkepx.cn/movie/5314158.htm)
+- [因吃猪蹄住院女子从170斤瘦到88斤](http://www.movie.hkepx.cn/movie/1796986.htm)
+- [江苏13城球员集体上手破除摸杯魔咒](http://www.daogukj.com/yldwicuv/)
+- [胡辣汤、泡馍这么御寒的食物，为什么没能在寒冷的东北流行起来？](http://www.movie.hkepx.cn/xiju/1923731.htm)
+- [“毛孩子”的饭碗没那么好端了](http://www.movie.hkepx.cn/xiju/5823393.htm)
+- [央视曝光：2388元的蜜丸检出镇痛药](http://www.daogukj.com/2626307)
+- [西方发达国家那种木头房子，美观成本低、寿命又长，特别是抗震性能好，为何不在我国地震带地区推广呢？](http://www.movie.hkepx.cn/xiju/9508117.htm)
+- [【萌黄一槽】川木[楔二]全技能爆料！“小小”借过一下！](http://www.movie.hkepx.cn/xiju/9262898.htm)
+- [男子自行吃壮阳保健品拖成癌症晚期](http://www.daogukj.com/tqdltahc/)
+- [今年全国实现生娃基本不花钱，多地密集出台生育支持措施，涉及哪些方面？会带来哪些积极影响？](http://www.movie.hkepx.cn/xiju/9646924.htm)
+- [官方披露勒多曼因峰4人滑坠2人遇难](http://www.daogukj.com/1624901)
+- [胃癌之王印戒细胞癌专盯年轻人](http://www.movie.hkepx.cn/movie/6632805.htm)
+- [江苏教育的最大失败是什么？](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
+- [我是草](http://www.daogukj.com/5122805)
+- [假如主角身边全是奸臣(大合集)一次性看完!](http://www.movie.hkepx.cn/movie/7942093.htm)
+- [红果短剧年营收超150亿，为什么有创作者称两个月11部剧只赚了9块6？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
+- [江苏首富夫妇身家一年暴涨1120亿](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
+- [4AM任 咚咚](http://www.daogukj.com/hdlfcclx/)
+- [【漫士】这可能是人类提出最深刻的数学/计算机问题](http://www.daogukj.com/1703206)
+- [实在抱歉！我哥疯了 （阿晴教学篇op/ed）【28】](http://www.daogukj.com/1803044)
+- [3种食物吃着不甜却会让血糖飙升](http://www.daogukj.com/3520679)
+- [厉娜评论区打脸来得太快](http://www.movie.hkepx.cn/xiju/3318389.htm)
+- [10元快剪暴打托尼 理发可以简单点](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
 
 </details>
 
 ## 原始来源
 
-- [大金镯子又香了](https://www.baidu.com/s?wd=%E5%A4%A7%E9%87%91%E9%95%AF%E5%AD%90%E5%8F%88%E9%A6%99%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [接触过一些身居高位的领导，感觉到他们的情绪都很稳定，这种观察普遍成立吗？](https://www.zhihu.com/question/2097963728851550643)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0d5f5f189b5de98e01f2 -->
+<!-- content-fingerprint: 3e97301b8128ad964942 -->
