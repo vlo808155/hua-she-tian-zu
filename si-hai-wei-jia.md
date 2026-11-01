@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何评价山东东营80后男子用枯枝搭建巨型齐天大圣走红？为什么这件私人创作能引发这么大共鸣？
+# 如何评价 2026 年 10 月小米汽车交付量超过 50000 台？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：2324 万热度 · 分类：问答 · 更新：2026-11-01T16:03:56+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：926 万热度 · 分类：问答 · 更新：2026-11-01T23:10:58+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价山东东营80后男子用枯枝搭建巨型齐天大圣走红？为什么这件私人创作能引发这么大共鸣？”位列第 1 位，公开热度指标为 2324 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价 2026 年 10 月小米汽车交付量超过 50000 台？”位列第 1 位，公开热度指标为 926 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：山东东营垦利区，淄博路与阜盛路交汇处附近，最近多了个显眼的大家伙。一尊用枯树枝搭成的巨型齐天大圣立在路边，眉眼低垂，披着蛛网状交织的枝桠，远远看去像是从荒野里长出来的。路过的市民掏出手机拍照发朋友圈，话题很快爬上了抖音热榜。80后男子用树枝造出巨型齐天大圣，为什么这件私人创作能引发这么大共鸣？ 这尊”枯枝大圣”的缔造者叫樊立杰，是个80后。 他做这件事的过程说起来不算复杂。就地取材，在周边收集枯枝，一根根固定、交错搭建。没有精细打磨的木料，也没有上漆上色，全部保留枝桠原生的粗糙质感。枯枝干硬，层层交织在一起，远远近近地勾勒出大圣的轮廓——凤翅紫金冠的翘角
+来源公开摘要显示：[图片]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [【2026全球总决赛】11月1日 HLE vs BLG](wu-gu-feng-deng.md)
-- [12万招985硕士 3000万给一个专科生](liu-shen-wu-zhu.md)
-- [金价大跌积压半年婚嫁需求集中释放](qi-shang-ba-xia.md)
-- [S16 瑞士轮 BLG 2:0 淘汰 HLE 拿下最后一张淘汰赛门票，如何评价这场比赛？](ba-mian-ling-long.md)
+- [4941抽，67塔露拉](wu-gu-feng-deng.md)
+- [爱喝茶的人赚了](liu-shen-wu-zhu.md)
+- [画地为牢](qi-shang-ba-xia.md)
+- [优质蛋白食物第一名出炉](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- ["从今天起，无论系统是否崩溃，我都不会按下Ctrl+C"【AI全民制作人】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [世界最最最烂活](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [张雪：老板独坐头等舱很low](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [做完胃镜没问题 一个月后胃癌晚期](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [车企10月份销量数据](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [怎么看百度搜索降价千次4.9元，这是针对 DeepSeek 搜索的千次 5 元吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [张雪称最怕遇到 「玻璃心」年轻人，遇到挫折是100%的，要有接受挫折的勇气，年轻人抗压能力变差了吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [男子每天吃海参 肿瘤指标翻了500倍](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [Token首次摆上双十一货架](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [央行证监会将研究支持资本市场工具](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [今起入户调查 请积极配合](http://www.daogukj.com/7394302)
-- [“纯过日子”的年轻人赢了](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [人民日报评朱之文被“黑粉”举报](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- ["从今天起，无论系统是否崩溃，我都不会按下Ctrl+C"【AI全民制作人】](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [S16 八强赛抽签结果：BLG 将战 DK，iG 内战 TES，如何评价今年的八强赛对阵？](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [五中全会决定全文](http://www.daogukj.com/thgdlrxk/)
-- [如何评价开拓者 22 分大胜爵士杨瀚森的精彩表现，以及主教练诺里对他的高度表扬和肯定？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [一套房650万要缴450万的税](http://www.daogukj.com/qqvbmaen/)
-- [网红九哥余杰肝癌离世](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [金价大跌积压半年婚嫁需求集中释放](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [中期选举对特朗普真的重要么？](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [李一桐 闪身步嫡传弟子](http://www.daogukj.com/6313812)
-- [筋角弓制作](http://www.daogukj.com/wczbkkvt/)
-- [MSI 冠军 HLE 爆冷于 S16 瑞士轮出局止步十六强，如何评价他们在本届赛事的表现？他们输在哪？](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [2027年春节有望连休9天](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [坚持服务党的使命任务](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [55岁以后喝水要多注意4件事](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [【2026全球总决赛】11月1日 HLE vs BLG](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [法国爆发第三轮抗议活动，抗议人数从55万降至32万，是意味着这轮社会抗议正在降温吗？抗议还会持续多久？](http://www.daogukj.com/jjlkzcvz/)
-- [谢霆锋演唱会上被扔荧光棒](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [肖战从业以来尺度最大的一场戏](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [成都姑娘生日当天广汉三星堆半马夺冠](http://www.daogukj.com/drcaefzl/)
-- [四川华蓥大摆荡致1名16岁游客死亡调查报告公布，2名责任人已移送司法机关处理，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [玩具熊：模仿者的秘密，第5期，全结局](http://www.daogukj.com/rrxeunix/)
-- [乌鲁木齐辟谣“禁售马肉马肠制品”](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [Xun开团Homme](http://www.daogukj.com/qekijaaa/)
-- [胡歌参加女儿幼儿园拔河比赛](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [卖650万捐赠房产要缴450万的税，夫妻遗赠毕生积蓄救人，接收遗产的基金会却被吓退，问题出在哪？](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [美国中期选举大斗法](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [后会友期正片删除文吉儿一句话](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [灭霸跑早操时鞋被踩掉了](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [侯卓成杨汝晴官宣分手](http://www.daogukj.com/4880877)
-- [如何评价Deepseek Harness发布的super-agent构想？](http://www.daogukj.com/gyblgzpw/)
-- [AI短剧为何放弃清宫戏](http://www.daogukj.com/3742193)
-- [国家公务员局发布郑重提醒](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [《动物声卡驱动异常》](http://www.daogukj.com/yhmvbvtt/)
-- [胡歌参加女儿亲子活动](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [史上最大IPO真要来了么](http://www.daogukj.com/4405323)
-- [张雪：老板独坐头等舱很low](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [鹿晗现身五哈嘉年华演出](http://www.daogukj.com/ydbbqbuc/)
-- [赴日本求职的中国年轻人怎么样了](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [白衣山猫回应被小城良方告](http://www.daogukj.com/5927597)
-- [“国羽一哥”石宇奇今日低调大婚](http://www.daogukj.com/3691526)
-- [央视曝光2388元蜜丸成本仅40元](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [成人感染幽门螺杆菌很难自愈](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [“没走错过1万人 设计不出这指示牌”](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [如何评价 2026 年 10 月小米汽车交付量超过 50000 台？](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [锐评S16 BLG战胜HLE晋级淘汰赛：压抑到极致的瞬间燃爆！](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [如何看待特朗普再称台湾为「芯片小偷」，台湾地区外事发言人回应「他这是挫折和羡慕我们」？](http://www.daogukj.com/9555051)
-- [早田希娜否认孙颖莎发球擦网](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [中俄“过江神器”再现界江](http://www.daogukj.com/7394302)
+- [【独家】牧神记 第107集 上苍](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [喜欢吃烤红薯的人天塌了](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [怎么看百度搜索降价千次4.9元，这是针对 DeepSeek 搜索的千次 5 元吗？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [外媒称《影之刃零》后期难度太低甚至初见杀最终 Boss，如何评价该难度设计？](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [乌鲁木齐辟谣“禁售马肉马肠制品”](http://www.daogukj.com/thgdlrxk/)
+- [三连冠选手 Gumayusi 生涯首次无缘 S 赛八强，如何评价他本届赛事的表现？](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [31省份居民消费榜：谁最能花钱](http://www.daogukj.com/qqvbmaen/)
+- [曝王子璇录制结束抱着经纪人流泪](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [画地为牢](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [如何评价懂车帝MPV爬坡测试视频？](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [全球笑点下降2000倍而我不变【第二集】](http://www.daogukj.com/6313812)
+- [BLG终于晋级，HLE开启疯狂水世界，淘汰赛抽签锐评【火兰吐槽】](http://www.daogukj.com/wczbkkvt/)
+- [Anthropic 账面亏损 807 亿美元却冲刺 2 万亿IPO，背后的原因是什么？](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [孙颖莎摔倒](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [进博会把全球美食都搬来了](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [大叔疑因车停机动车道被欺负](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [4941抽，67塔露拉](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [一条红色预警 9名公职人员被查](http://www.daogukj.com/jjlkzcvz/)
+- [大衣哥被举报风波后首场线下演出](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [杨幂也在看后会友期](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [女性在这两个年龄或会断崖式衰老](http://www.daogukj.com/drcaefzl/)
+- [日本将用水下无人机监视邻国](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [[ONHWA] 吃生肝的九尾狐](http://www.daogukj.com/rrxeunix/)
+- [刘亦菲压轴](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [孙颖莎4比3王艺迪晋级决赛](http://www.daogukj.com/qekijaaa/)
+- [1944滇缅竹林：远征军教盟军吃虎皮笋，油手把风笛吹成妖笛【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [永葆生机活力 走好新的赶考之路](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [《三角洲行动》新干员故事短片：维罗妮卡·卡尔多佐—代号野火](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [女子买2套房打通后喜提环形跑道](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [如何评价山东东营80后男子用枯枝搭建巨型齐天大圣走红？为什么这件私人创作能引发这么大共鸣？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [网传员工解决难题后全组被裁](http://www.daogukj.com/4880877)
+- [如何评价比亚迪 10 月新能源汽车销量 49.02 万辆，海外销量翻倍？横向对比这一销量属于什么水平？](http://www.daogukj.com/gyblgzpw/)
+- [35岁保时捷女销售登顶全国销冠](http://www.daogukj.com/3742193)
+- [选一条路，决定你接下来的旅途](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [奥特曼称 OpenAI 内部新模型让他兴奋到两晚没睡，这意味着什么？](http://www.daogukj.com/yhmvbvtt/)
+- [为什么市面上猪尾巴越来越少见了](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [【果然三角洲9】得众乐乐啊](http://www.daogukj.com/4405323)
+- [男子每天吃海参 肿瘤指标翻了500倍](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [2名航天员登上月球难度有多大](http://www.daogukj.com/ydbbqbuc/)
+- [全运会“最美女记者”刘琰官宣离职](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [刘亦菲婚纱造型好像新娘子](http://www.daogukj.com/5927597)
+- [筋角弓制作](http://www.daogukj.com/3691526)
+- [央行将开股票回购增持再贷款座谈会](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [明年春节可连休9天](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [老法师把自己当馒头蒸，结果蒸成了中微子](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [国防部批驳抹黑中国日剧](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [江苏多地物业引入巡逻机器人「一台抵 5 个保安」，这会成为未来趋势吗？](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [10月车市冰火两重天](http://www.daogukj.com/9555051)
+- [井迪在高铁上跟吵闹乘客干架](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价山东东营80后男子用枯枝搭建巨型齐天大圣走红？为什么这件私人创作能引发这么大共鸣？](https://www.zhihu.com/question/2098799350503699522)
+- [如何评价 2026 年 10 月小米汽车交付量超过 50000 台？](https://www.zhihu.com/question/2100160196362384887)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6034bc1b1cf6d31356d9 -->
+<!-- content-fingerprint: f94673616fc095d30111 -->
