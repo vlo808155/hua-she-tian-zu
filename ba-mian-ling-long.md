@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 我请客的饭局席间一人感谢主赐他日用的饮食，我开玩笑说那这顿我不买单了，他为何会生气？
+# 抖音副总裁李亮发文称「我真心认为秦朔不是蠢就是坏」，如何看待双方观点及指控？
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：704 万热度 · 分类：问答 · 更新：2026-11-05T01:59:06+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：136 万热度 · 分类：问答 · 更新：2026-11-05T07:34:16+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“我请客的饭局席间一人感谢主赐他日用的饮食，我开玩笑说那这顿我不买单了，他为何会生气？”位列第 2 位，公开热度指标为 704 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“抖音副总裁李亮发文称「我真心认为秦朔不是蠢就是坏」，如何看待双方观点及指控？”位列第 2 位，公开热度指标为 136 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：之前去江南某地出差顺便会会朋友，我请客吃饭，朋友带了其它这些人，一切都还好，只有一事，就是上完菜后一个人就开始祈祷，就是感谢主赐予他日用的饮食吧啦吧啦那些，一群人不说话等着他施法完毕。我见有点冷场就开玩笑说我不敢跟主抢买卖，你的单我就不买了，大概是这样的意思吧。大伙都打哈哈，但是我感觉他生气了，我看他那副德行也有点不满，我请客你不感谢我。 他应该生气吗？我应该生气吗？
+来源公开摘要显示：原文如下： 我与秦朔的争论，本想到此为止，但看到著名大v胡锡进对我的批评，微博还推了热搜，微信里面更是铺天盖地精准推送攻击我的文章，我觉得还是有必要说清楚。 我说秦朔不是坏就是蠢，是我真心的认为。 说他坏，因为他关于“字节时间”的定性，非常险恶。作为几十年的行业观察者，他当然知道用日本野村报告来定性中国互联网的局势，得出的结论肯定“不严谨”“不周全”，但为什么不愿意改？8年前，微信依靠微信垄断地位，禁止抖音分享，双方诉讼至今仍无结果。秦朔“字节时间”，无疑将腾讯从痛苦挣扎几十年的“垄断”中解套，并将字节摁在“可能垄断”的叙事中，攻守易位，我想如果这个定位
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [【只对你有感觉】|“【恋爱の小曲】”](jiu-niu-yi-mao.md)
+- [《崩坏：星穹铁道》即兴巡演PV——「当阿哈来敲门」](jiu-niu-yi-mao.md)
 - [中国智能经济新形态加速崛起](shi-quan-shi-mei.md)
 - [方浩明以亲身经历感知中国](bai-fa-bai-zhong.md)
 - [新技术、新成果亮相互联网之光博览会](qian-jun-wan-ma.md)
 
 ## 站内推荐
 
-- [《英雄联盟》S16 首场八强赛决胜局遭遇超长暂停，现场发生了什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [如果军长已经坚决下达了必须执行的命令，而旅长坚定认为命令是错的，一定会导致战役的失败，那怎么办？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
 - [儿子沉迷看电视，爸爸「魔改」电视系统，看 10 分钟抽查一道题，这招怎么样？对孩子管用吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
 - [男子转情人2575万，情人回转2258万，妻子要求返全款，法院判还317万元差额，如何从法律角度解读？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [iPhone Duo 开售一周行情遇冷，业内调侃「一个成功的黄牛起码亏十几万」，背后的核心原因是什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [何洁在《后会友期》中直言「05 超女前三她都不爽」，她们之间发生了什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [「直接获得100万」和「每获得1元，你将额外获得100元（因此而获得的不算）」，你选哪个？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [你现在正读的是什么书？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [河南一地免费挖荠菜爆火](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
+- [“我的富商男友竟是电诈嫌犯”](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
 - [巴彦淖尔一医院大楼起火图系AI生成](http://www.daogukj.com/ugtzcfro/)
-- [央视曝光新型兼职骗局](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
-- [上汽奥迪因发布「AUDI 全系买一赠一」文案实为赠车模被立案调查，这种营销方式可能会面临哪些处罚？](http://www.daogukj.com/vcakiegu/)
-- [团伙售卖3000余名艺人网红隐私信息](http://www.movie.hkepx.cn/xiju/3609316.htm)
+- [大额存单密集重启！多家银行已售罄](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
+- [TES 用复出归来的 Jackeylove 换掉 JiaQi 是不是 2026 年最大的败笔？](http://www.daogukj.com/vcakiegu/)
+- [沃尔沃XC70落地不到20万](http://www.movie.hkepx.cn/xiju/3609316.htm)
 - [2026年11月4日A股超4600只个股飘红，三大指数集体大涨，科创50暴涨近10%，怎样解读？](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
-- [《英雄联盟》S16 首场八强赛决胜局遭遇超长暂停，现场发生了什么？](http://www.daogukj.com/0764598)
-- [易烊千玺方辟谣恋情传闻](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
-- [女子在胖东来洗手间洗头引热议](http://www.daogukj.com/4164218)
-- [苹果宣布国行 Apple 智能接入阿里通义千问，为何选择与阿里合作？](http://www.daogukj.com/8982602)
-- [“我的富商男友竟是电诈嫌犯”](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
-- [阿曼为何把航天大单交给中国](http://www.movie.hkepx.cn/xiju/4720013.htm)
+- [如果军长已经坚决下达了必须执行的命令，而旅长坚定认为命令是错的，一定会导致战役的失败，那怎么办？](http://www.daogukj.com/0764598)
+- [后会友期排期好崩溃](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
+- [AI短剧《持械入宋》为何火了](http://www.daogukj.com/4164218)
+- [有好吃的美食推荐一下给我吗?](http://www.daogukj.com/8982602)
+- [河南奶奶用废品做墩墩卖到美国](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
+- [常冰玉6-3战胜赵心童晋级四强](http://www.movie.hkepx.cn/xiju/4720013.htm)
 - [中国智能经济新形态加速崛起](http://www.daogukj.com/zaulbsuv/)
-- [如何评价王小利、赵本山电视剧《走马上任》？](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
-- [机器狗泰山运货步履蹒跚](http://www.daogukj.com/gbkfzcnu/)
-- [韩网吐槽没有年轻人演了吗](http://www.movie.hkepx.cn/movie/7973247.htm)
-- [嫁金钗忘删AI水印了](http://www.daogukj.com/bdilzxjd/)
-- [沃尔沃XC70落地不到20万](http://www.movie.hkepx.cn/xiju/6416942.htm)
-- [《三角洲行动》全新【微光】赛季故事短片](http://www.daogukj.com/rioupnlf/)
+- [《圣斗士星矢》中雅典娜为什么敢只身闯极乐净土？](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
+- [“花坛藏尸案”将于本月10日一审宣判](http://www.daogukj.com/gbkfzcnu/)
+- [曝厉娜的商务价格](http://www.movie.hkepx.cn/movie/7973247.htm)
+- [上岸第一件先娶意中人](http://www.daogukj.com/bdilzxjd/)
+- [王毅把话说到不可容忍 菲方听懂了吗](http://www.movie.hkepx.cn/xiju/6416942.htm)
+- [【时代少年团】系列纪录片《光辉岁月》——“小永远”](http://www.daogukj.com/rioupnlf/)
 - [儿子沉迷看电视，爸爸「魔改」电视系统，看 10 分钟抽查一道题，这招怎么样？对孩子管用吗？](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
-- [豆包用户数被红果超越，这说明了什么？普通人对 AI 的真实需求被高估了吗？](http://www.daogukj.com/4038825)
-- [AI短剧《持械入宋》为何火了](http://www.movie.hkepx.cn/xiju/1465121.htm)
+- [人类还需要多长时间把石油挖完？](http://www.daogukj.com/4038825)
+- [贝林厄姆：欧冠客场拿分很重要](http://www.movie.hkepx.cn/xiju/1465121.htm)
 - [郭士强 中国男篮](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
-- [宝马预计汽车利润率逼近零](http://www.movie.hkepx.cn/movie/3433204.htm)
-- [乌萨奇修仙传·极](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
+- [糖友冬天别乱泡脚 小心糖尿病足](http://www.movie.hkepx.cn/movie/3433204.htm)
+- [【返场】乐高车过障碍物](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
 - [男子转情人2575万，情人回转2258万，妻子要求返全款，法院判还317万元差额，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/2806122.htm)
-- [河南奶奶用废品做墩墩卖到美国](http://www.movie.hkepx.cn/xiju/8259656.htm)
-- [鸡蛋不能放在同一个袜子里](http://www.daogukj.com/1174569)
+- [杨议演出时骂观众 当地文旅仍在核查](http://www.movie.hkepx.cn/xiju/8259656.htm)
+- [蓝潮来袭：民主党参众、州选横扫，懂王进入跛脚鸭时间](http://www.daogukj.com/1174569)
 - [方浩明以亲身经历感知中国](http://www.movie.hkepx.cn/movie/6697492.htm)
-- [优质蛋白排行榜出炉](http://www.movie.hkepx.cn/xiju/5943289.htm)
-- [屋里味太大](http://www.movie.hkepx.cn/movie/8569024.htm)
-- [网 恋 VS 奔 现](http://www.daogukj.com/pftujnfw/)
-- [攻击-21为何能拿下全球第一](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
-- [高市早苗面见日本天皇姿势被批丢人](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
-- [许飞看到之后不得迷死啊](http://www.movie.hkepx.cn/movie/7912436.htm)
-- [比亚迪股价何时能重回上涨通道](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
-- [捷达M6能当出租车大王吗](http://www.daogukj.com/acaxfgrw/)
-- [“社恐”到这种程度 可能是生病了](http://www.movie.hkepx.cn/xiju/9771788.htm)
+- [51岁阿姨参加健美比赛 体脂率12%](http://www.movie.hkepx.cn/xiju/5943289.htm)
+- [《今日得吃朱古力》](http://www.movie.hkepx.cn/movie/8569024.htm)
+- [花20万卢比买顶级高蛋白营养餐，老板急了](http://www.daogukj.com/pftujnfw/)
+- [女子做大拉皮手术毁容自嘲像外星人](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
+- [陈建平教授逝世享年63岁](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
+- [张萌真的是一个很有眼光的妙人](http://www.movie.hkepx.cn/movie/7912436.htm)
+- [日本尼日利亚会师U17女足世界杯决赛](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
+- [温瑞博3比0战胜安宰贤](http://www.daogukj.com/acaxfgrw/)
+- [“如果这钱能提出来 我警察不当了”](http://www.movie.hkepx.cn/xiju/9771788.htm)
 - [红果超越豆包](http://www.daogukj.com/8766336)
-- [《崩坏：星穹铁道》即兴巡演PV——「当阿哈来敲门」](http://www.movie.hkepx.cn/movie/9431364.htm)
+- [挑战在岛上开发一个荒岛生存游戏！](http://www.movie.hkepx.cn/movie/9431364.htm)
 - [中方回应“如何看待美国中期选举”](http://www.movie.hkepx.cn/xiju/8826039.htm)
 - [女儿初潮弄脏沙发爸爸送花安慰](http://www.daogukj.com/8892908)
-- [刘亦菲曾轶可入选破冰名单](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
-- [烧伤男生ICU对口型说我不治了](http://www.movie.hkepx.cn/movie/0328456.htm)
+- [肖战戴上红围巾咋和豆包似的](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
+- [三甲医生暗示三乙是其分院](http://www.movie.hkepx.cn/movie/0328456.htm)
 - [杨坤自曝患抑郁症20年](http://www.daogukj.com/8247088)
-- [懒人不开火速成大餐，虾滑肥牛乌冬面！](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
+- [阿黄有房了【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
 - [气象部门辟谣多地气温-32℃](http://www.daogukj.com/8583894)
-- [陕西教育厅通报“延安大学教师离世”](http://www.daogukj.com/5838795)
+- [高市早苗面见日本天皇姿势被批丢人](http://www.daogukj.com/5838795)
 - [美股](http://www.daogukj.com/mrhwajew/)
-- [《这是我儿子？》](http://www.movie.hkepx.cn/movie/8871014.htm)
+- [AIGC 月光鱼屋丨第三集 汆白肉](http://www.movie.hkepx.cn/movie/8871014.htm)
 
 </details>
 
 ## 原始来源
 
-- [我请客的饭局席间一人感谢主赐他日用的饮食，我开玩笑说那这顿我不买单了，他为何会生气？](https://www.zhihu.com/question/406887759)
+- [抖音副总裁李亮发文称「我真心认为秦朔不是蠢就是坏」，如何看待双方观点及指控？](https://www.zhihu.com/question/2101258456724402498)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 82bcf850a8ba2820d46e -->
+<!-- content-fingerprint: 43973f22ac59d72fe75c -->
