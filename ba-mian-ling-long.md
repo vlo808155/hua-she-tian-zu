@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 为什么字节跳动如此害怕「字节时间」？
+# 钱德勒·帕森斯吐槽中国品牌球鞋「给钱多，但鞋太烂，我受伤绝对跟这有关系」，这算实话实说，还是吃饭砸锅？
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：562 万热度 · 分类：问答 · 更新：2026-11-05T11:44:30+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：950 万热度 · 分类：问答 · 更新：2026-11-05T19:41:45+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么字节跳动如此害怕「字节时间」？”位列第 2 位，公开热度指标为 562 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“钱德勒·帕森斯吐槽中国品牌球鞋「给钱多，但鞋太烂，我受伤绝对跟这有关系」，这算实话实说，还是吃饭砸锅？”位列第 2 位，公开热度指标为 950 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：围绕秦朔掀起的“字节时间”公共争论仍未停息。著名大V 胡锡进发文，批评抖音集团副总裁李亮“很失大公司风度”。11月4日，李亮再度发文，回应知名自媒体人秦朔和胡锡进。 抖音集团副总裁李亮表示，原本他和秦朔的争论打算到此为止，但看到胡锡进对自己的批评登上热搜，同时微信内大量推送攻击自己的文章之后，他认为有必要把想法说清楚。 李亮称，秦朔关于“字节时间”的定性，非常险恶。“作为几十年的行业观察者，他当然知道用日本野村报告来定性中国互联网的局势，得出的结论肯定‘不严谨’‘不周全’，但为什么不愿意改？8年前，微信依靠微信垄断地位，禁止抖音分享，双方诉讼至今仍无结果
+来源公开摘要显示：[视频]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [阿黄有房了【AI全民制作人】](jiu-niu-yi-mao.md)
-- [透过丰收景象看到“三个一”](shi-quan-shi-mei.md)
-- [第九届进博会亮点扎堆](bai-fa-bai-zhong.md)
-- [历史昭示未来 奋斗成就伟业](qian-jun-wan-ma.md)
+- [瞎说的什么玩意？](jiu-niu-yi-mao.md)
+- [乌镇6G首秀](shi-quan-shi-mei.md)
+- [100秒解锁进博会亮点](bai-fa-bai-zhong.md)
+- [以开源开放之姿 奔赴美好数智未来](qian-jun-wan-ma.md)
 
 ## 站内推荐
 
-- [S16淘汰赛GEN 3:0 击败 LYON进入四强，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [巴菲特称已 48 年不喝水只喝可乐，是真的吗？健康吗？如何从医学角度看待这一饮食习惯？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [特朗普宣布将停止每年约 40 亿美元对以色列援助，背后原因是什么？将对美以关系和中东局势产生什么影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [我找到了本世纪最上头的渣男之歌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [百人寂静村大混战，这才是真·多人生化！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [《崩坏：星穹铁道》阿哈的抓马小曲](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [缅甸水牢虐待中国公民细节曝光](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [厉娜的戒指是许飞红色塑料凳](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [印部长宣称中国不给盾构机就自己造](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [谁把高校教师逼成了“业务员”](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
-- [女子编造停车场惊魂视频被拘](http://www.daogukj.com/ugtzcfro/)
-- [Ruler谈iG](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
-- [两把速通双信物！跟全图人机交朋友的来！](http://www.daogukj.com/vcakiegu/)
-- [大衣哥说要和黑粉硬刚到底](http://www.movie.hkepx.cn/xiju/3609316.htm)
-- [钱德勒·帕森斯吐槽中国品牌球鞋「给钱多，但鞋太烂，我受伤绝对跟这有关系」，这算实话实说，还是吃饭砸锅？](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
-- [S16淘汰赛GEN 3:0 击败 LYON进入四强，如何评价这场比赛？](http://www.daogukj.com/0764598)
-- [詹姆斯13分10板8助](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
-- [大衣哥朱之文谈当爷爷感受](http://www.daogukj.com/4164218)
-- [【红魔12 Pro+ 评测】双环流转揽疏月，九曲乘风缚苍龙？](http://www.daogukj.com/8982602)
-- [许飞只是来告别](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
-- [如何评价 DeepSeek 工程师高熙说的「AI竞赛中，真正的对手不是其他大模型公司，而是时间」？](http://www.movie.hkepx.cn/xiju/4720013.htm)
-- [透过丰收景象看到“三个一”](http://www.daogukj.com/zaulbsuv/)
-- [蓝潮来袭：民主党参众、州选横扫，懂王进入跛脚鸭时间](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
-- [创业板指、深成指半日均涨超1%](http://www.daogukj.com/gbkfzcnu/)
-- [Chovy不同意了](http://www.movie.hkepx.cn/movie/7973247.htm)
-- [陕西重大刑案嫌疑人弃车疑逃入山林](http://www.daogukj.com/bdilzxjd/)
-- [专家：福建舰入列一周年战力狂飙](http://www.movie.hkepx.cn/xiju/6416942.htm)
-- [爸爸因晚接孩子道歉 孩子懂事回应](http://www.daogukj.com/rioupnlf/)
-- [巴菲特称已 48 年不喝水只喝可乐，是真的吗？健康吗？如何从医学角度看待这一饮食习惯？](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
-- [小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？](http://www.daogukj.com/4038825)
-- [偷拍设备卖家称可改装成日常用品](http://www.movie.hkepx.cn/xiju/1465121.htm)
-- [小城良方的大结局是真实的人生](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
-- [丞磊被问理想型就差把名字说出来了](http://www.movie.hkepx.cn/movie/3433204.htm)
-- [《崩坏：星穹铁道》即兴巡演PV——「当阿哈来敲门」](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
-- [特朗普宣布将停止每年约 40 亿美元对以色列援助，背后原因是什么？将对美以关系和中东局势产生什么影响？](http://www.movie.hkepx.cn/movie/2806122.htm)
-- [厉娜回应商务争议](http://www.movie.hkepx.cn/xiju/8259656.htm)
-- [“结婚录像迎来了它真正的观众”](http://www.daogukj.com/1174569)
-- [第九届进博会亮点扎堆](http://www.movie.hkepx.cn/movie/6697492.htm)
-- [高市早苗曾嫌弃特朗普周边档次低](http://www.movie.hkepx.cn/xiju/5943289.htm)
-- [【只对你有感觉】|“【恋爱の小曲】”](http://www.movie.hkepx.cn/movie/8569024.htm)
-- [沃尔沃XC70落地不到20万](http://www.daogukj.com/pftujnfw/)
-- [华为Mate 90系列成主播新主力](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
-- [男子花光积蓄买7斤黄金亏了114万](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
-- [金价](http://www.movie.hkepx.cn/movie/7912436.htm)
-- [王毅把话说到不可容忍 菲方听懂了吗](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
-- [如果要在《西游记》的猪八戒、孙悟空、唐僧和沙和尚四人组中选一位当领导，你愿意跟随谁？为啥？](http://www.daogukj.com/acaxfgrw/)
-- [无论走到哪都被精准跟踪 原因竟是它](http://www.movie.hkepx.cn/xiju/9771788.htm)
-- [地铁都修到1000公里了为何还那么挤](http://www.daogukj.com/8766336)
-- [不看电视不接电话的中国人](http://www.movie.hkepx.cn/movie/9431364.htm)
-- [唐嫣当选上海浦东文联副主席](http://www.movie.hkepx.cn/xiju/8826039.htm)
-- [厉娜三个前任都防着许飞](http://www.daogukj.com/8892908)
-- [女子差点把9万元交给“理财大师”](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
-- [76人力克活塞 布朗30分](http://www.movie.hkepx.cn/movie/0328456.htm)
-- [章子怡一袭蓝色长裙惊艳四方](http://www.daogukj.com/8247088)
-- [《今日得吃朱古力》](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
-- [征信修复这些误区要注意](http://www.daogukj.com/8583894)
-- [小心睡前这个习惯 严重可致盲](http://www.daogukj.com/5838795)
-- [NBA本赛季哪个球队更有冠军相](http://www.daogukj.com/mrhwajew/)
-- [《这是我儿子？》](http://www.movie.hkepx.cn/movie/8871014.htm)
+- [「AI教父」辛顿警告，今明两年就有可能发生人工智能领域的切尔诺贝利事故，可能是什么情况？存在哪些隐患？](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
+- [物理意义上烫烫的一集](http://www.daogukj.com/ugtzcfro/)
+- [独生子女不一定能继承父母全部遗产](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
+- [张子萱拍穿搭视频陈赫忍不住抱她](http://www.daogukj.com/vcakiegu/)
+- [C罗：到了该交还7号球衣的时候了](http://www.movie.hkepx.cn/xiju/3609316.htm)
+- [《今日得吃朱古力》](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
+- [小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？](http://www.daogukj.com/0764598)
+- [【極言極语 vol.55】極人好声音舞台 你会为谁转身](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
+- [小车停国道观景台近半年 车主回应](http://www.daogukj.com/4164218)
+- [AI短剧持械入宋剧情太牛](http://www.daogukj.com/8982602)
+- [如何看待华为擎云 HM650系列实现 100%产品元器件国产化率，首款鸿蒙台式机对政企市场意味着什么？](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
+- [恭喜洗袜子不翻面的人](http://www.movie.hkepx.cn/xiju/4720013.htm)
+- [乌镇6G首秀](http://www.daogukj.com/zaulbsuv/)
+- [张萌觉得马天宇认为她是老板娘](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
+- [患者被三甲医院医生推荐去三乙医院，花费2万多元又被告知治不了只退四千元，这是什么套路？暴露出什么问题？](http://www.daogukj.com/gbkfzcnu/)
+- [2027年没有超长工作周](http://www.movie.hkepx.cn/movie/7973247.htm)
+- [2027放假安排公布](http://www.daogukj.com/bdilzxjd/)
+- [《潜伏》里面的翠平浑身都是破绽，为啥没人怀疑呢？](http://www.movie.hkepx.cn/xiju/6416942.htm)
+- [胡塞“狮子大开口”](http://www.daogukj.com/rioupnlf/)
+- [《崩坏：星穹铁道》阿哈的抓马小曲](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
+- [巴菲特称已 48 年不喝水只喝可乐，是真的吗？健康吗？如何从医学角度看待这一饮食习惯？](http://www.daogukj.com/4038825)
+- [为什么字节跳动如此害怕「字节时间」？](http://www.movie.hkepx.cn/xiju/1465121.htm)
+- [华为发布首款鸿蒙台式机](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
+- [如何评价《崩坏：星穹铁道》即兴巡演PV——「当阿哈来敲门」？](http://www.movie.hkepx.cn/movie/3433204.htm)
+- [黑龙江发放1亿元冰雪消费券](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
+- [缅甸水牢虐待中国公民细节曝光](http://www.movie.hkepx.cn/movie/2806122.htm)
+- [詹俊谈C罗葡萄牙国家队退役](http://www.movie.hkepx.cn/xiju/8259656.htm)
+- [孙中山后人：传承天下为公精神](http://www.daogukj.com/1174569)
+- [100秒解锁进博会亮点](http://www.movie.hkepx.cn/movie/6697492.htm)
+- [曝华晨宝马裁员约 1800 人，赔偿 n+5，这是真的吗？为什么现在裁员？](http://www.movie.hkepx.cn/xiju/5943289.htm)
+- [许飞脚踹厉娜](http://www.movie.hkepx.cn/movie/8569024.htm)
+- [A股后续如何走](http://www.daogukj.com/pftujnfw/)
+- [为什么说学术圈性价比在下降？](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
+- [古人头皮痒了，为什么宁可拿篦子刮，也不烧水洗头？](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
+- [C罗从国家队退役](http://www.movie.hkepx.cn/movie/7912436.htm)
+- [C罗官宣从葡萄牙国家队正式退役，如何评价此事，他为何会选择在此时退役？](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
+- [小学招跟岗教师 无薪资不包食宿](http://www.daogukj.com/acaxfgrw/)
+- [大屏手机卷土重来](http://www.movie.hkepx.cn/xiju/9771788.htm)
+- [C罗宣布从葡萄牙国家队退役](http://www.daogukj.com/8766336)
+- [藿香、薏米、枸杞纷纷装进饮料瓶](http://www.movie.hkepx.cn/movie/9431364.htm)
+- [王子璇把三万块钱转回给文吉儿，称「我现在做这件事就是我不想跟你做朋友了」，怎样看待她的选择？](http://www.movie.hkepx.cn/xiju/8826039.htm)
+- [特朗普宣布将停止每年约 40 亿美元对以色列援助，背后原因是什么？将对美以关系和中东局势产生什么影响？](http://www.daogukj.com/8892908)
+- [BLG VLOG | 超长蛋挞？超长瑞士轮！](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
+- [你不会觉得这是人吧？](http://www.movie.hkepx.cn/movie/0328456.htm)
+- [“全国人民都知道你把女友生日忘了”](http://www.daogukj.com/8247088)
+- [中国足协公布多份处罚决定](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
+- [王子璇光是这一段话就秒了作家文吉儿](http://www.daogukj.com/8583894)
+- [你对禁止电动自行车加装挡风被怎么看？](http://www.daogukj.com/5838795)
+- [【原神一条龙全收集】至冬7.2(成就数232/冰神瞳90/摩拉69/影生翼滴15)新基捷城+如翼之峰/宝箱/摩拉堆/玉帛/冰之印/原神7.2一条龙](http://www.daogukj.com/mrhwajew/)
+- [《三角洲行动》全新【微光】赛季故事短片](http://www.movie.hkepx.cn/movie/8871014.htm)
 
 </details>
 
 ## 原始来源
 
-- [为什么字节跳动如此害怕「字节时间」？](https://www.zhihu.com/question/2100649711723963421)
+- [钱德勒·帕森斯吐槽中国品牌球鞋「给钱多，但鞋太烂，我受伤绝对跟这有关系」，这算实话实说，还是吃饭砸锅？](https://www.zhihu.com/question/2101352581674919157)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 407e5f0a69c143fbe480 -->
+<!-- content-fingerprint: eaca9cadf251e3f97051 -->
