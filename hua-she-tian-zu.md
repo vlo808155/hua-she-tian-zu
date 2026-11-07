@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 一双“电动鞋”售价7999元
+# 戴2499元指环不易被推倒？企业回应
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7807847 · 更新：2026-11-07T04:49:13+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7808365 · 更新：2026-11-07T08:31:22+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“一双“电动鞋”售价7999元”位列第 1 位，公开热度指标为 7807847。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“戴2499元指环不易被推倒？企业回应”位列第 1 位，公开热度指标为 7808365。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月6日，瞬动科技项目经理回应记者对“电动鞋”售价7999元比电动车还贵的质疑。其表示，电动车虽仅三四千但不能带上地铁和飞机，而该鞋可带着上地铁、直接穿着上飞机，对通勤比较方便。
+来源公开摘要显示：近日，在某展会上，一款智能指环走红，人戴上后不容易被推倒，指环售价2499元，不少网友质疑其没有科学依据。11月6日，企业回应：将请院士级科学家出面说明。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [没本事但听话的婚姻没内耗](yi-xin-yi-yi.md)
-- [女子带娃仅点6元豆芽连吃7碗米饭](san-xin-er-yi.md)
-- [如何看待仰望U9 Xtreme在阿布扎比开放公路跑出503.17km/h这件事？](si-hai-wei-jia.md)
-- [《再飞行！》MV：终于完整的旋律，是我们继续出发的BGM](wu-gu-feng-deng.md)
+- [圆通总裁心疼儿子Tim](yi-xin-yi-yi.md)
+- [中方就美对华经贸限制表达严正关切](san-xin-er-yi.md)
+- [如何看待广电总局重申未来将把重点放在扶持真人短剧，以及规范 AI 短剧？这对短剧行业会带来哪些影响？](si-hai-wei-jia.md)
+- [挑战只带一台笔记本，不带充电器在佛山废弃商场工作一天！](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
 - [进博会如何连接世界](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [圆通总裁潘水苗心疼儿子Tim工作辛苦](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [圆通总裁心疼儿子Tim](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [中国纯电车如何跨过500km/h这道坎](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [实验猴涨至26万一只](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [波尔津吉斯宣布退役](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [智慧教室会侵犯学生隐私系误读](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [这到底是机器人还是真人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [3城人均住户存款超20万](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子带娃仅点6元豆芽连吃7碗米饭](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [美国股市为何暴跌](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [美国10月非农远超预期](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [我让老公把一盘土豆丝倒女儿碗里，她气的把筷子摔了，还向我爆粗口，我教训了她一顿，我做错了吗？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [11岁女童遭性侵被困宾馆5小时](http://www.daogukj.com/ihcjjgzd/)
-- [金鸡奖开幕式](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [乖乖待在我身边学英语不好吗？非要把你关起来吗？](http://www.daogukj.com/hytgpxub/)
-- [男子预判金价能到2000元/克，花光积蓄买7斤黄金，9个月亏114万元，急用钱无奈割肉，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [【八仙！】有钱就是年轻啊](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [民主党提出超级 AI 禁令，美股迎来 1896 年以来中期选举后表现最差的第二个交易日，影响有多大？](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [《再飞行！》MV：终于完整的旋律，是我们继续出发的BGM](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [多国禁映、教会震怒！郇山隐修竟是一个世纪骗局？《达芬奇密码》背后的创作故事远比你想象的还要精彩！](http://www.daogukj.com/8357764)
-- [一图速览进博会亮点](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [无薪跟岗 教师招聘不带这么羞辱人的](http://www.daogukj.com/rdfrumhx/)
-- [当你在过山车上紧急视频会议](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [如果给你月薪9000，天天去图书馆看书你愿意吗？](http://www.daogukj.com/lntrsvpz/)
-- [大冰回答八年没上班的女子](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [女中医说墓碑上的药方实用还不贵](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [研究生导师是更喜欢保研上来的学生还是考研上来的学生？](http://www.daogukj.com/mofrooiq/)
-- [许飞非虚构写作级别的表达](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [天霸老板解释为什么换下白小纯](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [125台公交车退役电池卖了300万元](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [上海原市长龚正等12名正部履新职](http://www.daogukj.com/8424365)
-- [如何看待仰望U9 Xtreme在阿布扎比开放公路跑出503.17km/h这件事？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [儿子偷卖母亲 13 克金项链，母亲得知真相后报警，儿子被采取刑事强制措施，拿自己家的东西算偷吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [苹果首款触控MacBook Pro开售即破发](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [李标被遣返回国](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [全麻胃肠镜睡一觉就做完](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [我要从中国走到欧洲，你觉得能成功吗｜拉在路上](http://www.daogukj.com/4727274)
-- [仰望U9X #DriveTo500 一镜到底！](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [厉娜因为有工作激动到睡不着](http://www.daogukj.com/2266153)
-- [姜妍吃的饭被蒋欣看到天要塌了](http://www.daogukj.com/3795795)
-- [陈都灵发言 大气](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [大学生精细AA：这菜我没吃 单独结账](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [云南咖啡为何走不出中国？](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [灭霸在学校住宿两个星期后终于放假了](http://www.daogukj.com/uhjkuxrm/)
-- [智慧教室会侵犯学生隐私系误读](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [中国造出人类已知最冷物质有什么用](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [实验猴涨至26万一只](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [外交部：中日关系严重困难日方全责](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [TES·369单曲《莫问归期》——“若临别眼眶莫湿，只需一句明年一起至。挥挥手莫藏心事，少年辞。”](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [中方就美对华经贸限制表达严正关切](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [云南咖啡为何走不出中国？](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [一双“电动鞋”售价7999元](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [陈熠鏖战五局晋级8强](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [人类文明有史以来最恐怖的泡沫](http://www.daogukj.com/ihcjjgzd/)
+- [多国禁映、教会震怒！郇山隐修竟是一个世纪骗局？《达芬奇密码》背后的创作故事远比你想象的还要精彩！](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [芒果的事业运要起飞了吗](http://www.daogukj.com/hytgpxub/)
+- [康辉深圳拍视频几乎无人围观](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [谷爱凌称「没有谁会因吃苦而获奖，不要歌颂牺牲」，如何评价这一观点？](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [男子预判金价能到2000元/克，花光积蓄买7斤黄金，9个月亏114万元，急用钱无奈割肉，如何看待此事？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [挑战只带一台笔记本，不带充电器在佛山废弃商场工作一天！](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [为什么现在的棉服填充物都是聚酯纤维而不是棉花？](http://www.daogukj.com/8357764)
+- [铸牢共同体中华一家亲](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [攒了一抽屉外卖保温袋 能不能用](http://www.daogukj.com/rdfrumhx/)
+- [儿子偷卖母亲 13 克金项链，母亲得知真相后报警，儿子被采取刑事强制措施，拿自己家的东西算偷吗？](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [俄外交部建议本国公民暂缓赴伊朗旅行](http://www.daogukj.com/lntrsvpz/)
+- [原来真的有小喷菇](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [女子称父亲倒在站台旅客施救被制止](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [马天宇说不要在一句话后面加那人名字](http://www.daogukj.com/mofrooiq/)
+- [收1.98万误转账约派出所归还却遭起诉](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [125台公交车退役电池卖了300万元](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [中央气象台发布暴雪黄色预警](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [立冬有哪些老传统](http://www.daogukj.com/8424365)
+- [如何看待广电总局重申未来将把重点放在扶持真人短剧，以及规范 AI 短剧？这对短剧行业会带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [每天给你5000元，但是第二天你的存款会自动消失，你愿意吗？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [我如何用程序员的架构思维看待冰箱？](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [港媒曝陈奕迅因女儿陈康堤遭无缝衔接，已与男方黄泽林绝交，具体是什么情况？目前爆料谁真谁假？](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [小米澎程主驾车门被撞仍保护车主](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [如何评价库洛法务部通报称，已对多个平台的多名用户启动法律程序？](http://www.daogukj.com/4727274)
+- [研究生导师是更喜欢保研上来的学生还是考研上来的学生？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [体检空腹不等于滴水不沾](http://www.daogukj.com/2266153)
+- [挑战在岛上开发一个荒岛生存游戏！](http://www.daogukj.com/3795795)
+- [“你土木的不会抽烟？？废物”](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [《崩坏：星穹铁道》公益第三卷：「抵达彩色的彼方」](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [波尔津吉斯发声](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [如果给你月薪9000，天天去图书馆看书你愿意吗？](http://www.daogukj.com/uhjkuxrm/)
+- [【八仙！】有钱就是年轻啊](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [韩语版今天是太阳雨](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [3城人均住户存款超20万](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [谁在把女性隐私明码标价](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [灭霸在学校住宿两个星期后终于放假了](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
 - [【独家】《罗小黑战记》第42话 龙游的风在轻轻地吹【10月国创】](http://www.daogukj.com/5905118)
-- [难绷！这可能是史上最逆天的逃命姿势](http://www.daogukj.com/gchjscql/)
+- [上海原市长龚正等12名正部履新职](http://www.daogukj.com/gchjscql/)
 - [一组数据感受中国经济强劲脉动](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [特斯拉将逐步停产Cybertruck](http://www.daogukj.com/9269800)
-- [男子心梗前给豆包打电话救了自己](http://www.daogukj.com/7091853)
-- [未来谁能接棒房地产成中国经济新支柱](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [11元拍得鹤岗一套房是赚了吗](http://www.daogukj.com/2402025)
-- [青稚听到和白小纯一起住偷笑](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [后会友期综史一](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [女子带娃仅点6元豆芽连吃7碗米饭](http://www.daogukj.com/9269800)
+- [许飞非虚构写作级别的表达](http://www.daogukj.com/7091853)
+- [原来器官没在我以为的地方](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [存款利率拐点来了？有储户存500万](http://www.daogukj.com/2402025)
+- [新娘曾7次拒绝将婚房借给他人](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [立冬](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [一双“电动鞋”售价7999元](https://www.baidu.com/s?wd=%E4%B8%80%E5%8F%8C%E2%80%9C%E7%94%B5%E5%8A%A8%E9%9E%8B%E2%80%9D%E5%94%AE%E4%BB%B77999%E5%85%83&sa=fyb_news&rsv_dl=fyb_news)
+- [戴2499元指环不易被推倒？企业回应](https://www.baidu.com/s?wd=%E6%88%B42499%E5%85%83%E6%8C%87%E7%8E%AF%E4%B8%8D%E6%98%93%E8%A2%AB%E6%8E%A8%E5%80%92%EF%BC%9F%E4%BC%81%E4%B8%9A%E5%9B%9E%E5%BA%94&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d1e73117c23dd1e62c07 -->
+<!-- content-fingerprint: bbd8b567d5722ef877e8 -->
