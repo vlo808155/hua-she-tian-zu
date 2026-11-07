@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 谷爱凌称「没有谁会因吃苦而获奖，不要歌颂牺牲」，如何评价这一观点？
+# 最强的战绩，铭刻于决斗场！
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：511 万热度 · 分类：问答 · 更新：2026-11-07T14:33:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：811330 · 分类：手机游戏 · 更新：2026-11-07T21:31:20+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“谷爱凌称「没有谁会因吃苦而获奖，不要歌颂牺牲」，如何评价这一观点？”位列第 3 位，公开热度指标为 511 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“最强的战绩，铭刻于决斗场！”位列第 3 位，公开热度指标为 811330，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：谷爱凌：我们的文化过度美化吃苦。我觉得有时候人们会说：我受了好多苦，我凌晨四点就起来做这件事。可四点到七点，你的效率能有多高？睡眠不足又会对你造成什么影响？没有人会因为受苦而获得奖赏。如果你想聊生产力、聊效率优化，那就聊这些，不要拿自己吃过的苦难来说事。如果有更简单的办法，就选简单的方式去做。不必非要走最难的那条路，不必墨守成规。有时候与其绕着湖走一大圈，不如直接游过去，或是造一艘船。
+来源公开摘要显示：BGM：雨爱 这期做久了，漂佩有点难画，中间内容本来想画点抽象的但是感觉已经太多了就没搞了，素材稍微剪了一下，之后尽量稳不拖更。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
 
 ## 相关热点
 
-- [《异环》特别剧情短片丨X+Y=10KB世界](shan-qing-shui-xiu.md)
-- [全国首个冷门绝学学院成立](feng-he-ri-li.md)
-- [王子璇文吉儿吵架路人视角](chun-nuan-hua-kai.md)
-- [领馆通报中国外卖骑手在澳被袭身亡](qiu-gao-qi-shuang.md)
+- [北京已经下雪了广州人还在穿短袖](shan-qing-shui-xiu.md)
+- [嫁金钗全员谢幕这两分钟](feng-he-ri-li.md)
+- [尾号98888888手机号128万起拍](chun-nuan-hua-kai.md)
+- [如何看待 11 月 7 日 DeepSeek 再次崩溃？](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [男子 5 年入职 25 家公司「表演式上班」骗薪 13 万，此类骗局为何长久来都没能被公司发现？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [政策严控 「速成车」，工信部第 413 批新车申报量锐减，新势力集体沉默，「速成车」时代要结束了吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [【数据删除】基金会最欢乐的特战队，三名让异常破防的不死大爹——《SCP-2639-电子游戏暴力》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [立冬吃超长长长长长长长长饺子](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [大学生阴差阳错踢出神奇一幕全场沸腾](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [如何看待 Faker 称 BLG 具备夺冠的实力，但很遗憾他们在半决赛对上了我们？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [铁锅/不锈钢锅都能用：一套物理不粘公式，煎鱼豆腐都不粘](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [近十几年的梗都在这里了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [早期的人工智能Be like：](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [【小白必看】DeepSeek Harness零基础教程！附大肥鱼全套案例！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [曝妻子的浪漫旅行阵容](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [灭霸在学校住宿两个星期后终于放假了](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [全国首个冷门绝学学院成立](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [杨瀚森单打凯斯勒](http://www.daogukj.com/8743466)
-- [云南蘑菇这么厉害？](http://www.daogukj.com/6087099)
-- [5子女每月各出20元赡养费 老人起诉](http://www.daogukj.com/8759192)
-- [古人过冬仪式感](http://www.daogukj.com/nzlnmzmb/)
-- [首套首条首台 本周多项硬核成果上新](http://www.daogukj.com/6882941)
-- [新人举办“极简婚礼” 松弛感拉满](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [“你土木的不会抽烟？？废物”](http://www.daogukj.com/9154473)
-- [铁锅/不锈钢锅都能用：一套物理不粘公式，煎鱼豆腐都不粘](http://www.daogukj.com/4411404)
-- [Chovy希望Rookie送自己进决赛](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [男子2017年死亡销户但仍有生活轨迹](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [俄方临时接管日本烟草公司在俄资产，此前日本追加制裁俄罗斯影子船队，日方后续还有拿回资产的可能性吗？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [台湾寺庙地下搜出近800公斤金银](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [董宇辉蛋糕检测报告多达60多页](http://www.daogukj.com/aztauuey/)
-- [如何看待广电总局重申未来将把重点放在扶持真人短剧，以及规范 AI 短剧？这对短剧行业会带来哪些影响？](http://www.daogukj.com/7343685)
-- [夫妻入职药企1死1瘫儿子发声](http://www.daogukj.com/dhbposmt/)
-- [中国空间站将迎来首位外籍航天员](http://www.daogukj.com/1538095)
-- [小学生赊账买零食 有学生月赊1000元](http://www.daogukj.com/uznikqxj/)
-- [教育部明确高中生睡眠应达到8小时](http://www.daogukj.com/5158126)
-- [大学生阴差阳错踢出神奇一幕全场沸腾](http://www.daogukj.com/3616935)
-- [谁在把女性隐私明码标价](http://www.daogukj.com/pfvjuanz/)
-- [马天宇直播被工作人员叫停](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [“前额叶友好”成交友“上上品”](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [张萌老公简历居然这么厉害](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [李一桐疑似内涵芒果](http://www.daogukj.com/asaygxgb/)
-- [黑龙江黑河捞鱼笊篱碰水立马结冰](http://www.daogukj.com/zxvfwrkb/)
-- [为啥以前观念里会觉得喝咖啡很高档，现在却觉得喝咖啡的只是打工牛马？是咖啡变便宜了还是大众对咖啡祛魅了？](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [我是奸商](http://www.daogukj.com/7717389)
-- [提前还贷银行拖两个月多收十万利息](http://www.daogukj.com/9746581)
-- [26-27赛季NBA杯小组赛骑士119：95大胜76人，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [立冬吃超长长长长长长长长饺子](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [我要从中国走到欧洲，你觉得能成功吗｜拉在路上](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [为什么很多人都说江浙沪是美食荒漠？](http://www.daogukj.com/7650204)
-- [骑士复仇76人 詹姆斯再现尴尬8分](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [李书福：我完全认同换电模式](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [后会友期 凌晨4点准点出发](http://www.daogukj.com/0995452)
-- [一个伊朗女人搞崩了美股](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [许飞「画地为牢」梗爆火，《后会友期》市占率飙至 74.3% ，综艺严重同质化的今天，它为什么能成功？](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [《再飞行！》MV：终于完整的旋律，是我们继续出发的BGM！](http://www.daogukj.com/fivnrrsp/)
-- [政策严控 「速成车」，工信部第 413 批新车申报量锐减，新势力集体沉默，「速成车」时代要结束了吗？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [利拉德超远三分自信出手应声入网](http://www.daogukj.com/hldbetht/)
-- [博主：美国军媒时隔3年才看懂歼-20S](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [消失10个月，我带着一个新生命，重新出发！](http://www.daogukj.com/phqakpps/)
-- [人的腚为什么没进化成三瓣，不是有三角形的稳定性吗？又为什么不变成一个整体，就像一个圆，这么进化作用？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [特斯拉宣布终止 Cybertruck 生产，扩大 Cybercab 的产能，怎样解读这一调整？](http://www.daogukj.com/adpyviat/)
-- [互联网发展和治理的中国方案](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [S16将诞生新的世界赛两冠王](http://www.daogukj.com/1571628)
-- [大批国外游客涌入河南疗养？不实](http://www.daogukj.com/9492876)
+- [赵丽颖也得变着法哄自己上班](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [IG："打进登封就算成功" "好像有机会啊"](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [嫁金钗全员谢幕这两分钟](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [距离除夕还有90天](http://www.daogukj.com/8743466)
+- [网友说微信读书是腾讯的「功德产品」，字节没有，是这样吗？字节为什么做不出这种产品？](http://www.daogukj.com/6087099)
+- [手机失控 “自动”购买9台大疆相机](http://www.daogukj.com/8759192)
+- [“数”读新时代全面从严治党成效](http://www.daogukj.com/nzlnmzmb/)
+- [共赴APEC之约](http://www.daogukj.com/6882941)
+- [谁是好莱坞配乐界的GOAT？](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [【TF家族练习生】《成长档案NO.1018-回归爱与自我的原点》张函瑞生日纪录片](http://www.daogukj.com/9154473)
+- [曝美光将暂停 45 亿美元内存厂扩产，为何后续会出现要么 AI 崩要么内存涨价的局面？](http://www.daogukj.com/4411404)
+- [00后女生放弃读研去开军机](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [《绝区零》未明通讯丨知更鸟&卡芙卡](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [姜妍的一碗冷面够蒋欣吃三天](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [外媒曝约60万枚英伟达芯片滞留香港，美方部分人士指责其为「卡脖子」，为何美方会对此如此着急？](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [iG和GEN谁能进决赛](http://www.daogukj.com/aztauuey/)
+- [普京为何签令接管日本烟草在俄资产](http://www.daogukj.com/7343685)
+- [男子被小奶狗抓伤确诊狂犬病](http://www.daogukj.com/dhbposmt/)
+- [巴拉圭变天 台湾“金元外交”失算](http://www.daogukj.com/1538095)
+- [8省份有大到暴雪 局地特大暴雪](http://www.daogukj.com/uznikqxj/)
+- [第一个过万圣节的人](http://www.daogukj.com/5158126)
+- [【小白必看】DeepSeek Harness零基础教程！附大肥鱼全套案例！](http://www.daogukj.com/3616935)
+- [刘熙墨脸部二度烧伤](http://www.daogukj.com/pfvjuanz/)
+- [马天宇 李明德](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [小贺今天请老人吃《红烧鸡腿》每人领到了7个鸡腿，都可开心啦](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [北京一火锅店立冬排队超1000桌](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [乘客削苹果遇急刹车 水果刀插进心脏](http://www.daogukj.com/asaygxgb/)
+- [男子 5 年入职 25 家公司「表演式上班」骗薪 13 万，此类骗局为何长久来都没能被公司发现？](http://www.daogukj.com/zxvfwrkb/)
+- [立冬要补冬](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [【纪录片】威尔史密斯的极地纵横 06中配版 北极点](http://www.daogukj.com/7717389)
+- [吴奇隆被蜘蛛猴一脚踩头上](http://www.daogukj.com/9746581)
+- [下半年最强冷空气来袭多地迎强降雪](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [早期的人工智能Be like：](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [如何看待法国2027年最新政府预算案在议会获458票反对，0票赞成，被全票反对，未能通过？](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [《嫁金钗》大结局高光](http://www.daogukj.com/7650204)
+- [李一桐疑似内涵芒果](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [曝90剧花美国待产](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [因为画地为牢被辞退了](http://www.daogukj.com/0995452)
+- [【数据删除】基金会最欢乐的特战队，三名让异常破防的不死大爹——《SCP-2639-电子游戏暴力》](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [厦门进入金鸡时间](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [许飞「画地为牢」梗爆火，《后会友期》市占率飙至 74.3% ，综艺严重同质化的今天，它为什么能成功？](http://www.daogukj.com/fivnrrsp/)
+- [铁锅/不锈钢锅都能用：一套物理不粘公式，煎鱼豆腐都不粘](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [立冬](http://www.daogukj.com/hldbetht/)
+- [全球汽车销量前十中国占三席](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [俄方临时接管日本烟草公司在俄资产，此前日本追加制裁俄罗斯影子船队，日方后续还有拿回资产的可能性吗？](http://www.daogukj.com/phqakpps/)
+- [现在日本算发达国家守门员吗?](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [男子收 1.98 万误转账约派出所归还却遭起诉，法院认定不当得利冻结其账户资金，怎样从法律角度解读？](http://www.daogukj.com/adpyviat/)
+- [政策严控 「速成车」，工信部第 413 批新车申报量锐减，新势力集体沉默，「速成车」时代要结束了吗？](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [马斯克说我爱中国](http://www.daogukj.com/1571628)
+- [博主私信发现两人偷情对话](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [谷爱凌称「没有谁会因吃苦而获奖，不要歌颂牺牲」，如何评价这一观点？](https://www.zhihu.com/question/2102027001586511991)
+- [最强的战绩，铭刻于决斗场！](https://b23.tv/BV1fn4z6LEzY)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4e54f0ce78d6c81020ff -->
+<!-- content-fingerprint: 3180cff1a14e7713f691 -->
