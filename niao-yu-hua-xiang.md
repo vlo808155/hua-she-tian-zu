@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 怎么看字节跳动的扣子宣布下线解散，AI工作流是不是已经没有市场了？
+# 中国不申办2036年奥运会，德印韩等7国入围，举办奥运还「香」吗?奥运会的吸引力发生了什么变化？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：209 万热度 · 分类：问答 · 更新：2026-11-08T09:27:07+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：365 万热度 · 分类：问答 · 更新：2026-11-08T15:54:28+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“怎么看字节跳动的扣子宣布下线解散，AI工作流是不是已经没有市场了？”位列第 3 位，公开热度指标为 209 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“中国不申办2036年奥运会，德印韩等7国入围，举办奥运还「香」吗?奥运会的吸引力发生了什么变化？”位列第 3 位，公开热度指标为 365 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：字节旗下AI应用开发平台扣子（Coze）发布《扣子企业版下线公告》，企业标准版与企业旗舰版将于2026年11月30日起停止接受新客户购买，存量套餐最晚于2027年12月31日全面下线，超期未使用部分将自动退款。 扣子企业版下线公告
+来源公开摘要显示：这十多年来，申办奥运会的行情，类似经济下行期地段顶级、物业费惊人的豪宅，看着光鲜气派，你真想接手，得好好掂量。最近四届奥运会就是“烫手山芋”，波士顿放了鸽子，罗马、布达佩斯打了退堂鼓。 2024年夏奥会申办期间，参选城市接连退出后，只剩巴黎、洛杉矶。无奈之下，国际奥委会直接打包指定两届主办权，2024年归巴黎，2028年归洛杉矶，才算稳住基本盘。 观众观看巴黎奥运会开幕式。图源新华社 一 好像突然间事情起了变化。2036年夏季奥运会，竟有德国、匈牙利、印度、卡塔尔、韩国、南非、土耳其七国正式申办。七国同台角逐，俨然成了体育界的“战国争霸”。 办奥运会难道
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [人类饲养指南](shan-qing-shui-xiu.md)
-- [国乒法兰克福冠军赛全军覆没](feng-he-ri-li.md)
-- [于正求厉娜原谅许飞](chun-nuan-hua-kai.md)
-- [UFC总裁拒绝担任白宫新闻秘书](qiu-gao-qi-shuang.md)
+- [中国县城消费崛起](feng-he-ri-li.md)
+- [延迟到校取消早读家长发声](chun-nuan-hua-kai.md)
+- [大三男生做AI漫剧营收超300万](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
 - [S16 半决赛 GEN 3:0 淘汰 iG 晋级决赛，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [为什么说健身房练完后器械上面的杠铃片要归位？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [消失10个月，我带着一个新生命，重新出发！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [许飞厉娜两个人默契地都没有下车](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [iG选手赛后互相安慰](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [东风-61 已列装到火箭军，这意味着什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [为什么说健身房练完后器械上面的杠铃片要归位？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [54 岁大哥自学AI短剧登顶红果榜，团队成员一年还清债务，普通人真能靠AI翻身吗？有啥值得借鉴的思路？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [妻子在家私装监控拍下丈夫出轨被认定非法证据，从法律角度该如何解读？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [当我们终于开始认真谈论友情](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [温瑞博0-4林昀儒，无缘法兰克福冠军赛男单4强，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [国乒法兰克福冠军赛全军覆没](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [高盛为何急着下调黄金目标价](http://www.daogukj.com/8743466)
-- [沪武高速追尾事故已致1死4伤](http://www.daogukj.com/6087099)
-- [我183怎么没了？谁把我B站账号给盗了？](http://www.daogukj.com/8759192)
-- [共赴APEC之约](http://www.daogukj.com/nzlnmzmb/)
-- [进博会物流生态专区上新](http://www.daogukj.com/6882941)
-- [孩子不在家夫妻还需要在一起吗](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [中国空间站将迎首位外籍航天员，巴基斯坦载荷专家参加神舟二十四号任务，具有哪些意义？](http://www.daogukj.com/9154473)
-- [尔滨呐你又让我感到陌生了](http://www.daogukj.com/4411404)
-- [如何看待 11 月 7 日 DeepSeek 再次崩溃？](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [女班主任连做4个引体向上](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [悬崖上面倒垃圾，下游用水，这么漂亮的风景怎么下的去手的，肯定当地规范处理垃圾，让下游用上干净的水，还大自然绿水青山](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [GEN零封IG晋级决赛](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [外卖大战一年，美团、阿里、京东三家亏掉上千亿，怎么看这一结果？未来的外卖市场可能是什么走向？](http://www.daogukj.com/aztauuey/)
-- [S赛怀旧金曲《BLG带带我》](http://www.daogukj.com/7343685)
-- [中国不申办2036年奥运会，德印韩等7国入围，举办奥运还「香」吗?奥运会的吸引力发生了什么变化？](http://www.daogukj.com/dhbposmt/)
-- [8省份大到暴雪](http://www.daogukj.com/1538095)
-- [暴雨暴雪大降温来了](http://www.daogukj.com/uznikqxj/)
-- [爸爸去哪儿3重聚为康康庆生](http://www.daogukj.com/5158126)
-- [iG选手赛后互相安慰](http://www.daogukj.com/3616935)
-- [如何评价2026年11月米哈游《原神》达妮卡立绘？](http://www.daogukj.com/pfvjuanz/)
-- [曝美光将暂停 45 亿美元内存厂扩产，为何后续会出现要么 AI 崩要么内存涨价的局面？](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [王俊凯卡清迈零点祝王源生日快乐](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [15省份局地降温超10°C](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [原来古人才是最懂过冬的](http://www.daogukj.com/asaygxgb/)
-- [国乒女单连输两场中日对决](http://www.daogukj.com/zxvfwrkb/)
-- [一条很长很长很长很长的人......](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [小糯米听到刘恺威有新女友的反应](http://www.daogukj.com/7717389)
-- [乘客削苹果遇急刹车水果刀插进心脏](http://www.daogukj.com/9746581)
-- [原来赵丽颖早起上班也会有班味](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [许飞厉娜两个人默契地都没有下车](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [消息称苹果折叠屏铰链问题查明](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [Chovy首次杀入S赛决赛](http://www.daogukj.com/7650204)
-- [APEC工商领导人峰会举办在即，中美俄三国能在深圳聚首吗？可能在国际上产生什么影响？](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [如何看待部分家长让孩子「只上半天学」，下午接回家自主安排？](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [东北大爷大妈一边冬泳一边吃饺子](http://www.daogukj.com/0995452)
-- [刘丹透露小糯米在英国读书](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [学不如抄？Anthropic 为啥这么怕蒸馏！](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [央视曝光“免费鉴宝高价回收”骗局](http://www.daogukj.com/fivnrrsp/)
-- [为什么说健身房练完后器械上面的杠铃片要归位？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [WTT法兰克福冠军赛，陈熠0-4温特，无缘四强，国乒女单在本届比赛无一人晋级四强，如何评价她们的表现？](http://www.daogukj.com/hldbetht/)
-- [近十几年的梗都在这里了](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [男子被雇主扇耳光 昏迷14个月离世](http://www.daogukj.com/phqakpps/)
-- [横店短剧女主半年接不到戏，选择摆摊交房租，当 AI 短剧越来越火，未来真人短剧行业将如何发展？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [国乒男单今年6站冠军赛0冠](http://www.daogukj.com/adpyviat/)
-- [“数”读新时代全面从严治党成效](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [国乒六站冠军赛仅孙颖莎夺冠](http://www.daogukj.com/1571628)
-- [东风-61 已列装到火箭军，这意味着什么？](http://www.daogukj.com/9492876)
+- [中国顶级豪车亮相 镶137颗宝石](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [为什么普遍认为橘猫相对其他猫更肥，是真的如此还是刻板印象呢？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [中国县城消费崛起](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [二相乐园到底是什么？](http://www.daogukj.com/8743466)
+- [张水华广西罗城半马破纪录夺冠](http://www.daogukj.com/6087099)
+- [居里家族400年传奇：原来智商真的会遗传？](http://www.daogukj.com/8759192)
+- [争做一颗石榴籽](http://www.daogukj.com/nzlnmzmb/)
+- [新老朋友集中亮相进博会](http://www.daogukj.com/6882941)
+- [多地中小学调整上学时间，推迟到校取消早读，会影响学习效率吗？双职工家庭如何解决孩子早晨无人看护的问题？](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [网友问今何在能否与江南一起上《后会友期》遭其无情拒绝并表示「江南是谁」，江南和今何在到底有啥爱恨情仇？](http://www.daogukj.com/9154473)
+- [大连球迷风雪中为大连队加油](http://www.daogukj.com/4411404)
+- [那天在丹霞山是在爬不动了，于是坐了人力轿子......](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [张雪称收到重庆大学简历 200 份，不存在学生高傲企业傲慢问题，这一观点是否符合当下校招实际？](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [小糯米才12岁](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [杨瀚森两双 开拓者惨败马刺](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [锐评S16 GEN战胜IG晋级决赛：硬实力差距 IG告别S16舞台！](http://www.daogukj.com/aztauuey/)
+- [金晨从上海搬家到三亚](http://www.daogukj.com/7343685)
+- [全球最肥胖 VS 全球最健康！热量相差100倍！一日三餐吃什么？](http://www.daogukj.com/dhbposmt/)
+- [芒果买了三人行复播](http://www.daogukj.com/1538095)
+- [月薪过万 社保缴费基数却是4000元](http://www.daogukj.com/uznikqxj/)
+- [59岁男子突发疾病后倒在站台去世，家属质疑车站配AED却没有员工会使用，车站到底应不应该担责？](http://www.daogukj.com/5158126)
+- [妻子在家私装监控拍下丈夫出轨被认定非法证据，从法律角度该如何解读？](http://www.daogukj.com/3616935)
+- [河北秦皇岛暴雪 积雪达23厘米](http://www.daogukj.com/pfvjuanz/)
+- [面对畸形审美裹挟 该如何保持清醒](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [为什么97天龙八部的粉丝和03天龙八部粉丝之间水火不容？](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [五秒定律](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [一条很长很长很长很长的人......](http://www.daogukj.com/asaygxgb/)
+- [沙特首都遇袭石油公司大楼受损](http://www.daogukj.com/zxvfwrkb/)
+- [曝12岁小糯米英国留学](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [2627赛季NBA常规赛魔术 119:126 勇士，如何评价这场比赛？](http://www.daogukj.com/7717389)
+- [⚡弟子扫荡异界诡校⚡](http://www.daogukj.com/9746581)
+- [大三男生宿舍手搓AI漫剧创收200万](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [54 岁大哥自学AI短剧登顶红果榜，团队成员一年还清债务，普通人真能靠AI翻身吗？有啥值得借鉴的思路？](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [秦皇岛积雪超20厘米](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [山东泰山vs成都蓉城](http://www.daogukj.com/7650204)
+- [女孩从小到大叫爸爸的变化好真实](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [手机里的隐私可能正在被“直播”](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [火柴人 VS 动画师 第十四集 黑暗时代（The Dark Age）](http://www.daogukj.com/0995452)
+- [怎么看AI物理公司PSI，用非公开Anthropic模型证明了Aaronson-Ambainis猜想？](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [月薪过万为啥社保按4千基数缴费](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [记者卧底调查女厕偷拍黑产](http://www.daogukj.com/fivnrrsp/)
+- [东风-61 已列装到火箭军，这意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [13岁女孩每天跳绳1000下半月板受损](http://www.daogukj.com/hldbetht/)
+- [女孩和小羊对决一招未打中](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [NBA历史单场40+次数Top20](http://www.daogukj.com/phqakpps/)
+- [中国球员NBA常规赛两双仅3人](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [最后一位开国将军王扶之逝世](http://www.daogukj.com/adpyviat/)
+- [驰而不息正风肃纪](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [12分10篮板！杨瀚森NBA生涯首次两双](http://www.daogukj.com/1571628)
+- [希拉里称不担心特朗普赦免马斯克](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [怎么看字节跳动的扣子宣布下线解散，AI工作流是不是已经没有市场了？](https://www.zhihu.com/question/2101391707430565604)
+- [中国不申办2036年奥运会，德印韩等7国入围，举办奥运还「香」吗?奥运会的吸引力发生了什么变化？](https://www.zhihu.com/question/2101032846550726477)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3a911ab0062e323872eb -->
+<!-- content-fingerprint: ddb5a1d8494fe4ec86db -->

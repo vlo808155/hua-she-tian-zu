@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《完美婚礼》
+# “这是给孩子的，不是给你的”
 
-> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：540939 · 分类：数码 · 更新：2026-11-08T09:27:07+08:00
+> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：2872390 · 分类：音乐综合 · 更新：2026-11-08T15:54:28+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《完美婚礼》”位列第 2 位，公开热度指标为 540939，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，““这是给孩子的，不是给你的””位列第 2 位，公开热度指标为 2872390，榜单分类为“音乐综合”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：使用#华为Mate90#系列拍摄，由黄建新监制、章笛沙执导的2026年中国金鸡百花电影节宣传片暨开幕短片《完美婚礼》，携吴磊、庄达菲等全明星阵容献映！华为Mate系列手机已连续三年拍摄金鸡百花电影节宣传片，以电影级专业影像能力见证中国电影产业发展，以真实动人的影像致敬经典！#这真实真动人##华为睿影XMAGE##华为睿影XMAGE金鸡手机电影计划
+来源公开摘要显示：“这是给孩子的 不是给你的” 无名的人 - 毛不易.flac [00:03:40-00:08:22] 我记得 - 赵雷.flac [00:08:22-00:13:52] 鼓楼 - 赵雷.flac [00:13:52-00:18:33] 虚拟 - 陈粒.flac [00:18:33-00:22:34] 南方姑娘 - 赵雷.flac [00:22:34-00:28:08] 理想三旬 - 陈鸿宇.flac [00:28:08-00:31:39] 南山南 - 马頔.flac [00:31:39-00:37:04]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `音乐综合`
 
 ## 相关热点
 
-- [进博会物流生态专区上新](bai-fa-bai-zhong.md)
-- [共赴APEC之约](qian-jun-wan-ma.md)
-- [“数”读新时代全面从严治党成效](wan-zi-qian-hong.md)
-- [怎么看字节跳动的扣子宣布下线解散，AI工作流是不是已经没有市场了？](niao-yu-hua-xiang.md)
+- [新老朋友集中亮相进博会](bai-fa-bai-zhong.md)
+- [争做一颗石榴籽](qian-jun-wan-ma.md)
+- [驰而不息正风肃纪](wan-zi-qian-hong.md)
+- [中国不申办2036年奥运会，德印韩等7国入围，举办奥运还「香」吗?奥运会的吸引力发生了什么变化？](niao-yu-hua-xiang.md)
 
 ## 站内推荐
 
-- [【独家】《凡人修仙传之慕兰之战》第23集【总第199集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [⚡️ 坏了，是灭建国 ⚡️](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [原来古人才是最懂过冬的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [尾号98888888手机号128万起拍](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [中国不申办2036年奥运会，德印韩等7国入围，举办奥运还「香」吗?奥运会的吸引力发生了什么变化？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [【独家】牧神记 第108集 相逢何必曾相识](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [农村大片! 大战外星人! 好莱坞都不敢这么拍](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [一条很长很长很长很长的人......](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [致命香蕉：一根香蕉，究竟能闯出多大的祸？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [全球最肥胖 VS 全球最健康！热量相差100倍！一日三餐吃什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [地平线6这样漂能上首页吗](http://www.daogukj.com/8025131)
-- [如何评价《嫁金钗》大结局女主软禁太后杀死亲王摆下鸿门宴携胚胎以令诸侯，最后以护国长公主身份摄政天下？](http://www.daogukj.com/1259810)
-- [为什么说健身房练完后器械上面的杠铃片要归位？](http://www.daogukj.com/3123281)
-- [iG0比3不敌GEN 无缘S16决赛](http://www.movie.hkepx.cn/movie/0347416.htm)
-- [⚡️ 坏了，是灭建国 ⚡️](http://www.daogukj.com/mojqmowq/)
-- [Chovy首次杀入S赛决赛](http://www.movie.hkepx.cn/movie/8583613.htm)
-- [iG对战GEN](http://www.movie.hkepx.cn/movie/7389207.htm)
-- [央视曝光“免费鉴宝高价回收”骗局](http://www.movie.hkepx.cn/movie/7310795.htm)
-- [国乒六站冠军赛仅孙颖莎夺冠](http://www.daogukj.com/7749326)
-- [中国不申办2036年奥运会，德印韩等7国入围，举办奥运还「香」吗?奥运会的吸引力发生了什么变化？](http://www.daogukj.com/4323075)
-- [王俊凯卡清迈零点祝王源生日快乐](http://www.movie.hkepx.cn/movie/9488458.htm)
+- [山姆卖加拿大鹅 有同款便宜5000元](http://www.daogukj.com/8025131)
+- [APEC工商领导人峰会举办在即，中美俄三国能在深圳聚首吗？可能在国际上产生什么影响？](http://www.daogukj.com/1259810)
+- [东风-61 已列装到火箭军，这意味着什么？](http://www.daogukj.com/3123281)
+- [“最强”厄尔尼诺来了 今年是暖冬吗](http://www.movie.hkepx.cn/movie/0347416.htm)
+- [农村大片! 大战外星人! 好莱坞都不敢这么拍](http://www.daogukj.com/mojqmowq/)
+- [山东泰山vs成都蓉城](http://www.movie.hkepx.cn/movie/8583613.htm)
+- [对减肥友好的10种食物](http://www.movie.hkepx.cn/movie/7389207.htm)
+- [记者卧底调查女厕偷拍黑产](http://www.movie.hkepx.cn/movie/7310795.htm)
+- [12分10篮板！杨瀚森NBA生涯首次两双](http://www.daogukj.com/7749326)
+- [全球最肥胖 VS 全球最健康！热量相差100倍！一日三餐吃什么？](http://www.daogukj.com/4323075)
+- [为什么97天龙八部的粉丝和03天龙八部粉丝之间水火不容？](http://www.movie.hkepx.cn/movie/9488458.htm)
 - [S16 半决赛 GEN 3:0 淘汰 iG 晋级决赛，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/2374212.htm)
-- [英国老公拒吃中餐被夸有毅力有原则](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
-- [名字带棉不一定是棉花](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
-- [15省份局地降温超10°C](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
-- [乘客削苹果遇急刹车水果刀插进心脏](http://www.movie.hkepx.cn/movie/6531033.htm)
-- [以色列总统没有选择内塔尼亚胡](http://www.daogukj.com/spbreewj/)
-- [尔滨呐你又让我感到陌生了](http://www.daogukj.com/gopjchhj/)
-- [以《武林外传》的方式打开记者节](http://www.movie.hkepx.cn/xiju/5337621.htm)
-- [高盛为何急着下调黄金目标价](http://www.daogukj.com/niwgdgqs/)
-- [星河流动](http://www.daogukj.com/nhoydtix/)
-- [如何评价2026年11月米哈游《原神》达妮卡立绘？](http://www.movie.hkepx.cn/xiju/9013758.htm)
-- [一条很长很长很长很长的人......](http://www.daogukj.com/8222516)
-- [马天宇和张萌被审判](http://www.daogukj.com/2198681)
-- [最强的战绩，铭刻于决斗场！](http://www.daogukj.com/qjzpvrwa/)
-- [UFC总裁拒绝担任白宫新闻秘书](http://www.movie.hkepx.cn/xiju/3667958.htm)
-- [青稚前女友](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
-- [国乒女单连输两场中日对决](http://www.movie.hkepx.cn/xiju/0423343.htm)
-- [悬崖上面倒垃圾，下游用水，这么漂亮的风景怎么下的去手的，肯定当地规范处理垃圾，让下游用上干净的水，还大自然绿水青山](http://www.movie.hkepx.cn/xiju/6831166.htm)
-- [孩子不在家夫妻还需要在一起吗](http://www.movie.hkepx.cn/xiju/7701717.htm)
-- [外卖大战一年，美团、阿里、京东三家亏掉上千亿，怎么看这一结果？未来的外卖市场可能是什么走向？](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
-- [【数据删除】基金会最欢乐的特战队，三名让异常破防的不死大爹——《SCP-2639-电子游戏暴力》](http://www.movie.hkepx.cn/xiju/8472152.htm)
-- [原来赵丽颖早起上班也会有班味](http://www.daogukj.com/5336794)
-- [落马干部被留置当天仍在收礼](http://www.daogukj.com/6170092)
-- [WTT法兰克福冠军赛，陈熠0-4温特，无缘四强，国乒女单在本届比赛无一人晋级四强，如何评价她们的表现？](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
-- [如何看待深圳一机顶盒厂商在 130 万台出厂设备中预埋系统级后门，并将控制权出售给黑产的行为？](http://www.daogukj.com/3387155)
-- [于正求厉娜原谅许飞](http://www.movie.hkepx.cn/xiju/5963440.htm)
-- [刘丹透露小糯米在英国读书](http://www.daogukj.com/9693904)
-- [沪武高速追尾事故已致1死4伤](http://www.movie.hkepx.cn/movie/9348798.htm)
-- [APEC工商领导人峰会举办在即，中美俄三国能在深圳聚首吗？可能在国际上产生什么影响？](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
-- [于和伟等现身《伟大的长征》座谈会](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
-- [为什么同样是医学季，offer 3 不像 offer 8 一样被骂？](http://www.movie.hkepx.cn/movie/1705456.htm)
-- [爸爸去哪儿3重聚为康康庆生](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
-- [东北大爷大妈一边冬泳一边吃饺子](http://www.movie.hkepx.cn/xiju/4301515.htm)
-- [尾号98888888手机号128万起拍](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
-- [东风-61 已列装到火箭军，这意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
+- [据传 ChatGPT 开始大规模封号，是真的吗？原因可能是什么？](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
+- [方程豹钛9车型月底上市](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
+- [五秒定律](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
+- [⚡弟子扫荡异界诡校⚡](http://www.movie.hkepx.cn/movie/6531033.htm)
+- [多地延迟到校取消早读 家长发声](http://www.daogukj.com/spbreewj/)
+- [大连球迷风雪中为大连队加油](http://www.daogukj.com/gopjchhj/)
+- [《鸣潮》共鸣者战斗演示 | 莉莉](http://www.movie.hkepx.cn/xiju/5337621.htm)
+- [二相乐园到底是什么？](http://www.daogukj.com/niwgdgqs/)
+- [《崩坏：星穹铁道》星神★阿哈角色PV——「让骰子飞」](http://www.daogukj.com/nhoydtix/)
+- [河北秦皇岛暴雪 积雪达23厘米](http://www.movie.hkepx.cn/xiju/9013758.htm)
+- [曝12岁小糯米英国留学](http://www.daogukj.com/8222516)
+- [灯塔水母真能长生不老吗？](http://www.daogukj.com/2198681)
+- [曝迪丽热巴没买房常年住酒店](http://www.daogukj.com/qjzpvrwa/)
+- [大三男生做AI漫剧营收超300万](http://www.movie.hkepx.cn/xiju/3667958.htm)
+- [全国首个冷门绝学学院成立，研究方向覆盖甲骨学、简帛学、西夏文、突厥文等，如何评价其研究方向和培养模式？](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
+- [沙特首都遇袭石油公司大楼受损](http://www.movie.hkepx.cn/xiju/0423343.htm)
+- [小糯米才12岁](http://www.movie.hkepx.cn/xiju/6831166.htm)
+- [多地中小学调整上学时间，推迟到校取消早读，会影响学习效率吗？双职工家庭如何解决孩子早晨无人看护的问题？](http://www.movie.hkepx.cn/xiju/7701717.htm)
+- [锐评S16 GEN战胜IG晋级决赛：硬实力差距 IG告别S16舞台！](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
+- [曝青稚并没有和白小纯去韩国](http://www.movie.hkepx.cn/xiju/8472152.htm)
+- [大三男生宿舍手搓AI漫剧创收200万](http://www.daogukj.com/5336794)
+- [中国车队开进阿布扎比大皇宫](http://www.daogukj.com/6170092)
+- [13岁女孩每天跳绳1000下半月板受损](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
+- [2627赛季马刺125-103开拓者，杨瀚森12分10篮板，生涯首砍两双 ，如何评价本场比赛？](http://www.daogukj.com/3387155)
+- [延迟到校取消早读家长发声](http://www.movie.hkepx.cn/xiju/5963440.htm)
+- [怎么看AI物理公司PSI，用非公开Anthropic模型证明了Aaronson-Ambainis猜想？](http://www.daogukj.com/9693904)
+- [张水华广西罗城半马破纪录夺冠](http://www.movie.hkepx.cn/movie/9348798.htm)
+- [女孩从小到大叫爸爸的变化好真实](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
+- [男子被裁后成功追缴社保17万](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
+- [40岁男子用36分钟聊爱情爆火](http://www.movie.hkepx.cn/movie/1705456.htm)
+- [59岁男子突发疾病后倒在站台去世，家属质疑车站配AED却没有员工会使用，车站到底应不应该担责？](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
+- [火柴人 VS 动画师 第十四集 黑暗时代（The Dark Age）](http://www.movie.hkepx.cn/xiju/4301515.htm)
+- [致命香蕉：一根香蕉，究竟能闯出多大的祸？](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
+- [希拉里称不担心特朗普赦免马斯克](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
 - [人类饲养指南](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
-- [外国人不理解中国人不用邮件办公](http://www.movie.hkepx.cn/xiju/7431738.htm)
-- [进博会物流生态专区上新](http://www.daogukj.com/pmdpqyts/)
-- [中方坚决反对荷兰干涉香港事务](http://www.movie.hkepx.cn/movie/5542629.htm)
+- [杨瀚森NBA生涯首次两双](http://www.movie.hkepx.cn/xiju/7431738.htm)
+- [新老朋友集中亮相进博会](http://www.daogukj.com/pmdpqyts/)
+- [陪看中超：蓉城封王还是黑马逆袭](http://www.movie.hkepx.cn/movie/5542629.htm)
 
 </details>
 
 ## 原始来源
 
-- [《完美婚礼》](https://b23.tv/BV1Xi4z6NEr2)
+- [“这是给孩子的，不是给你的”](https://b23.tv/BV1Wx4i6LEmf)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e5df5a39cf49f12f2c4a -->
+<!-- content-fingerprint: c11d784a656c48518190 -->

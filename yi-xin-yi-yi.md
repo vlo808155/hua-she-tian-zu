@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# GEN战胜iG
+# 人死前百分百想妈妈
 
-> 来源：微博热搜 · 排名：第 1 位 · 热度：2352802 · 分类：电竞 · 更新：2026-11-08T09:27:07+08:00
+> 来源：微博热搜 · 排名：第 1 位 · 热度：1130581 · 分类：情感 · 更新：2026-11-08T15:54:28+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“GEN战胜iG”位列第 1 位，公开热度指标为 2352802，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“人死前百分百想妈妈”位列第 1 位，公开热度指标为 1130581，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `电竞`
+`微博热搜` `实时热搜` `热点资讯` `情感`
 
 ## 相关热点
 
-- [117岁奶奶跳舞走红长寿秘诀公布](san-xin-er-yi.md)
+- [秦皇岛居民称20年没见过这么大雪](san-xin-er-yi.md)
 - [S16 半决赛 GEN 3:0 淘汰 iG 晋级决赛，如何评价这场比赛？](si-hai-wei-jia.md)
-- [星河流动](wu-gu-feng-deng.md)
-- [以色列总统没有选择内塔尼亚胡](liu-shen-wu-zhu.md)
+- [《崩坏：星穹铁道》星神★阿哈角色PV——「让骰子飞」](wu-gu-feng-deng.md)
+- [多地延迟到校取消早读 家长发声](liu-shen-wu-zhu.md)
 
 ## 站内推荐
 
-- [共赴APEC之约](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [8省份大到暴雪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [最强的战绩，铭刻于决斗场！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [农村大片! 大战外星人! 好莱坞都不敢这么拍](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [Chovy首次杀入S赛决赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [争做一颗石榴籽](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [芒果买了三人行复播](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [曝迪丽热巴没买房常年住酒店](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [终于开始查寺院了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [山东泰山vs成都蓉城](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [原来赵丽颖早起上班也会有班味](http://www.movie.hkepx.cn/xiju/0710569.htm)
-- [iG选手赛后互相安慰](http://www.play.hengshemaoyi.cn/xiju/4785825.htm)
-- [卫健局回应夫妻入职药企1死1瘫痪](http://www.movie.hkepx.cn/movie/6905260.htm)
-- [曝美光将暂停 45 亿美元内存厂扩产，为何后续会出现要么 AI 崩要么内存涨价的局面？](http://www.daogukj.com/awcmqjvp/)
-- [广州多名小学生家长反映，孩子在校园周边小卖部签名即可赊账买零食，有学生月赊超千元，店家的做法合法吗？](http://www.movie.hkepx.cn/movie/1889048.htm)
-- [男子被雇主扇耳光 昏迷14个月离世](http://www.play.hengshemaoyi.cn/kongbu/8013958.htm)
-- [117岁奶奶跳舞走红长寿秘诀公布](http://www.movie.hkepx.cn/xiju/3264958.htm)
-- [为什么我们要保护并不稀有的麻雀？](http://www.movie.hkepx.cn/xiju/3561111.htm)
-- [横店短剧女主半年接不到戏，选择摆摊交房租，当 AI 短剧越来越火，未来真人短剧行业将如何发展？](http://www.movie.hkepx.cn/movie/7574443.htm)
-- [温瑞博0-4林昀儒，无缘法兰克福冠军赛男单4强，如何评价本场比赛？](http://www.daogukj.com/1562292)
-- [乘客削苹果遇急刹车水果刀插进心脏](http://www.movie.hkepx.cn/movie/3615150.htm)
-- [小糯米听到刘恺威有新女友的反应](http://www.daogukj.com/awvkssjz/)
-- [国乒六站冠军赛仅孙颖莎夺冠](http://www.movie.hkepx.cn/xiju/2201011.htm)
-- [iG0比3不敌GEN 无缘S16决赛](http://www.daogukj.com/chyzkava/)
-- [15省份局地降温超10°C](http://www.movie.hkepx.cn/movie/7646741.htm)
-- [农村大片! 大战外星人! 好莱坞都不敢这么拍](http://www.play.hengshemaoyi.cn/xiju/5500298.htm)
-- [于和伟等现身《伟大的长征》座谈会](http://www.movie.hkepx.cn/xiju/4668622.htm)
-- [孩子不在家夫妻还需要在一起吗](http://www.movie.hkepx.cn/xiju/5350690.htm)
-- [《完美婚礼》](http://www.play.hengshemaoyi.cn/kongbu/5770130.htm)
-- [央视曝光“免费鉴宝高价回收”骗局](http://www.play.hengshemaoyi.cn/xiju/8464120.htm)
-- [如何看待部分家长让孩子「只上半天学」，下午接回家自主安排？](http://www.play.hengshemaoyi.cn/xiju/1836033.htm)
-- [以《武林外传》的方式打开记者节](http://www.play.hengshemaoyi.cn/xiju/0953664.htm)
-- [WTT法兰克福冠军赛，陈熠0-4温特，无缘四强，国乒女单在本届比赛无一人晋级四强，如何评价她们的表现？](http://www.movie.hkepx.cn/xiju/1523464.htm)
-- [Chovy首次杀入S赛决赛](http://www.daogukj.com/trzudouf/)
-- [8省份大到暴雪](http://www.movie.hkepx.cn/movie/5890075.htm)
-- [中国空间站将迎首位外籍航天员，巴基斯坦载荷专家参加神舟二十四号任务，具有哪些意义？](http://www.play.hengshemaoyi.cn/xiju/7584454.htm)
-- [多地官宣调整中小学上学时间](http://www.daogukj.com/ttyygcbx/)
-- [王楚然表白完黄景瑜愣住了两秒](http://www.play.hengshemaoyi.cn/kongbu/8802368.htm)
-- [中方坚决反对荷兰干涉香港事务](http://www.movie.hkepx.cn/xiju/8218475.htm)
-- [一条很长很长很长很长的人......](http://www.daogukj.com/nosqlrao/)
-- [胡军晒儿子康康18岁成人礼照片](http://www.movie.hkepx.cn/movie/7252346.htm)
-- [沪武高速追尾事故已致1死4伤](http://www.daogukj.com/7158094)
-- [名字带棉不一定是棉花](http://www.daogukj.com/wcsvwhzc/)
-- [小睦遇到一只跟她长得很像的大肥鱼](http://www.movie.hkepx.cn/xiju/3051232.htm)
-- [为什么同样是医学季，offer 3 不像 offer 8 一样被骂？](http://www.play.hengshemaoyi.cn/kongbu/2688016.htm)
-- [GEN零封IG晋级决赛](http://www.movie.hkepx.cn/movie/1331447.htm)
-- [王俊凯卡清迈零点祝王源生日快乐](http://www.daogukj.com/5734952)
-- [如何看待 11 月 7 日 DeepSeek 再次崩溃？](http://www.daogukj.com/8321263)
-- [最强的战绩，铭刻于决斗场！](http://www.movie.hkepx.cn/movie/3209035.htm)
-- [原来古人才是最懂过冬的](http://www.play.hengshemaoyi.cn/xiju/8919398.htm)
-- [jiaqi失误](http://www.movie.hkepx.cn/movie/6665061.htm)
-- [女班主任连做4个引体向上](http://www.play.hengshemaoyi.cn/kongbu/4469544.htm)
-- [国乒法兰克福冠军赛全军覆没](http://www.daogukj.com/deblgxio/)
-- [消失10个月，我带着一个新生命，重新出发！](http://www.daogukj.com/rqxudlxg/)
-- [偷拍丈夫出轨妻子回应为何安装监控](http://www.movie.hkepx.cn/xiju/0051421.htm)
-- [高盛为何急着下调黄金目标价](http://www.movie.hkepx.cn/xiju/9290075.htm)
-- [一集上头，四亿假票！九十年代最疯狂的搞钱生意，重新狂飙！万字细嗦《谷雨》第一期 包含；剧情、细节、镜头语言、历史科普等](http://www.daogukj.com/jzplowxj/)
-- [悬崖上面倒垃圾，下游用水，这么漂亮的风景怎么下的去手的，肯定当地规范处理垃圾，让下游用上干净的水，还大自然绿水青山](http://www.movie.hkepx.cn/xiju/1909001.htm)
-- [S赛怀旧金曲《BLG带带我》](http://www.daogukj.com/ehzgpqqc/)
-- [消息称苹果折叠屏铰链问题查明](http://www.play.hengshemaoyi.cn/xiju/3422934.htm)
+- [大三男生宿舍手搓AI漫剧创收200万](http://www.movie.hkepx.cn/xiju/0710569.htm)
+- [妻子在家私装监控拍下丈夫出轨被认定非法证据，从法律角度该如何解读？](http://www.play.hengshemaoyi.cn/xiju/4785825.htm)
+- [雪后八达岭长城“长”满人](http://www.movie.hkepx.cn/movie/6905260.htm)
+- [面对畸形审美裹挟 该如何保持清醒](http://www.daogukj.com/awcmqjvp/)
+- [优酷被指在剧中插入占1/3屏幕，持续10秒的巨大广告，其回应可快进或自行关闭，你怎么看这种弹幕广告？](http://www.movie.hkepx.cn/movie/1889048.htm)
+- [NBA历史单场40+次数Top20](http://www.play.hengshemaoyi.cn/kongbu/8013958.htm)
+- [秦皇岛居民称20年没见过这么大雪](http://www.movie.hkepx.cn/xiju/3264958.htm)
+- [吴磊求拥抱被拒 大姐：不知道是明星](http://www.movie.hkepx.cn/xiju/3561111.htm)
+- [中国球员NBA常规赛两双仅3人](http://www.movie.hkepx.cn/movie/7574443.htm)
+- [为什么普遍认为橘猫相对其他猫更肥，是真的如此还是刻板印象呢？](http://www.daogukj.com/1562292)
+- [⚡弟子扫荡异界诡校⚡](http://www.movie.hkepx.cn/movie/3615150.htm)
+- [2627赛季NBA常规赛魔术 119:126 勇士，如何评价这场比赛？](http://www.daogukj.com/awvkssjz/)
+- [12分10篮板！杨瀚森NBA生涯首次两双](http://www.movie.hkepx.cn/xiju/2201011.htm)
+- [“最强”厄尔尼诺来了 今年是暖冬吗](http://www.daogukj.com/chyzkava/)
+- [五秒定律](http://www.movie.hkepx.cn/movie/7646741.htm)
+- [终于开始查寺院了](http://www.play.hengshemaoyi.cn/xiju/5500298.htm)
+- [男子被裁后成功追缴社保17万](http://www.movie.hkepx.cn/xiju/4668622.htm)
+- [多地中小学调整上学时间，推迟到校取消早读，会影响学习效率吗？双职工家庭如何解决孩子早晨无人看护的问题？](http://www.movie.hkepx.cn/xiju/5350690.htm)
+- [“这是给孩子的，不是给你的”](http://www.play.hengshemaoyi.cn/kongbu/5770130.htm)
+- [记者卧底调查女厕偷拍黑产](http://www.play.hengshemaoyi.cn/xiju/8464120.htm)
+- [手机里的隐私可能正在被“直播”](http://www.play.hengshemaoyi.cn/xiju/1836033.htm)
+- [《鸣潮》共鸣者战斗演示 | 莉莉](http://www.play.hengshemaoyi.cn/xiju/0953664.htm)
+- [13岁女孩每天跳绳1000下半月板受损](http://www.movie.hkepx.cn/xiju/1523464.htm)
+- [山东泰山vs成都蓉城](http://www.daogukj.com/trzudouf/)
+- [芒果买了三人行复播](http://www.movie.hkepx.cn/movie/5890075.htm)
+- [网友问今何在能否与江南一起上《后会友期》遭其无情拒绝并表示「江南是谁」，江南和今何在到底有啥爱恨情仇？](http://www.play.hengshemaoyi.cn/xiju/7584454.htm)
+- [“战争之王”内塔尼亚胡被抛弃了](http://www.daogukj.com/ttyygcbx/)
+- [王子璇火了](http://www.play.hengshemaoyi.cn/kongbu/8802368.htm)
+- [陪看中超：蓉城封王还是黑马逆袭](http://www.movie.hkepx.cn/xiju/8218475.htm)
+- [曝12岁小糯米英国留学](http://www.daogukj.com/nosqlrao/)
+- [S赛怀旧金曲《BLG带带我》](http://www.movie.hkepx.cn/movie/7252346.htm)
+- [张水华广西罗城半马破纪录夺冠](http://www.daogukj.com/7158094)
+- [方程豹钛9车型月底上市](http://www.daogukj.com/wcsvwhzc/)
+- [地平线6这样漂能上首页吗](http://www.movie.hkepx.cn/xiju/3051232.htm)
+- [40岁男子用36分钟聊爱情爆火](http://www.play.hengshemaoyi.cn/kongbu/2688016.htm)
+- [杨瀚森两双 开拓者惨败马刺](http://www.movie.hkepx.cn/movie/1331447.htm)
+- [为什么97天龙八部的粉丝和03天龙八部粉丝之间水火不容？](http://www.daogukj.com/5734952)
+- [那天在丹霞山是在爬不动了，于是坐了人力轿子......](http://www.daogukj.com/8321263)
+- [曝迪丽热巴没买房常年住酒店](http://www.movie.hkepx.cn/movie/3209035.htm)
+- [一条很长很长很长很长的人......](http://www.play.hengshemaoyi.cn/xiju/8919398.htm)
+- [TheShy希望Chovy夺冠](http://www.movie.hkepx.cn/movie/6665061.htm)
+- [张雪称收到重庆大学简历 200 份，不存在学生高傲企业傲慢问题，这一观点是否符合当下校招实际？](http://www.play.hengshemaoyi.cn/kongbu/4469544.htm)
+- [中国县城消费崛起](http://www.daogukj.com/deblgxio/)
+- [为什么说健身房练完后器械上面的杠铃片要归位？](http://www.daogukj.com/rqxudlxg/)
+- [陪看中超收官战](http://www.movie.hkepx.cn/xiju/0051421.htm)
+- [二相乐园到底是什么？](http://www.movie.hkepx.cn/xiju/9290075.htm)
+- [小糯米听到刘恺威有新女友的反应](http://www.daogukj.com/jzplowxj/)
+- [小糯米才12岁](http://www.movie.hkepx.cn/xiju/1909001.htm)
+- [金晨从上海搬家到三亚](http://www.daogukj.com/ehzgpqqc/)
+- [秦皇岛积雪超20厘米](http://www.play.hengshemaoyi.cn/xiju/3422934.htm)
 
 </details>
 
 ## 原始来源
 
-- [GEN战胜iG](https://s.weibo.com/weibo?q=GEN%E6%88%98%E8%83%9CiG)
+- [人死前百分百想妈妈](https://s.weibo.com/weibo?q=%E4%BA%BA%E6%AD%BB%E5%89%8D%E7%99%BE%E5%88%86%E7%99%BE%E6%83%B3%E5%A6%88%E5%A6%88)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f5df565494ff11de2282 -->
+<!-- content-fingerprint: 4d28e59c7c50222b6fb7 -->
