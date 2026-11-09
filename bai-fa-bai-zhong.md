@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# “把想法带到中国就能实现”
+# 入境游已是next level
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7618572 · 更新：2026-11-09T10:41:43+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7615795 · 更新：2026-11-09T18:24:25+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，““把想法带到中国就能实现””位列第 2 位，公开热度指标为 7618572。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“入境游已是next level”位列第 2 位，公开热度指标为 7615795。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：第九届中国国际进口博览会正在上海举行，超4000家境外企业携新技术、新产品亮相“四叶草”。有美国企业创始人感慨：在美国和加拿大产生的想法可以带到中国，发展成一种全新的事物，这样的事情除了中国，在任何其他地方都很难实现。
+来源公开摘要显示：今年以来，“China Cool”“Chinamaxxing”等接连在海外出圈，一个真实可感、充满烟火气的中国正在被世界看见。热词一个接一个翻新，反映的是入境游的一系列新变化。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [透过关键词解码进博会](qian-jun-wan-ma.md)
-- [进博会上的“运动经济”观察](wan-zi-qian-hong.md)
-- [黄渤自曝今年几乎没戏拍，如何看待实力派演员陷入空窗期？](niao-yu-hua-xiang.md)
-- [【2026全球总决赛】11月8日 IG vs GEN](shan-qing-shui-xiu.md)
+- [为了守护万家灯火他们迎难而上](qian-jun-wan-ma.md)
+- [进博会的三种时间刻度](wan-zi-qian-hong.md)
+- [5吨的大象都会被吃，骆驼却几乎无天敌，为啥没有食肉动物吃它呢？](niao-yu-hua-xiang.md)
+- [Bin：世一上只是玩梗，我认为T1比GEN更强！](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [BLG战胜T1 挺进S16决赛](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [央视曝光后 江西赣州连夜成立调查组](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [演员王雷跪地庆祝大连英博夺冠](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [“从此11月8日忆山东兄弟”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [韦世豪 成都蓉城](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [寒潮结束后 超级大回暖要来了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [“顺其自然”捐1907万 身份无人知晓](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [日本地铁太压抑了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [曝黄乐与朋友打赌能请来黄仁勋](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [许飞人品](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [张本智和法兰克福冠军赛男单夺冠](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [如何评价 CSP-J/S 2026 第二轮多省多名考生代码高度近似，而 CCF 不受理民间举报？](http://www.daogukj.com/nksrlhgk/)
-- [演员王雷跪地庆祝大连英博夺冠](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [里夫斯43分湖人胜活塞](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [BLG对战GEN预测](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [出现在餐桌上的清明上河图](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [幼师毕业的 21 岁女生转行当环卫工称「待遇好」，折射出年轻人怎样的就业观变化？](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [破坏秦始皇陵最高可罚千万](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [人类饲养指南](http://www.daogukj.com/7870973)
-- [雪后八达岭长城“长”满人](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [“今日我虽死，却还是！！！”](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [Xun艺高人胆大](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [Bin 世一上](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [MC速通排位赛周赛世界第一，中国第二](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [油价预计将大幅下调](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [幼师毕业的 21 岁女生转行当环卫工称「待遇好」，折射出年轻人怎样的就业观变化？](http://www.daogukj.com/nksrlhgk/)
+- [日本地铁太压抑了](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [英伟达](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [杨幂一下穿了两套祖海高定](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [“白榴莲”要来中国了](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [马斯克爆料称「软银正在违约燃气轮机订单」，是真的吗？这一爆料对市场的影响有多大？](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [英伟达大劫案细节披露](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [《绝区零》赛维里安EP | Gambit](http://www.daogukj.com/7870973)
+- [攻击-11隐身无人机最新细节画面公布](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [NCT DREAM《Boogie Woogie》MV](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [张雪机车米兰展车零件被偷光](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [伊朗称在霍尔木兹海峡摧毁敌导航系统](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [谁一周后的播放量高，谁就是流量王！！！【流量王番外篇红队】](http://www.movie.hkepx.cn/movie/7065901.htm)
 - [自媒体曝胖东来爆火的卡蓓诺洗发水疑为非日本制造，胖东来否认产地造假并将启动维权，哪些信息值得关注？](http://www.daogukj.com/7724801)
-- [多地向市民免费赠花](http://www.daogukj.com/oxaknnjh/)
-- [疑似秦始皇儿子头骨面容复原图公布](http://www.daogukj.com/kxqitgac/)
-- [透过关键词解码进博会](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [《崩坏：星穹铁道》星神★阿哈角色PV——「让骰子飞」](http://www.daogukj.com/eymoxoal/)
-- [BLG成首支S赛BO5战胜T1的LPL战队](http://www.daogukj.com/sblnbief/)
-- [成都蓉城会被这次惨痛的丢冠经历击垮吗？](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [汝南那么好听，为什么要改成驻马店？](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [S赛怀旧金曲《BLG带带我》](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [米哈游你是真想再赢啊！因缘精灵幸福pv逐帧拆解](http://www.daogukj.com/mqwqpttl/)
-- [大连主帅被泼啤酒滑倒光速变脸](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [20公斤陨石砸进石家庄农田](http://www.daogukj.com/dubydsdf/)
-- [《完美婚礼》](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [大连GDP完成“逆袭之战”](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [黄渤自曝今年几乎没戏拍，如何看待实力派演员陷入空窗期？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [ON萨勒芬妮大招控到T1四人](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [【2026全球总决赛】11月8日 IG vs GEN](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [白小纯口碑反转](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [金子涵前几天露宿街头](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [韦世豪 成都蓉城](http://www.daogukj.com/oioomhrz/)
-- [因试用期 6 个月没转正，离职人员篡改后台数据致企业数百万损失，有哪些警示？职场遇这种情况该怎么处理？](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [特朗普：“铁门”特遣行动正全面展开](http://www.daogukj.com/btwajvnj/)
-- [中央气象台发布大风+寒潮双预警](http://www.daogukj.com/8398590)
-- [南京辟谣“31岁医生被刺身亡”](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [秦皇岛居民称20年没见过这么大雪](http://www.daogukj.com/4390556)
-- [Faker笑着向粉丝告别](http://www.daogukj.com/skeidyel/)
-- [韦世豪停赛缺席中超最后4轮，成都蓉城4连败最终丢冠，有因果关系吗？他的停赛影响有多大？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [内塔尼亚胡时代即将谢幕了吗](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [谁再说后会友期是演的](http://www.daogukj.com/jdhlltmp/)
-- [疑秦始皇儿子头骨面容复原图公布](http://www.daogukj.com/inrtjmju/)
-- [“这是给孩子的，不是给你的”](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [胖东来：哪怕赔付到破产也要坚守原则](http://www.daogukj.com/9107163)
-- [东南亚国家里是不是只有越南不搞电信诈骗？](http://www.daogukj.com/ypwsrnna/)
-- [实验猴涨至26万一只，部分养殖企业已无猴可售，会对医药行业产生哪些影响？涨价热潮可能还会持续多久？](http://www.daogukj.com/7314066)
-- [热巴住酒店15年的真实原因](http://www.daogukj.com/3027269)
-- [大连英博建队 5 年完成夺冠逆袭，如何评价大连队的表现，大连城市的足球文化对他们有多大加成？](http://www.daogukj.com/5993003)
+- [“顺其自然”再捐111万元](http://www.daogukj.com/oxaknnjh/)
+- [全身麻醉醒来像「跳过了」几个小时，睡眠为什么没有这种感觉？](http://www.daogukj.com/kxqitgac/)
+- [为了守护万家灯火他们迎难而上](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [隔夜白开水不能喝是真是假](http://www.daogukj.com/eymoxoal/)
+- [W盛典红毯](http://www.daogukj.com/sblnbief/)
+- [上海微电子新一代光刻机模型亮相，该成果实现量产还需要攻克哪些核心难点？](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [如何评价 Faker 在 S16 全球总决赛上的表现？](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [我的世界粒子——建筑](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [BO5战胜Faker！ BLG战胜T1挺进决赛！BLG决赛加油！【2026英雄联盟全球总决赛】](http://www.daogukj.com/mqwqpttl/)
+- [匿名爱心人士“顺其自然”再捐111万](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [让女性站立小便就是真的女性友好吗](http://www.daogukj.com/dubydsdf/)
+- [这游戏是很多人的一辈子](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [无锡出现女用站立式小便厕位](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [5吨的大象都会被吃，骆驼却几乎无天敌，为啥没有食肉动物吃它呢？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [青稚疑似删的是CD录音](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [Bin：世一上只是玩梗，我认为T1比GEN更强！](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [iG投资人爆料爱笑聊天截图](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [中央网信办整治科普健康类网络谣言](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [许飞人品](http://www.daogukj.com/oioomhrz/)
+- [楚钧：Nice！这样我才能看到左右手大战！](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [大连几乎所有饭店宣布夺冠就免单](http://www.daogukj.com/btwajvnj/)
+- [台网红馆长：用选票狠狠教训民进党](http://www.daogukj.com/8398590)
+- [黄仁勋出轨对象公司曾采购300亿芯片](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [特朗普：如果没我以色列早就不复存在](http://www.daogukj.com/4390556)
+- [美国人向AI宣战了](http://www.daogukj.com/skeidyel/)
+- [「世另我」左右手首次在全球总决赛顶峰相见，你看好谁最终夺得 S16 总决赛冠军？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [奶茶越做越厚了](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [哈尔滨烤地瓜原价1688到手8元](http://www.daogukj.com/jdhlltmp/)
+- [王楚钦发文反思：重新审视自己](http://www.daogukj.com/inrtjmju/)
+- [日本前首相石破茂被处分](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [太原火灾致14死负责人被控制](http://www.daogukj.com/9107163)
+- [【神人短剧】🔥最新力作🔥农村大席之抽象盛宴，联动mj宇宙【AI全民制作人】](http://www.daogukj.com/ypwsrnna/)
+- [如何看待蔡少芬一家五口在中国香港住83平米房子却说是「豪宅」，很知足？](http://www.daogukj.com/7314066)
+- [菲外交部就涉华言论敲打防长](http://www.daogukj.com/3027269)
+- [谁一周后的播放量高，谁就是流量王！！！【流量王番外篇蓝队】](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [“把想法带到中国就能实现”](https://www.baidu.com/s?wd=%E2%80%9C%E6%8A%8A%E6%83%B3%E6%B3%95%E5%B8%A6%E5%88%B0%E4%B8%AD%E5%9B%BD%E5%B0%B1%E8%83%BD%E5%AE%9E%E7%8E%B0%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [入境游已是next level](https://www.baidu.com/s?wd=%E5%85%A5%E5%A2%83%E6%B8%B8%E5%B7%B2%E6%98%AFnext+level&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1948d599128a40dfcfcd -->
+<!-- content-fingerprint: b07b8724e3ad20fe7f84 -->
