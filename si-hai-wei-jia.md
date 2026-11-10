@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 胖东来发布系统化问题处理标准，称赔到破产也要坚守原则，落地难点在哪？
+# 如何评价比亚迪大唐被曝存在轮毂出厂前后装反问题，比亚迪售后称确有部分批次发生该情况？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：626 万热度 · 分类：问答 · 更新：2026-11-10T11:28:40+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：1807 万热度 · 分类：问答 · 更新：2026-11-10T19:40:54+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“胖东来发布系统化问题处理标准，称赔到破产也要坚守原则，落地难点在哪？”位列第 1 位，公开热度指标为 626 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价比亚迪大唐被曝存在轮毂出厂前后装反问题，比亚迪售后称确有部分批次发生该情况？”位列第 1 位，公开热度指标为 1807 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月8日，胖东来商贸集团发布《胖东来最新解决问题的标准方式系统》，系统化公开其面对公众质疑、商品问题及经营纠纷时的处理理念与底线原则。#胖东来给出底线承诺#胖东来表示，通过近几年胖东来在网络上出现的各个方面的问题，以及胖东来这几年面对问题的态度转变经验和解决方式方法的经验与进步，胖东来制定了更为清晰的围绕着理性、科学原则的解决问题的理念标准系统。 发文指出，面对问题，情绪化会放大问题。因此，在具体处理时，胖东来将质疑及问题视为机会，希望通过积极化解质疑(包括通过法律途径解决)，把所谓的“坏事”变成“好事”，实现双方的相互信任。在做事的方法上，强调进行理
+来源公开摘要显示：11月10日，深圳市市场监督管理局坪山分局马峦监管所工作人员告诉《正在新闻》，有收到相关的投诉情况，也关注到相关舆情，目前具体情况正在调查核实中。 《正在新闻》此前报道，11月9日，比亚迪客服告诉《正在新闻》，客服暂未接到相关通知。 宁波一比亚迪售后工作人员告诉《正在新闻》，确有部分批次发生该情况，可提供车架号查询是否出现该情况。 上海一比亚迪售后工作人员告诉《正在新闻》，前后轮毂装反是厂家方面问题，部分批次确有该情况，“有天一位9月生产（车辆）的车主来检查，没有发现该问题。” 比亚迪大唐EV前后轮毂装反，市监所：正调查核实中_腾讯新闻比亚迪大唐EV前后
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [当我死去，群山不会震颤，河水不会倒流｜AI长片《汤症》【AI全民制作人】](wu-gu-feng-deng.md)
-- [零元面馆每天出面上千碗 排百米长队](liu-shen-wu-zhu.md)
-- [东北成人礼割双眼皮是真的吗](qi-shang-ba-xia.md)
-- [华为推出全新小折叠电脑](ba-mian-ling-long.md)
+- [Faker了一辈子的蹲方魂 终于…](wu-gu-feng-deng.md)
+- [几十年前的大白兔糖纸为啥火到今天](liu-shen-wu-zhu.md)
+- [韩网倒戈力挺BLG夺冠](qi-shang-ba-xia.md)
+- [邵永灵：高市出席APEC峰会前疯狂加戏](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [女儿兴高采烈地向爸爸述说第一笔工资的用途，全是用来买她喜爱的东西，一分都不考虑家长。这个问题怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [王楚钦孙颖莎将参赛混团世界杯](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [问界M9断轴罗生门](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [国际油价集体大跌 布油跌6.24%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [晨起后有这4个习惯的人更长寿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [售价 2499 元平衡指环号称戴上就「推不倒」遭质疑，企业称将请院士级科学家说明，这背后有科学依据吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [动物都知道躲避天敌，而为什么几千年了，昆虫还是不知道躲着人类？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [《虚环》PV03｜致过去与未来的歌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [这是我等待了一生的巨浪](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [《鸣潮》共鸣者「莉莉」PV | 忘记恐惧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [带状疱疹进入高发期](http://www.daogukj.com/7394302)
-- [给孩子做了一个半飞行的玩具车](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [陈建斌直言 AI 陈建斌已经做到以假乱真，但 AI 只能提供丰富性，真人演员提供精神与灵魂，你认同吗？](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [女儿兴高采烈地向爸爸述说第一笔工资的用途，全是用来买她喜爱的东西，一分都不考虑家长。这个问题怎么看？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [德系三巨头的“中国提款机”彻底熄火](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [中央网信办整治科普健康类网络谣言](http://www.daogukj.com/thgdlrxk/)
-- [鹤岗精品住宅均价超4800元每平方米](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [锐评BLG打破T1对LPL的十三年来的百胜率神话！击碎梦魇！找回自己！这期不串直接夸！](http://www.daogukj.com/qqvbmaen/)
-- [等风热吻你全阵容官宣](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [东北成人礼割双眼皮是真的吗](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [你我一起，改变世界.](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [泸州花坛藏尸案一审宣判](http://www.daogukj.com/6313812)
-- [每天快走vs抽空跑步谁更长寿](http://www.daogukj.com/wczbkkvt/)
-- [新三国up锐评老三国27：我死罪虽免，亦当割发代首！](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [网友不买账王子璇白小纯恋情澄清](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [浦江潮涌共赴进博之约](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [山姆多款始祖鸟加拿大鹅被抢空，有商品比官方便宜近5000元，为什么能卖这么便宜？背后是怎样的商业策略？](http://www.movie.hkepx.cn/xiju/4060100.htm)
-- [当我死去，群山不会震颤，河水不会倒流｜AI长片《汤症》【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [男子月薪过万公司按 4 千基数缴社保被裁后追讨，暴露了哪些问题？该如何维权？](http://www.daogukj.com/jjlkzcvz/)
-- [许飞：我作茧自缚](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [广东妈妈认为“山东饭”能长高，坚持为6岁儿子做疙瘩汤、煎饼等，一月后长高1.3厘米，山东饭这么神奇吗？](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [【爱你】王力宏&王心凌「最好的地方Ⅱ」官摄 | 限定 “双王组合”首次同台，甜度加倍！](http://www.daogukj.com/drcaefzl/)
-- [最夸张的偷情怎么偷歪了美国的世界线？](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [白小纯说去韩国打了水光针](http://www.daogukj.com/rrxeunix/)
-- [Claude Fable 5.2 正式发布了，大家怎么看它的实际能力和性价比？](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [血糖刺客被很多人当饭吃](http://www.daogukj.com/qekijaaa/)
-- [王楚钦孙颖莎参赛混团世界杯](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [共绘“健康中国”美好生活图景](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
-- [男子因亲人去世失联 家属：人不在了](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [胖东来“日本产洗发水”疑云](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [【暗区突围手游】 全民防火，突围有我！](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [巴拉圭韦诺银行爆雷致 300 万人无法取款，总统遭弹劾被捕，这场危机快速失控的核心原因是什么？](http://www.daogukj.com/4880877)
-- [就是等到你来捡咯](http://www.daogukj.com/gyblgzpw/)
-- [石家庄陨石确认为普通球粒陨石](http://www.daogukj.com/3742193)
-- [《阴阳师》笼梦祸津神CG丨祸至无日（CV：中野彩麻）](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [2/3国人没吃够大豆](http://www.daogukj.com/yhmvbvtt/)
-- [《伟大的长征》彩蛋](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [石家庄天降陨石最大单体35公斤](http://www.daogukj.com/4405323)
-- [问界M9断轴罗生门](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [选举大败特朗普和马斯克这下惨了](http://www.daogukj.com/ydbbqbuc/)
-- [花坛藏尸案一人死刑一人死缓](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [等风热吻你](http://www.daogukj.com/5927597)
-- [金晨：没澄清 不住海边 没有妹妹](http://www.daogukj.com/3691526)
-- [小米四款车全部上榜](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [考研最后的冲刺阶段，做哪些事可以离「上岸」更近一步？](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [On萨勒芬妮大招测试：如果猴子不放分身，能改变时间线吗？](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [江苏姑娘赴河北找到三四块流星陨石](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [60岁李若彤走红毯前做了1000个卷腹](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [人心散了，队伍不好带了！白宫开演“狼人杀”](http://www.daogukj.com/9555051)
-- [AI短剧《持械入宋》为什么能火爆出圈？](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [上帝之光：当人类第一次拥有操纵大脑的能力](http://www.daogukj.com/7394302)
+- [【纪录片】蓝色星球 第三季 02 辽阔远洋](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [重庆多只小鸟撞商场玻璃幕墙死亡](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [售价 2499 元平衡指环号称戴上就「推不倒」遭质疑，企业称将请院士级科学家说明，这背后有科学依据吗？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [媒体人谈猪价创10年新低](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [湖南株洲物流仓库突发大火系谣言](http://www.daogukj.com/thgdlrxk/)
+- [李乃文钟楚曦携手亮相金鸡奖红毯](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [花坛藏尸案凶手整容前后对比照曝光](http://www.daogukj.com/qqvbmaen/)
+- [花坛藏尸案丈夫同意杀人原因曝光](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [韩网倒戈力挺BLG夺冠](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [重庆江北机场辟谣男孩裤脚卷入扶梯](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [（内含新忍设定）末日规则怪谈？误入诡异校园的烧脑推理！](http://www.daogukj.com/6313812)
+- [伊朗向特朗普发48小时最后通牒，要么接受德黑兰提出的最新方案，要么面临军事冲突升级，特朗普会如何选择？](http://www.daogukj.com/wczbkkvt/)
+- [寒潮过后大回暖](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [金鸡奖内场座位图](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [进博会大型种草现场](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [幼童挂在高楼窗外 目击者：看得腿发软](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [Faker了一辈子的蹲方魂 终于…](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
+- [特斯拉销售回应10月销量](http://www.daogukj.com/jjlkzcvz/)
+- [兄弟往下跳！我们会接住你的](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [女子称90分钟被星巴克提醒下单5次](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [绝味找了厉娜 周黑鸭找了许飞](http://www.daogukj.com/drcaefzl/)
+- [满月宝宝眼内异物10天竟是月嫂美睫](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [如何评价华为2026年11月发布的鸿蒙折叠电脑 MateBook Fold S，背面的小屏有什么用?](http://www.daogukj.com/rrxeunix/)
+- [低智商很明显输给高情商](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
+- [金鸡奖红毯](http://www.daogukj.com/qekijaaa/)
+- [特朗普称似乎没必要再对伊朗采取军事行动，国际油价早盘一度跌超5%，中东局势真的进入阶段性降温了吗？](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [消费新场景活力迸发](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [失业缓冲期首次出现在国家政策内，以应对人工智能带来的冲击，怎么看待这一政策？能够有效落实、缓解焦虑吗？](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
+- [理想汽车已向警方报案](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [主持人实测滴滴21单平均抽成13.22%，为何司机普遍感觉抽成超过20%？抽走的钱最终流向了哪里？](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [大连22岁失联男子遗体已找到](http://www.daogukj.com/4880877)
+- [刘昊然：在金鸡奖能干的活全干完了](http://www.daogukj.com/gyblgzpw/)
+- [学龄人口达峰 幼儿园小学初中资源优化](http://www.daogukj.com/3742193)
+- [黄仁勋带她吃的饭店，我带你们去看看](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [惠英红朱一龙亮相金鸡奖红毯](http://www.daogukj.com/yhmvbvtt/)
+- [央视披露“花坛藏尸案”细节](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [俄美乌三方谈判中，欧洲三国集团将派联合代表团赴阿布扎比，但不确定能否正式参与，欧洲为何不能「入场」？](http://www.daogukj.com/4405323)
+- [《虚环》PV03｜致过去与未来的歌](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [EDG官宣Smoggy离队](http://www.daogukj.com/ydbbqbuc/)
+- [《人皇步》](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [特厨探店|探店这么多年，没想到还是会震惊！](http://www.daogukj.com/5927597)
+- [女儿兴高采烈地向爸爸述说第一笔工资的用途，全是用来买她喜爱的东西，一分都不考虑家长。这个问题怎么看？](http://www.daogukj.com/3691526)
+- [女子月薪2万被裁才知社保基数按4000算](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [早睡一小时比跑步30分钟更减肥吗](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [耗时5个月，5万元成本，我用AI拍了一部68分钟的原创中国科幻长片《南天门计划：灰蚀危机》【ai全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [小米机器人进厂打工了](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [胖东来“日本产洗发水”疑云](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [黄景瑜感情时间线](http://www.daogukj.com/9555051)
+- [金鸡奖](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [胖东来发布系统化问题处理标准，称赔到破产也要坚守原则，落地难点在哪？](https://www.zhihu.com/question/2102955820770125630)
+- [如何评价比亚迪大唐被曝存在轮毂出厂前后装反问题，比亚迪售后称确有部分批次发生该情况？](https://www.zhihu.com/question/2102801912580067910)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: dfdeb80296c8ac261a14 -->
+<!-- content-fingerprint: 7322c86fa3c5713f5f47 -->
