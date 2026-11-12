@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《崩坏：星穹铁道》EP：「无中生有」
+# 在深圳科技触手可及
 
-> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：662944 · 分类：手机游戏 · 更新：2026-11-12T18:12:03+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7616070 · 更新：2026-11-13T02:23:26+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《崩坏：星穹铁道》EP：「无中生有」”位列第 2 位，公开热度指标为 662944，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“在深圳科技触手可及”位列第 2 位，公开热度指标为 7616070。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当第一声「阿哈」响起，「欢愉」将再度诞生。 在虚与实的边缘起舞吧，今夜，奇迹将由众生缔造！
+来源公开摘要显示：2026年APEC领导人会议周新闻中心启用，新闻中心发布的媒体参访线路以“科技、文化、生态、城市”为主题，全方位、多角度展示深圳城市风貌与发展活力。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [中国人餐桌上的APEC含量有多高](bai-fa-bai-zhong.md)
-- [天涯共此诗](qian-jun-wan-ma.md)
-- [进博会把全球南方好物送到中国](wan-zi-qian-hong.md)
-- [奔驰 CEO 称「在中国，车要大，非常大，大得惊人」，实际情况是这样吗？为什么国内外会存在这样的区别？](niao-yu-hua-xiang.md)
+- [APEC中国年看中国外贸底色](bai-fa-bai-zhong.md)
+- [中国经济三季报亮点解析](qian-jun-wan-ma.md)
+- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](wan-zi-qian-hong.md)
+- [英伟达公司宣布：黄仁勋辞职](niao-yu-hua-xiang.md)
 
 ## 站内推荐
 
-- [【纪录片】人生一串 第四季 02 心惊肉跳](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [学生没带课本被打骨折 涉事教师停职](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [冲击全球最大IPO的招股书像恐怖小说](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [金价 跌回一年前](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [男子应聘司机干了6小时倒贴2万](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [店老板为连吃7碗米饭母女放钱系摆拍](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [王腾谈黄仁勋辞职](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [白小纯王子璇合影](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [男子怀疑女儿是外星人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [肖战对接为谍报上不封顶片方发声](http://www.daogukj.com/8025131)
-- [搬家公司9公里收费13900元，不给钱就扣货威胁，能怎么规避这种「套路搬」团伙？遇到这种情况该怎么办？](http://www.daogukj.com/1259810)
-- [RTX5080 售价暴跌 4000 元，这波降价核心原因是什么，现在适合入手吗？](http://www.daogukj.com/3123281)
-- [结婚“随礼”14000元 民警：不同意](http://www.movie.hkepx.cn/movie/0347416.htm)
-- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](http://www.daogukj.com/mojqmowq/)
-- [中方就中俄美元首会晤保持着沟通](http://www.movie.hkepx.cn/movie/8583613.htm)
-- [为什么有工作意愿和能力的人仍会失业？](http://www.movie.hkepx.cn/movie/7389207.htm)
-- [女子在西西弗书店买了200元的书，想坐咖啡区却被拒，店方称需另行消费才能入座，这一规定合理吗？](http://www.movie.hkepx.cn/movie/7310795.htm)
-- [“甲醛白菜”等18起案件被挂牌督办](http://www.daogukj.com/7749326)
-- [金价 跌回一年前](http://www.daogukj.com/4323075)
-- [【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了](http://www.movie.hkepx.cn/movie/9488458.htm)
-- [网传腾讯裁员 15-20%，腾讯辟谣「裁员50%」的说法，实际什么情况？可能涉及哪些业务？](http://www.movie.hkepx.cn/movie/2374212.htm)
-- [间谍过家家·福杰夫妇：非凡之爱](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
-- [你做过哪些不算「标准答案」，却「更接近自己」的选择？](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
-- [张雪回应“读书无用论”](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
-- [决不能让一个梗毁掉一个孩子](http://www.movie.hkepx.cn/movie/6531033.htm)
-- [德芙广告宣扬错误婚恋观 被罚80万](http://www.daogukj.com/spbreewj/)
-- [网红「疯狂小马哥」离世，家人称是「打 PK」被要求喝20瓶酒中途猝死，连麦者与平台应承担责任吗？](http://www.daogukj.com/gopjchhj/)
-- [“这是解锁了什么特殊CG吗？！”](http://www.movie.hkepx.cn/xiju/5337621.htm)
-- [教育局回应女孩忘带课本被老师体罚](http://www.daogukj.com/niwgdgqs/)
-- [《白银之城》角色PV - 馨西亚二世：到月下的城邦去](http://www.daogukj.com/nhoydtix/)
-- [王楚然近视七百度的原因找到了](http://www.movie.hkepx.cn/xiju/9013758.htm)
-- [甲醛白菜硫磺竹笋等案被挂牌督办](http://www.daogukj.com/8222516)
-- [主包从小就喜欢长发](http://www.daogukj.com/2198681)
-- [“喝大水”越多越健康？谣言](http://www.daogukj.com/qjzpvrwa/)
-- [油价13日起下调](http://www.movie.hkepx.cn/xiju/3667958.htm)
-- [鱼换万物-烧烤](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
-- [A股47只个股放量拉升](http://www.movie.hkepx.cn/xiju/0423343.htm)
-- [郭德纲在天津举办收徒仪式](http://www.movie.hkepx.cn/xiju/6831166.htm)
-- [把旧发条装新身体上会发生什么？](http://www.movie.hkepx.cn/xiju/7701717.htm)
-- [《后会友期》填补了当代人的情感匮乏](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
-- [女孩没带课本被老师打到抽搐倒地](http://www.movie.hkepx.cn/xiju/8472152.htm)
-- [台陆军前总司令：台湾人就是中国人](http://www.daogukj.com/5336794)
-- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](http://www.daogukj.com/6170092)
-- [大美回应偷税漏税](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
-- [高三生在拼豆店干坐1小时，留下5元钱、道歉纸条和父母电话，为什么能引发热议？给孩子教育留下怎样的启发？](http://www.daogukj.com/3387155)
-- [金晨现在就出发4路透](http://www.movie.hkepx.cn/xiju/5963440.htm)
-- [泡面风波](http://www.daogukj.com/9693904)
-- [如何看待第44届金摇杆奖年度终极游戏被《生化危机9：安魂曲》拿下，《影之刃零》遗憾屈居第二？](http://www.movie.hkepx.cn/movie/9348798.htm)
-- [网友重庆街头偶遇肖战](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
-- [石破茂等人为何反对高市“减税猛药”](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
-- [徐艺洋说很难和黄子韬一起陪孩子](http://www.movie.hkepx.cn/movie/1705456.htm)
-- [把两只怀孕的蚁后分别放在不同生态，100天后谁发展的更厉害？](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
-- [中美就300亿对等降税保持密切沟通](http://www.movie.hkepx.cn/xiju/4301515.htm)
-- [冲击全球最大IPO的招股书像恐怖小说](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
-- [林生斌澄清声明](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
-- [《洛克王国：世界》全新活动预告「阿布重逢记」](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
-- [林生斌说有且仅有一个孩子](http://www.movie.hkepx.cn/xiju/7431738.htm)
-- [中国人餐桌上的APEC含量有多高](http://www.daogukj.com/pmdpqyts/)
-- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/movie/5542629.htm)
+- [郭德纲在天津举办收徒仪式](http://www.daogukj.com/8025131)
+- [补档：钢成军的秘密被灭建国发现了，这下可惨了](http://www.daogukj.com/1259810)
+- [《反方向の忠》](http://www.daogukj.com/3123281)
+- [向太问许飞为什么当时不解开误会](http://www.movie.hkepx.cn/movie/0347416.htm)
+- [店老板为连吃7碗米饭母女放钱系摆拍](http://www.daogukj.com/mojqmowq/)
+- [怎么看 Anthropic IPO 提到 Claude适配全芯片训练和推理，接入 AMD只用 3 天？](http://www.movie.hkepx.cn/movie/8583613.htm)
+- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](http://www.movie.hkepx.cn/movie/7389207.htm)
+- [间谍过家家·福杰夫妇：非凡之爱](http://www.movie.hkepx.cn/movie/7310795.htm)
+- [金价再迎暴跌专家劝别抄底](http://www.daogukj.com/7749326)
+- [男子怀疑女儿是外星人](http://www.daogukj.com/4323075)
+- [这不是电影画面这里是深圳](http://www.movie.hkepx.cn/movie/9488458.htm)
+- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.movie.hkepx.cn/movie/2374212.htm)
+- [伏笔满满、高层改戏、英雄崩溃！漫威口碑“系列最差”的《复联2》到底冤不冤？](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
+- [杨世光2026-11-11确切的说国产EUV2027年8月发布，如何看待这个消息？](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
+- [你王菲啊 厉娜](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
+- [姜妍太适合当主持了](http://www.movie.hkepx.cn/movie/6531033.htm)
+- [刘欢妻子长文](http://www.daogukj.com/spbreewj/)
+- [疑似《崩坏：星穹铁道》星神★阿哈★真人角色PV流出](http://www.daogukj.com/gopjchhj/)
+- [0.01分赢下保研第二天就被室友举报](http://www.movie.hkepx.cn/xiju/5337621.htm)
+- [英伟达临时CEO首次发声](http://www.daogukj.com/niwgdgqs/)
+- [零元面馆周边商户：我们房贷都还不起](http://www.daogukj.com/nhoydtix/)
+- [专家解析金价急跌](http://www.movie.hkepx.cn/xiju/9013758.htm)
+- [如何评价黄仁勋任职英伟达CEO期间的全部贡献？](http://www.daogukj.com/8222516)
+- [退役特级飞行员称中国空军发展太快](http://www.daogukj.com/2198681)
+- [“商家扬言取消外卖”系引流套路](http://www.daogukj.com/qjzpvrwa/)
+- [女子在西西弗书店买了200元的书，想坐咖啡区却被拒，店方称需另行消费才能入座，这一规定合理吗？](http://www.movie.hkepx.cn/xiju/3667958.htm)
+- [翻山覆海，以我之名｜2026全球总决赛冠亚军决赛宣传片](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
+- [荷兰法院已驳回捷豹路虎突击调取比亚迪研发资料的申请，还有哪些信息值得关注？这一裁定意味着什么？](http://www.movie.hkepx.cn/xiju/0423343.htm)
+- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/xiju/6831166.htm)
+- [马化腾最新内部讲话](http://www.movie.hkepx.cn/xiju/7701717.htm)
+- [英伟达大跌13%](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
+- [房子已经过剩，为什么一直还在新盖楼盘？](http://www.movie.hkepx.cn/xiju/8472152.htm)
+- [如何评价专访《崩坏：星穹铁道》安承男：当星神步入战局，回合制策略的演进、颠覆与平衡？](http://www.daogukj.com/5336794)
+- [【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了](http://www.daogukj.com/6170092)
+- [男子失业断供房贷 法院暂不拍卖房产](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
+- [他真的太优雅了！灰太狼&红太狼【非凡之爱】](http://www.daogukj.com/3387155)
+- [拜登：若早知患癌我会辞职](http://www.movie.hkepx.cn/xiju/5963440.htm)
+- [美防长在无名烈士墓说笑被哨兵训斥](http://www.daogukj.com/9693904)
+- [《你跟他废什么话》](http://www.movie.hkepx.cn/movie/9348798.htm)
+- [老板给连吃7碗米饭母女放钱系摆拍](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
+- [如何看待院士称剑桥大学50张病床配600位科学家，国内配5个大夫就超编了，是否应该大力扩编医生?](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
+- [美俄乌三方会谈落幕：换俘迎破局](http://www.movie.hkepx.cn/movie/1705456.htm)
+- [今晚调油价 加满一箱油将少花25.5元](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
+- [朴树停演静养](http://www.movie.hkepx.cn/xiju/4301515.htm)
+- [白小纯王子璇合影](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
+- [发布朴树去世消息网友已私密账号](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
+- [耐克中国不打“价格战”了](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
+- [“两岸和平倡议大会”在台北举办](http://www.movie.hkepx.cn/xiju/7431738.htm)
+- [APEC中国年看中国外贸底色](http://www.daogukj.com/pmdpqyts/)
+- [GPT-6.2 开启首测，有网友称其性能可压倒 Opus5.5，二者实际体验差距有多大？](http://www.movie.hkepx.cn/movie/5542629.htm)
 
 </details>
 
 ## 原始来源
 
-- [《崩坏：星穹铁道》EP：「无中生有」](https://b23.tv/BV1nEWu6xEyq)
+- [在深圳科技触手可及](https://www.baidu.com/s?wd=%E5%9C%A8%E6%B7%B1%E5%9C%B3%E7%A7%91%E6%8A%80%E8%A7%A6%E6%89%8B%E5%8F%AF%E5%8F%8A&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f1e70ece861838117977 -->
+<!-- content-fingerprint: 7e7c80d87b8d97b43ecb -->
