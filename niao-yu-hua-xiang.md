@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 拿什么打手游最过瘾？游戏平板采销推荐
+# 如何看待28岁中国留学毕业生在墨尔本遇袭，两根手指被砍断，膝盖被砍伤，还遭朋友卷走5.4万澳元医药费？
 
-> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：892854 · 分类：数码 · 更新：2026-11-13T07:50:13+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：303 万热度 · 分类：问答 · 更新：2026-11-13T12:41:04+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“拿什么打手游最过瘾？游戏平板采销推荐”位列第 3 位，公开热度指标为 892854，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待28岁中国留学毕业生在墨尔本遇袭，两根手指被砍断，膝盖被砍伤，还遭朋友卷走5.4万澳元医药费？”位列第 3 位，公开热度指标为 303 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：11月11日，一名在澳大利亚墨尔本的中国留学毕业生在社交媒体发文称，他在当地遭人持刀袭击后，还被朋友劳拉（中文化名：吴某某）骗走了54000澳元，“这笔钱是我的手术和医药费用，目前朋友已卷款跑路失联，我已在当地报警，并尝试联系中国驻墨尔本总领馆寻求帮助。” 方先生被砍伤照片 方先生被砍伤照片 该名留学生方先生告诉极目新闻记者，他是石家庄人，今年28岁，此前在墨尔本蒙纳士大学留学，目前已经毕业了。11月8日凌晨，他受邀来到房东的公寓打扑克，其间因为经济纠纷和房东发生了一些小的争执，房东邀请的其他朋友为替房东出头就和方先生打了起来，其中一人冲进厨房拿刀砍伤了
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [特朗普回应黄仁勋辞职](shan-qing-shui-xiu.md)
-- [特朗普连续发帖痛斥民主党腐败](feng-he-ri-li.md)
-- [如何看待28岁中国留学毕业生在墨尔本遇袭，两根手指被砍断，膝盖被砍伤，还遭朋友卷走5.4万澳元医药费？](chun-nuan-hua-kai.md)
-- [【纪录片】人生一串 第四季 02 心惊肉跳](qiu-gao-qi-shuang.md)
+- [《白银之城》角色PV - 馨西亚二世：到月下的城邦去](shan-qing-shui-xiu.md)
+- [徐峥刷到自己的AI换脸视频惊了](feng-he-ri-li.md)
+- [张萌后悔叫马天宇上节目](chun-nuan-hua-kai.md)
+- [“一代腿王”黄正利去世](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [他真的太优雅了！灰太狼&红太狼【非凡之爱】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [新生抽中“免费吃食堂一年”特等奖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [发布朴树去世消息网友已设私密账号](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [刘欢妻子不到10个月失去两个至亲](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [影视飓风Tim开通个人账号](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [被曝大裁员的腾讯，是业务出了什么问题吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [张雪回应「读书无用论」，称这种定义很 low，自己几乎每天都学习，如何看待这一表态？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [微软大规模宕机持续数小时](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [AMD](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [后会友期](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [跟着《后会友期》开启西藏之旅](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [双11为何“无感”了](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [特朗普连续发帖痛斥民主党腐败](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [美媒：美让俄提交新俄欧安全协议方案](http://www.daogukj.com/8743466)
-- [英伟达临时CEO发声](http://www.daogukj.com/6087099)
-- [后会友期民宿离晚餐地点不到四公里](http://www.daogukj.com/8759192)
-- [中国经济三季报亮点解析](http://www.daogukj.com/nzlnmzmb/)
-- [中国正在编织这样一张大网](http://www.daogukj.com/6882941)
-- [向太问许飞为什么当时不解开误会](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [年轻人为什么不爱买皮鞋了](http://www.daogukj.com/9154473)
-- [0.01分赢下保研第二天就被室友举报](http://www.daogukj.com/4411404)
-- [俄称愿立即与美国讨论欧洲安全问题](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [白小纯和青稚同一个房间睡觉的时候关灯了](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [如何看待张一鸣称字节不应依赖蒸馏，应长期自主研发，「追上 OpenAI 还需三四年」？核心难点在哪？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [臣妾要线上告发熹贵妃 2.0](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [男子失业断供房贷 法院暂不拍卖房产](http://www.daogukj.com/aztauuey/)
-- [补档：钢成军的秘密被灭建国发现了，这下可惨了](http://www.daogukj.com/7343685)
-- [马志明正式收郭德纲为义子](http://www.daogukj.com/dhbposmt/)
-- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](http://www.daogukj.com/1538095)
-- [刘欢安葬于北京 曾与膀胱癌斗争多年](http://www.daogukj.com/uznikqxj/)
-- [金价再迎暴跌专家劝别抄底](http://www.daogukj.com/5158126)
-- [影视飓风Tim开通个人账号](http://www.daogukj.com/3616935)
-- [被曝大裁员的腾讯，是业务出了什么问题吗？](http://www.daogukj.com/pfvjuanz/)
-- [“商家扬言取消外卖”系引流套路](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [普通人用AI和会用AI的人](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [山姆399元羽绒服断货供应商回应](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [奥利塞2026已为法国队直接参与18球](http://www.daogukj.com/asaygxgb/)
-- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.daogukj.com/zxvfwrkb/)
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [网传“商家扬言取消外卖”系谣言](http://www.daogukj.com/7717389)
-- [油价13日起下调](http://www.daogukj.com/9746581)
-- [“这是解锁了什么特殊CG吗？！”](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [刘欢妻子不到10个月失去两个至亲](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [耐克中国不打“价格战”了](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [华农兄弟：抓鸭抓鹅一起炖，兄弟都说好吃](http://www.daogukj.com/7650204)
-- [网传腾讯裁员 15-20%，腾讯辟谣「裁员50%」的说法，实际什么情况？可能涉及哪些业务？](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [黄仁勋辞职后，英伟达为何会选择科莱特·克雷斯出任临时CEO？她个人有哪些成就？她能坐稳继任者位置吗？](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [日本民间团体举行集会反对修宪扩军](http://www.daogukj.com/0995452)
-- [男子怀疑女儿是外星人](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [拿中老年病痛玩梗，还被44万人点赞，这是最近最让我恶心的烂梗！](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [朴树哥哥否认朴树去世传闻](http://www.daogukj.com/fivnrrsp/)
-- [新生抽中“免费吃食堂一年”特等奖](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [为什么伽利略、爱因斯坦没有成为物理学单位？](http://www.daogukj.com/hldbetht/)
-- [房子已经过剩，为什么一直还在新盖楼盘？](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [我将负责嘎嘎乱吃！](http://www.daogukj.com/phqakpps/)
+- [油价调整落地 背后的成本账怎么算](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [徐峥刷到自己的AI换脸视频惊了](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [冰箱当废品卖50元 男子自拆卖260](http://www.daogukj.com/8743466)
+- [梁家辉高铁站安慰哭泣小朋友](http://www.daogukj.com/6087099)
+- [文吉儿后面几期要怎么办](http://www.daogukj.com/8759192)
+- [多元供给赋能线上消费新活力](http://www.daogukj.com/nzlnmzmb/)
+- [一站式打卡“未来之城”](http://www.daogukj.com/6882941)
+- [向太说厉娜许飞不需要告密](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.daogukj.com/9154473)
+- [黄仁勋将失去1亿美元未归属股权奖励](http://www.daogukj.com/4411404)
+- [为什么设计师用AI生成的图更好看](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [白小纯 王子璇](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [如何看待2026年10月特斯拉国内销量暴跌？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [波普压哨三分命中杀死比赛](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [安世中国宣布全链条本土化](http://www.daogukj.com/aztauuey/)
+- [MJ宇宙校园之末日降临第一集](http://www.daogukj.com/7343685)
+- [活塞双加时破奇才](http://www.daogukj.com/dhbposmt/)
+- [9类高危习惯悄悄诱发膀胱癌](http://www.daogukj.com/1538095)
+- [男子失业断供房贷 法院暂不拍卖房产](http://www.daogukj.com/uznikqxj/)
+- [疑遭拘禁殴打死亡男子1米9才60斤](http://www.daogukj.com/5158126)
+- [后会友期](http://www.daogukj.com/3616935)
+- [《密档》口碑、票房均不如《给阿嬷的情书》《南京照相馆》，其导演却拿下最佳导演，金鸡奖的评审逻辑是什么？](http://www.daogukj.com/pfvjuanz/)
+- [破译“科学”流言不可不知100个真相](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [张小斐 杨幂坐在我的玉腿上](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [国内油价是怎么算的](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [刘欢患“不死癌症”系讹传](http://www.daogukj.com/asaygxgb/)
+- [美防长为当众斥责他的士兵颁奖](http://www.daogukj.com/zxvfwrkb/)
+- [【立志成为恶兽】08 仓鼠小弟的复仇【UP动画】](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [破译流言 不可不知的100个真相](http://www.daogukj.com/7717389)
+- [血管悄悄老化身体会有哪些信号](http://www.daogukj.com/9746581)
+- [拿中老年病痛玩梗，还被44万人点赞，这是最近最让我恶心的烂梗！](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [AMD](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [谁在经营这些“日本制造”洗发水](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [【烂奇迹】三毛：我的一生颠沛流离，活到现在算是个奇迹](http://www.daogukj.com/7650204)
+- [为什么人到中年，很多人会觉得友情没那么重要？还有些人会觉得这是成熟的表现？](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [凯文·加内特称早年凌晨 4 点半起床跑 90 分钟，现在球员不这么练，是训练理念变了吗？](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [华为Mate X8真机疑曝光](http://www.daogukj.com/0995452)
+- [贺涵的隐藏身份是音乐总监](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [《蓝色星原：旅谣》公测预告PV](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [金晨凌晨发文秒删](http://www.daogukj.com/fivnrrsp/)
+- [张雪回应「读书无用论」，称这种定义很 low，自己几乎每天都学习，如何看待这一表态？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.daogukj.com/hldbetht/)
+- [郭树清再度建议尽快启动「遗产税」与「赠与税」，新增税收补助基本养老金，如何解读？](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [《崩坏：星穹铁道》EP：「无中生有」](http://www.daogukj.com/phqakpps/)
 - [NVIDIA：黄仁勋辞职](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [《崩坏：星穹铁道》EP：「无中生有」](http://www.daogukj.com/adpyviat/)
-- [荷兰法院已驳回捷豹路虎突击调取比亚迪研发资料的申请，还有哪些信息值得关注？这一裁定意味着什么？](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [拜登：若早知患癌我会辞职](http://www.daogukj.com/1571628)
-- [上汽大众ID.ERA 5X限时9.99万起](http://www.daogukj.com/9492876)
+- [刘欢妻子发8000字长文](http://www.daogukj.com/adpyviat/)
+- [APEC中长期蓝图锚定合作方向](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [外媒：全世界开新厂机床都得先找中国](http://www.daogukj.com/1571628)
+- [张颂文新剧喊李小冉妈妈](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [拿什么打手游最过瘾？游戏平板采销推荐](https://b23.tv/BV13VWb68ENP)
+- [如何看待28岁中国留学毕业生在墨尔本遇袭，两根手指被砍断，膝盖被砍伤，还遭朋友卷走5.4万澳元医药费？](https://www.zhihu.com/question/2103997936267019794)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 722f1361c93b86d5bcb0 -->
+<!-- content-fingerprint: 09630ccb5f849750057f -->
