@@ -2,11 +2,11 @@
 
 # 一束光 改写中国电力版图
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7619292 · 更新：2026-11-14T22:28:22+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7615797 · 更新：2026-11-15T03:26:28+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“一束光 改写中国电力版图”位列第 2 位，公开热度指标为 7619292。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“一束光 改写中国电力版图”位列第 2 位，公开热度指标为 7615797。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：截至今年7月底，中国光伏装机达到12.86亿千瓦，历史性超过煤电，成为装机第一大电源。一块小小的硅片，改写了中国电力版图。
 
@@ -18,74 +18,74 @@
 
 ## 相关热点
 
-- [来自深圳的邀请函](qian-jun-wan-ma.md)
+- [数读向新向优向好的中国经济](qian-jun-wan-ma.md)
 - [APEC如何走进你我生活](wan-zi-qian-hong.md)
-- [Faker 采访称「我们不可能一直是冠军，更看好决赛 GEN 能赢」，为什么今年 GEN 评价如此高？](niao-yu-hua-xiang.md)
-- [抽象新闻：11月人类迷惑行为大赏（上）](shan-qing-shui-xiu.md)
+- [《持械入宋》制片人称算力投入超百万且没投流，团队每部短剧都盈利，怎样看待这一高收益性？哪些思路能借鉴？](niao-yu-hua-xiang.md)
+- [冬日宿舍之零下六十度？](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [国足马来西亚爆发大规模冲突](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [央视曝光后桂林抢修天桥扶梯](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [中国老公被韩国婚礼整笑了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [曝大美的伤口是刀伤](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [4岁女童被气囊撞破十二指肠妈妈发声](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [S16总决赛：BLG对决GEN](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [洗发水陷假洋牌争议 于东来正面回应](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [北京WB斩获KPL年度总冠军](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [海陆瘦20斤再扮紫薇](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [男孩撞脸胡一天 男孩母亲：五官随父亲](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [圆周率中可能存在100万个连续的0吗？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [职场上，私人微信发朋友圈，屏蔽领导是否合适？](http://www.daogukj.com/nksrlhgk/)
-- [中国老公被韩国婚礼整笑了](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [日本3比2巴西](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [许飞直接红温了](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [《谷雨》导演：查了所有演员税务才开机](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [辅导作业时「一点就炸」，这种从耐心到暴怒的情绪失控，是孩子的行为触发的，还是成年人自身情绪管理的问题？](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [U19国足战平塔吉克斯坦](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [岩浆岛二选一，树苗还是钻石剑？？？①](http://www.daogukj.com/7870973)
-- [奔驰女司机借300元加油钱后关机](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [召唤师峡谷的呼声响起，是十三年前的自己在等](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [马来西亚球员故意踢人](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [王钰栋打破国足全队307分钟进球荒](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [如果小时候幻想过的职业真的成真了？会是怎样？](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](http://www.daogukj.com/7724801)
-- [双十一退货时用了赠品该不该扣钱](http://www.daogukj.com/oxaknnjh/)
-- [为什么要偶尔带孩子去外面吃饭？](http://www.daogukj.com/kxqitgac/)
-- [来自深圳的邀请函](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [MCN摆拍骑手悲惨遭遇实为卖翡翠](http://www.daogukj.com/eymoxoal/)
-- [国足马来西亚爆发冲突](http://www.daogukj.com/sblnbief/)
-- [为什么古人说吃亏是福？](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [根本没有这样的夹子](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [【2026全球总决赛】UP主赛前应援BLG，风起今朝，不留遗憾！](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [百 集 翻 转](http://www.daogukj.com/mqwqpttl/)
-- [全美停飞背后：空管系统服役50年](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [JDG对战WB](http://www.daogukj.com/dubydsdf/)
-- [国足比赛裁判惹众怒](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [《持械入宋》制片人称算力投入超百万且没投流，团队每部短剧都盈利，怎样看待这一高收益性？哪些思路能借鉴？](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [Faker 采访称「我们不可能一直是冠军，更看好决赛 GEN 能赢」，为什么今年 GEN 评价如此高？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [日本3-2巴西全场数据](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [抽象新闻：11月人类迷惑行为大赏（上）](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [2026KPL年总决赛](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [乌鲁木齐禁售马肉马肠制品？假的](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [4岁女童被气囊撞破十二指肠妈妈发声](http://www.daogukj.com/oioomhrz/)
-- [你们点的16连蹲，爷们又来交作业了](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [《持械入宋》火到台湾](http://www.daogukj.com/btwajvnj/)
-- [新婚夫妻还没出蜜月双双确诊糖尿病](http://www.daogukj.com/8398590)
-- [高迪 王乐乐](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [猪肉价格创10年新低](http://www.daogukj.com/4390556)
-- [英伟达架构有多逆天](http://www.daogukj.com/skeidyel/)
+- [奔驰女司机借300元加油钱后关机](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [男子尝汤面后连面带碗扔垃圾桶](http://www.daogukj.com/nksrlhgk/)
+- [北京WB斩获KPL年度总冠军](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [男子狂买57箱花生油结果付的是赃款](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [梓墨FMVP](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [岩浆岛二选一，树苗还是钻石剑？？？①](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [DeepSeek harness相比codex有什么劣势？](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [BLG VLOG | 决赛我们来了](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [2026全球总决赛冠亚军决赛宣传片](http://www.daogukj.com/7870973)
+- [全球最大无人货运飞机W5000试飞成功](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [街头音要❗| 西南石油 你在听什么❗❓（第143期）](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [为保证S16直播效果 影院调快网速](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [GEN对战BLG首发名单](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [【唐唐】深度解析伪纪录片《放送禁止》细思极恐的答案！](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [Faker 采访称「我们不可能一直是冠军，更看好决赛 GEN 能赢」，为什么今年 GEN 评价如此高？](http://www.daogukj.com/7724801)
+- [疾风传：鸣佐vs一式！](http://www.daogukj.com/oxaknnjh/)
+- [新婚夫妻还没出蜜月双双确诊糖尿病](http://www.daogukj.com/kxqitgac/)
+- [数读向新向优向好的中国经济](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](http://www.daogukj.com/eymoxoal/)
+- [八冠神罚](http://www.daogukj.com/sblnbief/)
+- [被赖清德支持推倒的孙中山铜像重竖](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [为什么要偶尔带孩子去外面吃饭？](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [如何评价《fx战士久留美》第七集？](http://www.daogukj.com/mqwqpttl/)
+- [厉娜我和雪梨飞雪合一下影](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [S16全球总决赛影院线下场一票难求](http://www.daogukj.com/dubydsdf/)
+- [全看过的这辈子有了](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [糖尿病早期无症状 出现5种表现要重视](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [《持械入宋》制片人称算力投入超百万且没投流，团队每部短剧都盈利，怎样看待这一高收益性？哪些思路能借鉴？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [曝高迪当年打刘叉叉前女友蛋蛋](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [冬日宿舍之零下六十度？](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [白小纯居然是来报恩的](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [boss直聘暂停要求带咖啡公司账号权限](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [男孩撞脸胡一天 男孩母亲：五官随父亲](http://www.daogukj.com/oioomhrz/)
+- [CFA 中国之队肇庆国际足球邀请赛，国足 2-0 马来西亚，终结 3 连败进球荒，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [" 1 ＋0 ＝10 "](http://www.daogukj.com/btwajvnj/)
+- [高迪这么多年完全对不起大美](http://www.daogukj.com/8398590)
+- [MCN摆拍骑手悲惨遭遇实为卖翡翠](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [原价129万/支的天价药进医保了](http://www.daogukj.com/4390556)
+- [白鹿带着三个作品走了三次红毯](http://www.daogukj.com/skeidyel/)
 - [美国因出现特殊情况及安全原因，所有航班一度暂停起飞，目前停飞令已解除，具体情况如何？造成影响有多大？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [王晶回应《麻将女王》票房](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [中国乘客亲历全美停飞以为被空袭](http://www.daogukj.com/jdhlltmp/)
-- [无畏的心率](http://www.daogukj.com/inrtjmju/)
-- [海陆瘦20斤再扮紫薇](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [纯黑《影之刃零》逆天者全程无伤一镜到底攻略解说 第三期](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [清融尽力](http://www.daogukj.com/jdhlltmp/)
+- [S16总决赛首发名单](http://www.daogukj.com/inrtjmju/)
+- [宿舍手机壁纸从夯到拉！](http://www.movie.hkepx.cn/movie/4017423.htm)
 - [结束3连败！国足2-0马来西亚](http://www.daogukj.com/9107163)
-- [⚡️黄仁勋 辞职巡演⚡️【AI MV大赛】](http://www.daogukj.com/ypwsrnna/)
-- [冬日宿舍之零下六十度？](http://www.daogukj.com/7314066)
-- [曝娜然怀孕了](http://www.daogukj.com/3027269)
-- [Vibe知识大赏 | 挣钱的本质](http://www.daogukj.com/5993003)
+- [工商银行、农业银行、中国人保称合计约2750亿元股票定增已经获上交所核准，对此你怎么看？](http://www.daogukj.com/ypwsrnna/)
+- [比特币一度跌破 6.8 万美元创8月以来新低，如何看待当下行情？比特币是否彻底变成顺周期高风险资产了？](http://www.daogukj.com/7314066)
+- [高迪 王乐乐](http://www.daogukj.com/3027269)
+- [《影之刃零》沐小葵建模获海外好评，如何看待东西方游戏女性角色审美的差异？](http://www.daogukj.com/5993003)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b754353535af63cd6a11 -->
+<!-- content-fingerprint: a1c816593e519bc19203 -->
