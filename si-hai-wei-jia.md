@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# Knight 获得 S16 总决赛 FMVP，成为继田野后 LPL 第二位大满贯，对此你有什么想说的？
+# GEN 总决赛不敌 BLG 止步亚军，这场比赛他们输在哪？
 
-> 来源：知乎热榜 · 排名：第 1 位 · 热度：2161 万热度 · 分类：问答 · 更新：2026-11-15T18:41:25+08:00
+> 来源：知乎热榜 · 排名：第 1 位 · 热度：826 万热度 · 分类：问答 · 更新：2026-11-16T01:26:19+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“Knight 获得 S16 总决赛 FMVP，成为继田野后 LPL 第二位大满贯，对此你有什么想说的？”位列第 1 位，公开热度指标为 2161 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“GEN 总决赛不敌 BLG 止步亚军，这场比赛他们输在哪？”位列第 1 位，公开热度指标为 826 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：BLG夺得2026全球总决赛冠军，Knight就此集齐先锋赛、MSI与世界赛三项国际大赛冠军，成为LPL赛区继Meiko之后又一位满贯选手。 Knight此前已随TES、JDG、BLG三支战队多次夺得LPL联赛冠军，2023年随JDG拿下MSI冠军，2026年还随BLG夺得全球先锋赛冠军。Meiko于2021年随EDG夺得S赛冠军后完成满贯。
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [【2026全球总决赛】11月15日 GEN vs BLG](wu-gu-feng-deng.md)
-- [见识到秋假的威力了](liu-shen-wu-zhu.md)
-- [中国三口之家已不是主流](qi-shang-ba-xia.md)
-- [北京金店挤满人](ba-mian-ling-long.md)
+- [“于公于私于情于理都不应该带”](liu-shen-wu-zhu.md)
+- [青稚聊天记录](qi-shang-ba-xia.md)
+- [男子长期吃猪脚饭确诊糖尿病酮症](ba-mian-ling-long.md)
 
 ## 站内推荐
 
-- [男子失业后断供房贷靠跑外卖维生，法院判决非恶意断供，涉案房系唯一住所暂不拍卖房产，如何从法律角度解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [中国新能源企业在芬建厂涉人口贩运调查，出海中企该如何规避海外用工合规风险？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [Bin 夺得全球总决赛冠军泪洒现场，如何评价他的一路历程？今天的表现他当得起世一上吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [风清扬，任我行为什么看出来岳不群是伪君子，宁中则反而没看出来？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [Daeny 成为历史第一位双赛区全球总决赛冠军教练，如何评价他在 S16 总决赛的 BP 水平？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [「圣枪哥」因未在 S16 全球总决赛上场无缘冠军皮肤，对此你有什么想说的？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [Riot 宣布《英雄联盟》即将全面升级为《英雄联盟:曙光》，你觉得此举对于这款游戏意味着什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [中国新能源企业在芬建厂涉人口贩运调查，出海中企该如何规避海外用工合规风险？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [iPhoneDuo经45.7万次折叠后屏幕完好铰链松动，测试结果说明了啥？能在多大程度上反映手机寿命？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [「英雄牌钢笔」没落的原因是什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [怎么看崔添翼在DeepSeek发布全家桶 API 后说，下一个超级 App 只属于个人的超级 App？](http://www.daogukj.com/7394302)
-- [锐评S16 BLG战胜GEN夺冠：一穿四LCK夺冠！我们是冠军！！！](http://www.movie.hkepx.cn/movie/0790865.htm)
-- [Morning, Sardinia](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
-- [男子失业后断供房贷靠跑外卖维生，法院判决非恶意断供，涉案房系唯一住所暂不拍卖房产，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/6065240.htm)
-- [Bin说天天跟Flandre对线](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
-- [【卜劳恩《父与子》/非凡父爱】“如果没有那一场残酷的战争，父与子的结局或许会是这样……”](http://www.daogukj.com/thgdlrxk/)
-- [朱天天 创造101](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
-- [胖东来普通足金1070元1克 多数免工费](http://www.daogukj.com/qqvbmaen/)
-- [同居4年没领证分手女方被判还9.2万](http://www.movie.hkepx.cn/xiju/4761615.htm)
-- [中国三口之家已不是主流](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
-- [高迪已报警](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
-- [东西或许是半价的，但爱却不是！](http://www.daogukj.com/6313812)
-- [外媒曝中国男足再度收紧纹身限制，国脚需佩戴肤色护臂遮盖，对此你怎么看，国家队限制纹身外露是否合理？](http://www.daogukj.com/wczbkkvt/)
-- [12位APEC经济体领导人将出席峰会](http://www.movie.hkepx.cn/movie/7868565.htm)
-- [业内不建议买500元以下羽绒服](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
-- [115家世界500强企业参加工商峰会](http://www.movie.hkepx.cn/xiju/9222700.htm)
-- [好像绷炸了](http://www.movie.hkepx.cn/xiju/4060100.htm)
+- [美国又有近万架航班取消或延误，预计15日晚恢复正常，故障根源仍尚未查明，能预期恢复正常吗？](http://www.daogukj.com/7394302)
+- [大声告诉我，现在谁是世界第一中单!](http://www.movie.hkepx.cn/movie/0790865.htm)
+- [《复联暴雨末日》合集【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/0080064.htm)
+- [「圣枪哥」因未在 S16 全球总决赛上场无缘冠军皮肤，对此你有什么想说的？](http://www.movie.hkepx.cn/xiju/6065240.htm)
+- [穆祉丞18岁最后一条动态](http://www.play.hengshemaoyi.cn/xiju/2853367.htm)
+- [《美队全家福VS灭霸全家福》灭霸的爸爸叫灭建国！](http://www.daogukj.com/thgdlrxk/)
+- [砒霜口服药让白血病患存活率超97%](http://www.play.hengshemaoyi.cn/kongbu/8970893.htm)
+- [脑瘫女孩摆摊卖烤肠赵传与其合唱](http://www.daogukj.com/qqvbmaen/)
+- [红果AI漫剧热播榜排名TOP10](http://www.movie.hkepx.cn/xiju/4761615.htm)
+- [青稚聊天记录](http://www.play.hengshemaoyi.cn/kongbu/9689170.htm)
+- [白鹿进组前的伙食](http://www.play.hengshemaoyi.cn/kongbu/5422446.htm)
+- [BLG夺冠单曲《十年人间》——“旧时梦魇，今日高声唱！”](http://www.daogukj.com/6313812)
+- [如何评价 Chovy 在 S16 全球总决赛上的表现？](http://www.daogukj.com/wczbkkvt/)
+- [APEC领导人会议周参会嘉宾陆续抵达](http://www.movie.hkepx.cn/movie/7868565.htm)
+- [韩网友爆料Jennie妈妈](http://www.play.hengshemaoyi.cn/xiju/1049247.htm)
+- [中国古诗中的又一村成了他的家](http://www.movie.hkepx.cn/xiju/9222700.htm)
+- [这一次，我们拒绝失败](http://www.movie.hkepx.cn/xiju/4060100.htm)
 - [【2026全球总决赛】11月15日 GEN vs BLG](http://www.play.hengshemaoyi.cn/xiju/9225996.htm)
-- [Knight曝打1分钟就发现chovy不对劲](http://www.daogukj.com/jjlkzcvz/)
-- [HR 要求求职者面试时帮忙带咖啡，被拒后取消面试，平台已暂停该招聘账号权限，暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
-- [这便是历届全球总决赛最具含金量的冠军—— BLG](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
-- [S16总决赛：中国战队BLG逆转夺冠](http://www.daogukj.com/drcaefzl/)
-- [借钱给陌生人救急 十年后被其打骨折](http://www.movie.hkepx.cn/movie/8281256.htm)
-- [央行托底金价为何下跌](http://www.daogukj.com/rrxeunix/)
+- [内娱这样的台词我等了二十年](http://www.daogukj.com/jjlkzcvz/)
+- [Knight 成为首位中国籍全球总决赛冠军中单，他能在中单选手中排进第几名？](http://www.play.hengshemaoyi.cn/kongbu/7887783.htm)
+- [锐评BLG拿下S16全球总决赛冠军！独断万古！电竞历史最夸张的表演！五个人打穿整个韩国！谈起这一路走来的艰辛，太多的话到嘴边只剩哽咽。](http://www.play.hengshemaoyi.cn/xiju/9323332.htm)
+- [颜值超高的空气凤梨竟是生态刺客](http://www.daogukj.com/drcaefzl/)
+- [防火门被锁死：老板说开门风水不好](http://www.movie.hkepx.cn/movie/8281256.htm)
+- [居民存款搬家放缓](http://www.daogukj.com/rrxeunix/)
 - [“烤红薯香是加了香精”系捕风捉影](http://www.play.hengshemaoyi.cn/xiju/6790584.htm)
-- [“雷神”怎么开比亚迪](http://www.daogukj.com/qekijaaa/)
-- [35岁老粉说等这么多年终于夺冠](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
-- [在构建亚太共同体之路上携手同行](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
+- [方博复出到夺冠仅5个月](http://www.daogukj.com/qekijaaa/)
+- [小猴子看到悟空coser好奇上前查看](http://www.play.hengshemaoyi.cn/xiju/1871248.htm)
+- [通达亚太 共赴未来](http://www.play.hengshemaoyi.cn/xiju/3176184.htm)
 - [官方辟谣连霍高速发生泥石流](http://www.play.hengshemaoyi.cn/xiju/2566087.htm)
-- [夫妻都是B型血孩子户口簿上却是AB型](http://www.movie.hkepx.cn/xiju/1488804.htm)
-- [BLG夺冠](http://www.movie.hkepx.cn/movie/2815069.htm)
-- [BLG一穿四夺冠！BLG 3-1 GEN 赛后数据雷达图丨2026全球总决赛-决赛](http://www.daogukj.com/4880877)
-- [许飞退群原因](http://www.daogukj.com/gyblgzpw/)
-- [BLG夺冠赞助商赢麻了](http://www.daogukj.com/3742193)
-- [我们把欢呼声送给BLG！他们是世界冠军！](http://www.movie.hkepx.cn/xiju/8415908.htm)
-- [宝马735Li降到48点8万](http://www.daogukj.com/yhmvbvtt/)
-- [小学生在回答里写「吃饭打包很丢脸」，老师打叉并扣其4分，你觉得这个回答到底该不该被扣分？](http://www.movie.hkepx.cn/xiju/0383481.htm)
-- [北方多地迎降雪 南方有大范围降雨](http://www.daogukj.com/4405323)
-- [Bin 夺得全球总决赛冠军泪洒现场，如何评价他的一路历程？今天的表现他当得起世一上吗？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
-- [印尼14岁球员与门将相撞后离世](http://www.daogukj.com/ydbbqbuc/)
-- [天呐！英雄联盟历史上含金量最高的冠军！BLG传奇1穿4LCK修成正果！【1酱短评】](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
-- [1穿4连斩LCK战队！恭喜BLG，加冕为王！](http://www.daogukj.com/5927597)
-- [Windows系统相比macOS系统，真的卡的要死，Windows明知它的致命短板，为何一直都不解决？](http://www.daogukj.com/3691526)
-- [BLG夺冠语音](http://www.movie.hkepx.cn/xiju/5241943.htm)
-- [【英雄联盟S16】BLG夺冠时刻](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
-- [BLG S16夺冠赞歌《仰望星空》](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
-- [凌晨3点多家电影院爆满](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
-- [七万多的房子卖外地人近70万](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
-- [女子花1千元翻新3件羽绒服直呼划算](http://www.daogukj.com/9555051)
-- [许飞厉娜 神一天鬼一天](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
+- [张颂文可以不是高启强吗](http://www.movie.hkepx.cn/xiju/1488804.htm)
+- [凌晨3点多家电影院爆满](http://www.movie.hkepx.cn/movie/2815069.htm)
+- [一穿四LCK捧杯夺冠，含金量最高的一集，我们是冠军！！！【火兰吐槽】](http://www.daogukj.com/4880877)
+- [Lisa把钱塞腰上被质疑](http://www.daogukj.com/gyblgzpw/)
+- [国乒全军覆没34岁方博夺冠](http://www.daogukj.com/3742193)
+- [【时间啊，向前！】TL-S-1至TL-S-4突袭 摆完挂机 简单好抄](http://www.movie.hkepx.cn/xiju/8415908.htm)
+- [胡先煦我后面几期更笨](http://www.daogukj.com/yhmvbvtt/)
+- [乌克兰一夜向俄罗斯发射近 1200 架无人机，创下冲突以来最大规模袭击之一，释放了什么信号？](http://www.movie.hkepx.cn/xiju/0383481.htm)
+- [萌娃第一次叫妈妈被意外记录](http://www.daogukj.com/4405323)
+- [中国新能源企业在芬建厂涉人口贩运调查，出海中企该如何规避海外用工合规风险？](http://www.play.hengshemaoyi.cn/kongbu/8684139.htm)
+- [深圳水贝金价跌三分之一](http://www.daogukj.com/ydbbqbuc/)
+- [BLG S16夺冠赞歌《仰望星空》](http://www.play.hengshemaoyi.cn/kongbu/1055666.htm)
+- [术式反转久留美 【泛式】](http://www.daogukj.com/5927597)
+- [BLG 成功逆袭夺冠，雷鸟达成不退款条件，如何评价这一波营销策略？](http://www.daogukj.com/3691526)
+- [BLG庆功宴](http://www.movie.hkepx.cn/xiju/5241943.htm)
+- [Morning, Sardinia](http://www.play.hengshemaoyi.cn/kongbu/2908196.htm)
+- [三年之期已到，恭迎世一上归位！【第18集】](http://www.play.hengshemaoyi.cn/kongbu/6143559.htm)
+- [方博获代表哈萨克斯坦参赛后首冠](http://www.play.hengshemaoyi.cn/xiju/9656675.htm)
+- [曝DK全员离队](http://www.play.hengshemaoyi.cn/kongbu/3750114.htm)
+- [网红“转圈刷牙法”不适合成年人](http://www.daogukj.com/9555051)
+- [曝许飞退群](http://www.play.hengshemaoyi.cn/kongbu/3002013.htm)
 
 </details>
 
 ## 原始来源
 
-- [Knight 获得 S16 总决赛 FMVP，成为继田野后 LPL 第二位大满贯，对此你有什么想说的？](https://www.zhihu.com/question/2105214731573096596)
+- [GEN 总决赛不敌 BLG 止步亚军，这场比赛他们输在哪？](https://www.zhihu.com/question/2105209509492822064)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3252870239a6b1273de9 -->
+<!-- content-fingerprint: 984c3d41452edebd7a62 -->
