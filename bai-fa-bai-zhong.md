@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 外国友人眼中的APEC“中国年”
+# APEC离我们的生活有多远
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7618403 · 更新：2026-11-16T17:27:47+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7619269 · 更新：2026-11-17T03:47:53+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“外国友人眼中的APEC“中国年””位列第 2 位，公开热度指标为 7618403。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“APEC离我们的生活有多远”位列第 2 位，公开热度指标为 7619269。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：APEC领导人非正式会议即将在深圳举行。创新是发展的强大动力。从移动支付到新能源汽车、从高铁到人工智能……中国创新正在被越来越多外国友人看见、体验、赞叹。
+来源公开摘要显示：APEC离我们的生活有多远？是货架上的进口水果，是手机里的跨境支付，还是一次不用倒时差的合作？今年是APEC“中国年”，亚太经合组织第三十三次领导人非正式会议即将在深圳举行。我们把话筒交给来自不同APEC经济体的年轻人，一起听听他们心目中的APEC合作。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [一组图速览什么是APEC](qian-jun-wan-ma.md)
-- [中国贸易伙伴网如何越织越密](wan-zi-qian-hong.md)
-- [最近四川严查 3C 认证、税务、假冒、社保等，据说很多商家都关门了，为什么会突然严查了？](niao-yu-hua-xiang.md)
-- [意念控制！推倒巨型多米诺！](shan-qing-shui-xiu.md)
+- [同舟共济开创亚太和世界更美好未来](qian-jun-wan-ma.md)
+- [一组图速览APEC](wan-zi-qian-hong.md)
+- [如何看待工信部试点「700」号段防骚扰？初衷虽好，但真能解决平台泄露隐私的根源问题吗？](niao-yu-hua-xiang.md)
+- [以后都给你打九九折](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
 - [中俄美三国元首历史首次面对面会晤](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [为什么手指永远无法相互触碰](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [Knight投票支持Bin选格温皮肤](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [《复联暴雨末日》合集【AI全民制作人】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [豆包回应DeepSeek限额](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [何超琼又有新身份](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [吃对碳水的人炎症水平更低还不易胖](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [Knight说训练赛打不过AL](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [欧国联西班牙主场 2-3 不敌英格兰，43 场不败纪录遭终结，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待《凡人修仙传》200集被吐槽注水，整集桃林对话、新增大量暧昧戏份，冲淡韩立苟道人设？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [西乙门将奥沃诺因暴力犯规致对手德米格尔死亡，其被顶格禁赛 12 场+罚款，这一判罚尺度是否合理？](http://www.daogukj.com/nksrlhgk/)
-- [Knight投票支持Bin选格温皮肤](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [Knight夺冠前看了24年决赛](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [Morning, Sardinia](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [上海集中涌现「个人学校」，采用小班、一人一课表和专属导师制，究竟是模式创新，还是传统脱产班换了个包装？](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [有没有一个人，你曾经以为会做一辈子朋友，后来却连问候都找不到理由？](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [闲鱼称被叫「暗网」系污名化，已起诉「拐卖儿童暗语」谣言造谣者并索赔 100 万元，怎样从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [三年之期已到，恭迎世一上归位！【第18集】](http://www.daogukj.com/7870973)
-- [李在明启程参加东盟峰会、APEC会议](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [周杰伦演唱会580元仅支持看大屏](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [如果不使用职业、学历、MBTI 等社会标签，你会如何向别人介绍你自己？](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [波兰小伙自灭满门后景区屠杀，警界战神丝血反杀，国宝神医逆天改命！【2026年波兰克拉科夫枪击案详解】](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [韩网绝望！所有韩国队全被BLG淘汰，雷鸟究竟看到了多远！韩国人怎么评价BLG拿下世界冠军？乐评人在线读评论！英雄联盟 电子竞技 s16 Bin 左手 Viper](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [煮茶叶蛋时为什么不剥皮？剥皮后泡一晚不是更入味吗？](http://www.daogukj.com/7724801)
-- [女子健身半年 竟然两次真菌感染](http://www.daogukj.com/oxaknnjh/)
-- [那些与气象相关的不靠谱说法](http://www.daogukj.com/kxqitgac/)
-- [一组图速览什么是APEC](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [为什么这次 BLG 夺冠后解说和观众都冷静了许多，没有再大规模造「第一赛区」画面了？](http://www.daogukj.com/eymoxoal/)
-- [无畏中了笔巨款](http://www.daogukj.com/sblnbief/)
-- [BLG 夺得 S16 总决赛冠军，你心目中的 FMVP 选手是谁？](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [术式反转久留美 【泛式】](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [欧盟自11月1日起对境外包裹征收处理费，该类商品叠加关税后负担增至5欧元，中国卖家受影响大么？](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [【2026全球总决赛】11月15日 GEN vs BLG](http://www.daogukj.com/mqwqpttl/)
-- [金饰克价已跌去530元](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [大牙|| 肖8选择题精讲带背（第一套卷），全网讲解最清晰，专治零基础！](http://www.daogukj.com/dubydsdf/)
-- [千万粉科普号自曝一条视频成本百万](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [猪肉价格跌到10年新低，背后的原因是啥？猪肉巨头纷纷预期猪价明年或上涨，猪周期筑底还需多久？](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [最近四川严查 3C 认证、税务、假冒、社保等，据说很多商家都关门了，为什么会突然严查了？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [今日主力净流入前10股](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [意念控制！推倒巨型多米诺！](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [特朗普：期待参加中俄美元首会晤](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [相恋19年才发现男友是女的](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [豆包回应DeepSeek限额](http://www.daogukj.com/oioomhrz/)
-- [A股下跌的三大利空找到了](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [如何看待日本玩家吐槽《影之刃零》汉字名难读，出海翻译是否需要有假名注音？](http://www.daogukj.com/btwajvnj/)
-- [沪指险守3600点](http://www.daogukj.com/8398590)
-- [星铁表面在讲「欢愉」，实际在讲200年前的哲学史【底层代码】](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [如何看待 Chovy 总决赛对线仅 1 分钟就被 Knight 发现不对劲并施加「弱者标记」？](http://www.daogukj.com/4390556)
-- [陈伟霆赞东风日产NX7聪明又舒服](http://www.daogukj.com/skeidyel/)
-- [命运让他们彼此对立，也让他们彼此靠近｜上](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [用美式乡村讲中国故事（二）](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [金价回落资金加速布局黄金股](http://www.daogukj.com/jdhlltmp/)
-- [北大学生称羽绒服像lululemon](http://www.daogukj.com/inrtjmju/)
-- [美国 ULA 成立 20 年来首次发射任务完全失败，「火神」火箭升空十分钟后异常，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [中国女保镖贴身保护墨西哥总统](http://www.daogukj.com/9107163)
-- [美国野心滔天？把战火烧到鸭绿江？！那么 你将面对中朝军民合力反击！](http://www.daogukj.com/ypwsrnna/)
-- [《美队全家福VS灭霸全家福》灭霸的爸爸叫灭建国！](http://www.daogukj.com/7314066)
-- [23岁日本女演员中田乃爱去世](http://www.daogukj.com/3027269)
-- [日本23岁女演员中田乃爱突然去世](http://www.daogukj.com/5993003)
+- [黄仁勋借钱成台湾新型诈骗](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [直播间演员冒充家长制造焦虑](http://www.daogukj.com/nksrlhgk/)
+- [吃对碳水的人炎症水平更低还不易胖](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [如何看待小伙自称 5 年开 1300 家无人健身房？无人健身房真的很有市场吗？](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [日本23岁女演员中田乃爱突然去世](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [刘耀文刷到了自己吃蓝莓的视频](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [山东一废弃酒店负一层暗藏百米盗洞](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [106岁父亲和86岁女儿分享长寿秘诀](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [亚马尔澄清函全文](http://www.daogukj.com/7870973)
+- [Morning, Sardinia](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [星铁表面在讲「欢愉」，实际在讲200年前的哲学史【底层代码】](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [刘德华自曝快一年没拍戏](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [新007是帕丁森](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [白小纯练枪被女粉落地颗秒](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [中俄美元首将在深圳举行会晤，有哪些信息值得关注？](http://www.daogukj.com/7724801)
+- [中国摩托在欧洲杀疯了](http://www.daogukj.com/oxaknnjh/)
+- [俄罗斯为何在拥抱人民币道路上掉队](http://www.daogukj.com/kxqitgac/)
+- [同舟共济开创亚太和世界更美好未来](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [波兰小伙自灭满门后景区屠杀，警界战神丝血反杀，国宝神医逆天改命！【2026年波兰克拉科夫枪击案详解】](http://www.daogukj.com/eymoxoal/)
+- [终于有人说说干发帽了](http://www.daogukj.com/sblnbief/)
+- [为什么手指永远无法相互触碰](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [你在明白什么道理后，你不再焦虑了？](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [墨西哥总统抵达深圳后做了一个动作](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [许飞自曝参加浪姐期间被分手了](http://www.daogukj.com/mqwqpttl/)
+- [究竟怎样做才能活下去｜一口气看完9th末日生存合集 真实丧尸末日记录](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [被虞书欣起诉网友发文](http://www.daogukj.com/dubydsdf/)
+- [大肥鱼捅穿AZ3？！带着大肥鱼猛攻三角洲是什么感觉？](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [老外被深圳一条马路惊艳到](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [如何看待工信部试点「700」号段防骚扰？初衷虽好，但真能解决平台泄露隐私的根源问题吗？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [金子涵称被家人骗到了精神病院](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [以后都给你打九九折](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [6年恋爱因一枚戒指分手](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [建议大家不要一直穿同一双鞋](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [欧国联西班牙主场 2-3 不敌英格兰，43 场不败纪录遭终结，如何评价这场比赛？](http://www.daogukj.com/oioomhrz/)
+- [黄金左手！一穿四LCK夺冠，从隐身骂名，到LPL国产中单的终极门面【S16冠军纪念】](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [刘德华自曝1年没拍戏](http://www.daogukj.com/btwajvnj/)
+- ["这一刻的故事由我们执笔..."](http://www.daogukj.com/8398590)
+- [“沈阳中考英语听力口语改革”不实](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [中国女保镖贴身保护墨西哥总统](http://www.daogukj.com/4390556)
+- [西乙门将奥沃诺因暴力犯规致对手德米格尔死亡，其被顶格禁赛 12 场+罚款，这一判罚尺度是否合理？](http://www.daogukj.com/skeidyel/)
+- [刘欢曾称宁死不背尿袋拒绝切膀胱，这类选择有哪些医疗风险？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [砒霜是怎么成为治疗癌症救命神药的](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [高市早苗穿菲律宾服饰出席晚宴](http://www.daogukj.com/jdhlltmp/)
+- [今年第2次来华 加总理卡尼抵达深圳](http://www.daogukj.com/inrtjmju/)
+- [手握微信流量 绿泡泡凶猛战红果](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [墨总统交叉双臂抱于胸前有何深意](http://www.daogukj.com/9107163)
+- [大象失去一条腿后，都可以存活下来，为什么马腿断了就必须死呢？](http://www.daogukj.com/ypwsrnna/)
+- [为什么古人的飞檐走壁、轻功、点穴等功夫现在没有了？从哪个朝代开始慢慢消失的？](http://www.daogukj.com/7314066)
+- [歌曲《慌啥子嘛》为何如此上头](http://www.daogukj.com/3027269)
+- [96岁父亲经常骑三轮去看70岁女儿](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [外国友人眼中的APEC“中国年”](https://www.baidu.com/s?wd=%E5%A4%96%E5%9B%BD%E5%8F%8B%E4%BA%BA%E7%9C%BC%E4%B8%AD%E7%9A%84APEC%E2%80%9C%E4%B8%AD%E5%9B%BD%E5%B9%B4%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [APEC离我们的生活有多远](https://www.baidu.com/s?wd=APEC%E7%A6%BB%E6%88%91%E4%BB%AC%E7%9A%84%E7%94%9F%E6%B4%BB%E6%9C%89%E5%A4%9A%E8%BF%9C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 56412bfa904ca92a17a1 -->
+<!-- content-fingerprint: dfb09a4909ab204abe26 -->
