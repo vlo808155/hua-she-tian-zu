@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何评价OpenAI 发布的 GPT-6.2 Astra 和 GPT-6.2 Sol？
+# 女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？
 
-> 来源：知乎热榜 · 排名：第 2 位 · 热度：439 万热度 · 分类：问答 · 更新：2026-11-18T10:19:30+08:00
+> 来源：知乎热榜 · 排名：第 2 位 · 热度：365 万热度 · 分类：问答 · 更新：2026-11-18T18:26:50+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价OpenAI 发布的 GPT-6.2 Astra 和 GPT-6.2 Sol？”位列第 2 位，公开热度指标为 439 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？”位列第 2 位，公开热度指标为 365 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：OpenAI 刚刚在今天（2026 年 11 月 17 日）正式发布了 GPT-6.2 Astra 和 GPT-6.2 Sol。 距离Anthropic 正式上市还有 2 天。 刚刚，OpenAI深夜大更新，GPT 6.2Astra和6.2 Sol来了！
+来源公开摘要显示：几十元的零食，她下了 400 多次单；三年下来，如此多订单一分钱没花，家里的盒马零食却堆得到处都是。近日，西安公安经开分局张家堡派出所破获一起利用电商平台「仅退款」规则实施诈骗的案件，29 岁的涉案女子被依法刑事拘留，涉案金额 1.7 万余元。 据办案民警齐熠男介绍，该女子长期在家备考研究生，年复一年，成绩总差那么一口气，人也越来越郁闷。2023 年的一天，她下单买了一批零食，收货后随手点开售后页面，发现只要选择一个特定理由，就能申请「仅退款」——钱退回来，货也不用寄回，据该女子供述：这让她感到「刺激」，能够舒缓压力。 三年时间，400 多单，平均不到三
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [高中生吸未知物质，当场喷红花油成中微子](jiu-niu-yi-mao.md)
-- [APEC工商领导人峰会聚焦哪些议题](shi-quan-shi-mei.md)
-- [2026APEC这些看点值得期待](bai-fa-bai-zhong.md)
-- [APEC工商领导人峰会今天聚焦哪些议题](qian-jun-wan-ma.md)
+- [灭霸的班级被奖励看电影](jiu-niu-yi-mao.md)
+- [共绘新图景 共话新机遇](shi-quan-shi-mei.md)
+- [APEC多场密集对话释放大量前沿信息](bai-fa-bai-zhong.md)
+- [中国与亚太经济体合作故事](qian-jun-wan-ma.md)
 
 ## 站内推荐
 
-- [U19 国足 2-1 战胜韩国，时隔 8 年再夺熊猫杯冠军，如何评价本场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [抽象新闻：11月人类迷惑行为大赏（中）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [CBS：最新法医证据显示爱泼斯坦应死于谋杀](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [男子结婚8年给妻子买10柜子衣服](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [129万一针抗癌药进医保](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [【完结】财神窦占龙 第16集 归乡【8月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [APEC最高级别会议为何叫作非正式](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [空军表演队拉彩烟欢迎特朗普](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [邵永灵：日本想打造亚洲能源枢纽](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [陆毅女儿贝儿官宣出道](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [怪不得许飞爆了一个月还是0商务](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
-- [同台亮相APEC，王传福谈新能源减排，雷军畅享AI未来，如何看待两位大佬的“殊途同归”？](http://www.daogukj.com/ugtzcfro/)
-- [APEC](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
-- [原来潮汐车道是这么变出来的](http://www.daogukj.com/vcakiegu/)
-- [网传生菜「塌房」了，看似健康其实膳食纤维的含量很低，是真的吗？](http://www.movie.hkepx.cn/xiju/3609316.htm)
-- [BLG在联赛内组建梦之队一家独大真的有利于联赛发展吗？](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
-- [U19 国足 2-1 战胜韩国，时隔 8 年再夺熊猫杯冠军，如何评价本场比赛？](http://www.daogukj.com/0764598)
-- [61 岁女子登机口抛硬币祈福致航班延误 58 分钟被拘 5 日，该处罚尺度是否合理？](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
-- [劝表弟读博，他说现在的博士已经不是前几年了，真是这样吗？](http://www.daogukj.com/4164218)
-- [APEC合影](http://www.daogukj.com/8982602)
-- [俄驻华大使：俄转向东方趋势不可逆](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
-- [【动画】可爱的猫尾草](http://www.movie.hkepx.cn/xiju/4720013.htm)
-- [APEC工商领导人峰会聚焦哪些议题](http://www.daogukj.com/zaulbsuv/)
-- [后会友期这档节目的初衷](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
-- [高市早苗向中方代表打招呼姿态引热议](http://www.daogukj.com/gbkfzcnu/)
-- [电视剧《伟大的长征》为何能火](http://www.movie.hkepx.cn/movie/7973247.htm)
-- [深圳人全妆出街迎APEC](http://www.daogukj.com/bdilzxjd/)
-- [女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？](http://www.movie.hkepx.cn/xiju/6416942.htm)
-- [刘建宏谈国足2比2战平巴林](http://www.daogukj.com/rioupnlf/)
-- [抽象新闻：11月人类迷惑行为大赏（中）](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
-- [怎么看 JetBrains 成立 20 年来第一次亏损，这是不是代表了一个时代的结束？](http://www.daogukj.com/4038825)
-- [普京抵达深圳](http://www.movie.hkepx.cn/xiju/1465121.htm)
-- [深圳以暖心服务迎接亚太宾客](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
-- [波司登王力宏同款羽绒服售价 2399 元至 5999 元，仅售 16 件，波司登高端化之路走错了吗？](http://www.movie.hkepx.cn/movie/3433204.htm)
-- [孙艺洲：演员是服务行业不能套路观众](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
-- [CBS：最新法医证据显示爱泼斯坦应死于谋杀](http://www.movie.hkepx.cn/movie/2806122.htm)
-- [浑水做空英伟达](http://www.movie.hkepx.cn/xiju/8259656.htm)
-- [男子结婚9年三个子女非亲生](http://www.daogukj.com/1174569)
-- [2026APEC这些看点值得期待](http://www.movie.hkepx.cn/movie/6697492.htm)
-- [深圳公交全是新能源车](http://www.movie.hkepx.cn/xiju/5943289.htm)
-- [都2026年了 竟还有人坐飞机时丢硬币](http://www.movie.hkepx.cn/movie/8569024.htm)
-- [雷军晒深圳风景](http://www.daogukj.com/pftujnfw/)
-- [丘成桐以求真院长身份在人民日报撰文，称「五到十年内有望本土培养出领军数学家」，如何理解他的这篇文章？](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
-- [供应商快被车企拖死了](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
-- [41人没症状被AI查出早期肠癌](http://www.movie.hkepx.cn/movie/7912436.htm)
-- [特朗普启程亚洲行，准备参与 APEC 会议，称「可能与金正恩委员长会面」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
-- [深圳公交全是新能源车 嘉宾很震撼](http://www.daogukj.com/acaxfgrw/)
-- [普京身边罕见无提黑色手提箱保镖随行](http://www.movie.hkepx.cn/xiju/9771788.htm)
-- [“大圣遇猴孙”刷屏 当事人发声](http://www.daogukj.com/8766336)
-- [三次东道主 这次有什么不一样](http://www.movie.hkepx.cn/movie/9431364.htm)
-- [现货黄金创年内新低，金饰克价回撤超540元，50克金镯账面缩水2.7万，现在该抄底吗？](http://www.movie.hkepx.cn/xiju/8826039.htm)
-- [小米辟谣汽车召回短信](http://www.daogukj.com/8892908)
-- [华农兄弟：宰只公羊来炖，兄弟来帮忙，味道好极了](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
-- [【守护解放西·传承季】总预告：守护第七年，我们再次出发！](http://www.movie.hkepx.cn/movie/0328456.htm)
-- [美联储主席警告美国 AI 热潮若落空将致美股大跌失业率攀升，该判断有哪些现实依据？](http://www.daogukj.com/8247088)
-- [《哈利波特与死亡火器》](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
-- [郑恺女儿英文水平超过不少大学生了](http://www.daogukj.com/8583894)
-- [黄金](http://www.daogukj.com/5838795)
-- [前 PS 高管称 PS6 性能升级不重要，价格便宜才是好，这个观点合理吗？](http://www.daogukj.com/mrhwajew/)
-- [蚌埠住的时候就抽出七匹狼](http://www.movie.hkepx.cn/movie/8871014.htm)
+- [⚡ 非凡之畜 ⚡](http://www.play.hengshemaoyi.cn/xiju/6874661.htm)
+- [许飞的iPhone18Pro摔了](http://www.daogukj.com/ugtzcfro/)
+- [特朗普抵达深圳中方战机拉起彩烟](http://www.play.hengshemaoyi.cn/xiju/6422082.htm)
+- [英伟达拿走数据中心芯片市场76%营收](http://www.daogukj.com/vcakiegu/)
+- [iG爆衣大哥病危进了ICU](http://www.movie.hkepx.cn/xiju/3609316.htm)
+- [中美元首握手](http://www.play.hengshemaoyi.cn/xiju/1948351.htm)
+- [【完结】财神窦占龙 第16集 归乡【8月国创】](http://www.daogukj.com/0764598)
+- [菲总统深夜给特朗普团队送炸鸡](http://www.play.hengshemaoyi.cn/xiju/3678982.htm)
+- [suk 青稚](http://www.daogukj.com/4164218)
+- [郑恺当年高考分数超复旦录取线31分](http://www.daogukj.com/8982602)
+- [蚌埠住的时候就抽出七匹狼](http://www.play.hengshemaoyi.cn/xiju/2812408.htm)
+- [GTA6](http://www.movie.hkepx.cn/xiju/4720013.htm)
+- [共绘新图景 共话新机遇](http://www.daogukj.com/zaulbsuv/)
+- [普京盛赞深圳](http://www.play.hengshemaoyi.cn/kongbu/7696282.htm)
+- [“他们没有任何血缘关系，但却拥有同一个妈妈.”【Scared play sacred place】【治愈心灵の小曲】](http://www.daogukj.com/gbkfzcnu/)
+- [「幽明志」幽城残梦](http://www.movie.hkepx.cn/movie/7973247.htm)
+- [美国总统特朗普抵达深圳](http://www.daogukj.com/bdilzxjd/)
+- [特朗普年内第二次访华](http://www.movie.hkepx.cn/xiju/6416942.htm)
+- [医学生就业工作真的很难吗？](http://www.daogukj.com/rioupnlf/)
+- [APEC最高级别会议为何叫作非正式](http://www.play.hengshemaoyi.cn/kongbu/0245274.htm)
+- [《遗忘之海》第三赛季更新前瞻PV「旧日序曲」](http://www.daogukj.com/4038825)
+- [现场画面：特朗普走出舱门](http://www.movie.hkepx.cn/xiju/1465121.htm)
+- [黑客打开印度骗子的摄像头，顺手把骗子策反了！](http://www.play.hengshemaoyi.cn/xiju/3084582.htm)
+- [当bro一起去吃自助餐🍑](http://www.movie.hkepx.cn/movie/3433204.htm)
+- [特朗普成首位踏足深圳的在任美总统](http://www.play.hengshemaoyi.cn/xiju/4288267.htm)
+- [空军表演队拉彩烟欢迎特朗普](http://www.movie.hkepx.cn/movie/2806122.htm)
+- [如何看待管泽元全程无缘 2026 全球总决赛官方解说席？](http://www.movie.hkepx.cn/xiju/8259656.htm)
+- [某些动物灭绝一定要怪人类吗？](http://www.daogukj.com/1174569)
+- [APEC多场密集对话释放大量前沿信息](http://www.movie.hkepx.cn/movie/6697492.htm)
+- [打工人开豪车上班，老板娘要来家访…](http://www.movie.hkepx.cn/xiju/5943289.htm)
+- [48 岁律师与法援对象沟通时突发脑溢血去世，交五险却无法享受工亡待遇，为啥会出现这种情况？](http://www.movie.hkepx.cn/movie/8569024.htm)
+- [如何评价王楚钦/孙颖莎获得 2026 年 WTT 香港总决赛混双外卡？你有哪些期待？](http://www.daogukj.com/pftujnfw/)
+- [三座城、三次APEC会议见证了什么](http://www.play.hengshemaoyi.cn/kongbu/7676167.htm)
+- [同游新加坡，凭什么她的照片一发就爆？【晚爸】荣耀700 Pro影像超前评测](http://www.play.hengshemaoyi.cn/kongbu/3954411.htm)
+- [深圳机场停满各国领导人专机](http://www.movie.hkepx.cn/movie/7912436.htm)
+- [小獬豸捉“妖”记](http://www.play.hengshemaoyi.cn/xiju/8362039.htm)
+- [竞燃之夜节目单](http://www.daogukj.com/acaxfgrw/)
+- [特朗普向中方欢迎人群挥手](http://www.movie.hkepx.cn/xiju/9771788.htm)
+- [泰国总理回到广东老家格外兴奋](http://www.daogukj.com/8766336)
+- [外国人士热议APEC 共话新期待](http://www.movie.hkepx.cn/movie/9431364.htm)
+- [《最礼乐崩坏の一集》](http://www.movie.hkepx.cn/xiju/8826039.htm)
+- [记者：普京车队起码有40多辆车](http://www.daogukj.com/8892908)
+- [普京：感谢中国](http://www.play.hengshemaoyi.cn/xiju/9494251.htm)
+- [墨西哥总统请求引进一只大熊猫](http://www.movie.hkepx.cn/movie/0328456.htm)
+- [深圳机场一眼望去全是专机](http://www.daogukj.com/8247088)
+- [美学者开中国电动车走马可·波罗之路](http://www.play.hengshemaoyi.cn/xiju/8777016.htm)
+- [历史性峰会！为什么是APEC？是中国？是深圳？](http://www.daogukj.com/8583894)
+- [【蜘蛛侠/MJ】非凡之爱真人版](http://www.daogukj.com/5838795)
+- [华强北挤满了外国人](http://www.daogukj.com/mrhwajew/)
+- [非凡魔丸](http://www.movie.hkepx.cn/movie/8871014.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价OpenAI 发布的 GPT-6.2 Astra 和 GPT-6.2 Sol？](https://www.zhihu.com/question/2106209204986041745)
+- [女子在盒马下单四百多次全部申请仅退款，称「刺激解压」，明知不光彩还是忍不住下单，如何从心理学角度解读？](https://www.zhihu.com/question/2106047811234030236)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: edbbe599ba77c6d70282 -->
+<!-- content-fingerprint: 41ba41af052df0b83961 -->
