@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# APEC专属围巾原来是这样的
+# 特朗普：我们创造了历史
 
-> 来源：百度热搜 · 排名：第 4 位 · 热度：7429380 · 更新：2026-11-19T16:48:37+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7426415 · 更新：2026-11-20T01:49:17+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“APEC专属围巾原来是这样的”位列第 4 位，公开热度指标为 7429380。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“特朗普：我们创造了历史”位列第 4 位，公开热度指标为 7426415。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月19日上午，亚太经合组织第三十三次领导人非正式会议在深圳国际交流中心举行。合影前夕，嘉宾戴上中方准备的国风双面围巾，APEC专属围巾亮相！
+来源公开摘要显示：11月19日下午，国家主席习近平在深圳同俄罗斯总统普京、美国总统特朗普举行中俄美元首会晤。特朗普说：“我要祝贺习主席成功举办此次APEC会议。非常成功，巨大的成功。我也很高兴，此次访问期间有机会出席历史上首次美中俄三方会晤。从这个角度来说，今天我们创造了历史。”
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [习近平主持中俄美元首会晤](hua-she-tian-zu.md)
-- [中俄美三国元首会晤](yi-xin-yi-yi.md)
-- [为什么大家这么关注APEC会议？](san-xin-er-yi.md)
-- [以防你不知道GTA6的狗子会开游艇来救你！](si-hai-wei-jia.md)
+- [中俄美元首会晤](hua-she-tian-zu.md)
+- [中俄美元首和平宣言](yi-xin-yi-yi.md)
+- [中俄美元首发表和平宣言，三国元首重申核战争打不赢也打不得，哪些信息值得重点关注？](san-xin-er-yi.md)
+- [坐牢难，但出狱其实更难，如果你犯罪了，你会面临什么样的人生](si-hai-wei-jia.md)
 
 ## 站内推荐
 
-- [引领时代风气之先 锚定亚太合作方向](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [中方回应“金正恩会否与特朗普会晤”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [胖东来撤走后降到四百万依然没有人接盘](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [马斯克小儿子说爱中国](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [白小纯 青稚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [30年 第一次叫“倡议”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [韩国总统夫人被舞狮英歌舞表演圈粉](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [“监管要求上报基金AI敞口”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [比亚迪发布折叠方向盘](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [终于看到《知否》祖孙三人同框了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“照猫画虎”](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
-- [普京用中文对与会者说谢谢](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
-- [未来是短剧的天下还是长剧的天下？](http://www.daogukj.com/6635536)
-- [专家建议金饰跌破1000元再买](http://www.daogukj.com/5112321)
-- [ShenzhenTravel在外网火了](http://www.daogukj.com/ipwmcbrx/)
-- [马天宇哭到张萌后悔](http://www.daogukj.com/0838857)
-- [男朋友一被领导说就离职，频繁裸辞后长期空窗，是我太计较吗？](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
-- [为什么大家这么关注APEC会议？](http://www.movie.hkepx.cn/movie/2653607.htm)
-- [习近平主持中俄美元首会晤](http://www.movie.hkepx.cn/movie/2345084.htm)
-- [纯黑《GTA6》丧心病狂攻略解说 第一期](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
-- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](http://www.movie.hkepx.cn/xiju/6793540.htm)
-- [中俄美元首同框，有哪些意义？对国际局势有哪些影响？](http://www.daogukj.com/2792130)
-- [特朗普会见普京时打趣问这是谁](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
-- [马天宇对王子璇说给你贷款会觉得有危险](http://www.movie.hkepx.cn/movie/1067049.htm)
-- [中方回应高市早苗礼宾安排](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
-- [陈晓楠评价文吉儿](http://www.daogukj.com/1652635)
-- [如何看待比亚迪王传福称「我赢你输」不可能长期发展，中国企业在海外绝不是「抢饭碗」？](http://www.movie.hkepx.cn/xiju/9905863.htm)
-- [李家超笑称“我是东道主啊”](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
-- [小番茄的逆袭洗白之路](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
-- [马斯克小儿子玩具都是中国制造](http://www.movie.hkepx.cn/xiju/4386657.htm)
-- [儿子拿笔在墙上乱画，儿子爸爸极力反对说要有规矩，姥姥说让孩子画是保护他的探索欲，谁说得对我该站谁？](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
-- [【GTA6】我们拥有真实的物理引擎](http://www.movie.hkepx.cn/xiju/3638436.htm)
-- [华为超薄表](http://www.daogukj.com/7944277)
-- [中美元首深圳会晤](http://www.daogukj.com/8908969)
-- [「幽明志」幽城残梦](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
-- [中俄美元首座驾首次同框](http://www.play.hengshemaoyi.cn/xiju/9948582.htm)
-- [深圳市民在街头偶遇各国政要](http://www.movie.hkepx.cn/xiju/6922648.htm)
-- [共促亚太繁荣：中国的建议与邀约](http://www.play.hengshemaoyi.cn/kongbu/0311261.htm)
-- [特朗普见普京时开玩笑问“他是谁”](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
-- [在《GTA 6》中触发6星通缉会发生什么？](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
-- [老戴《侠盗猎车手 6》初见开荒全实况流程解说【GTA 6】](http://www.daogukj.com/samlsvei/)
-- [白小纯 青稚](http://www.daogukj.com/upwbykhc/)
+- [男朋友一被领导说就离职，频繁裸辞后长期空窗，是我太计较吗？](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
+- [特朗普离深登机时做挥拳动作](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
+- [泰国记者来中国买买买直呼没钱了](http://www.daogukj.com/6635536)
+- [青稚回应王栎鑫](http://www.daogukj.com/5112321)
+- [李在明发文感谢中国热情接待](http://www.daogukj.com/ipwmcbrx/)
+- [特朗普点赞深圳：这座城市近乎完美](http://www.daogukj.com/0838857)
+- [一湾红树林 向亚太讲述“共生”之道](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
+- [中俄美元首发表和平宣言，三国元首重申核战争打不赢也打不得，哪些信息值得重点关注？](http://www.movie.hkepx.cn/movie/2653607.htm)
+- [中俄美元首会晤](http://www.movie.hkepx.cn/movie/2345084.htm)
+- [从恒生指数看港股这57年【1969-2026】【特效数据可视化】](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
+- [马斯克盛赞中国，直言中美合作越多越好，并表示特斯拉会继续在中国提高产量，如何看待他这一发言？](http://www.movie.hkepx.cn/xiju/6793540.htm)
+- [中方回应高市早苗礼宾安排](http://www.daogukj.com/2792130)
+- [Anthropic上市](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
+- [特朗普又没拉窗帘](http://www.movie.hkepx.cn/movie/1067049.htm)
+- [【IGN】《黄金矿工：派对狂欢》22分钟实机演示](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
+- [深圳市民遇普京车队心跳猛加速](http://www.daogukj.com/1652635)
+- [王毅送别美俄元首后举行记者会](http://www.movie.hkepx.cn/xiju/9905863.htm)
+- [纯黑《GTA6》丧心病狂攻略解说 第一期](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
+- [文吉儿圈内好友没提王子璇](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
+- [恶役千金题材作品天花板！全集93分钟一次看过瘾，《恶役千金的真面目》漫画剧情深度解析](http://www.movie.hkepx.cn/xiju/4386657.htm)
+- [睡前有5种表现要警惕脑梗](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
+- [OpenAI 宣布为全球多达 20 万科学家免费提供前沿模型访问，如何理解这一动作，可能带来哪些影响？](http://www.movie.hkepx.cn/xiju/3638436.htm)
+- [应该全面禁止并彻底销毁核武器](http://www.daogukj.com/7944277)
+- [王毅机场送别特朗普 二人长时间交谈](http://www.daogukj.com/8908969)
+- [如何看待网传小米大模型业务MiMo或独立融资？](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
+- [震惊瘫坐！GTA6 的车细节有多恐怖？车系统深度体验](http://www.play.hengshemaoyi.cn/xiju/9948582.htm)
+- [Thank you, Choi 'Doran' Hyeon-Jun](http://www.movie.hkepx.cn/xiju/6922648.htm)
+- [高市早苗应该在深圳烈士陵园鞠躬谢罪](http://www.play.hengshemaoyi.cn/kongbu/0311261.htm)
+- [Mili - City Blue（都市之蓝）](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
+- [前中国女子体操运动员芦玉菲自曝被单位欠缴91个月社保，最新回应已补缴完成，如何评价？](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
+- [『无中生有』 愿笑声不息，欢愉不死！](http://www.daogukj.com/samlsvei/)
+- [终于看到《知否》祖孙三人同框了](http://www.daogukj.com/upwbykhc/)
 - [【纪录片】人生一串 第四季 03 十二时辰](http://www.daogukj.com/dqafhzpy/)
-- [网友让豆包生成一张「盒子里有13个鸡蛋」的图片，豆包连续十几次纠错仍未能数清，这是为什么？](http://www.daogukj.com/wqdjnvax/)
-- [杨超越董思成亲了4小时的吻戏](http://www.movie.hkepx.cn/movie/3230647.htm)
-- [外交部回应中日领导人APEC是否会晤](http://www.daogukj.com/0955188)
-- [WorkBuddy日活用户超1000万，它是怎么做到的？AI Agent已经成为工作刚需了吗？](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
-- [叶连平将成为“大体老师”](http://www.daogukj.com/8951042)
-- [梁圣带大肥鱼们去吃自助](http://www.daogukj.com/6868668)
-- [中俄美元首一张圆桌三个座位](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
-- [被捂死女童生父一家拒养凶手女儿](http://www.daogukj.com/6244721)
-- [习近平会见美国总统特朗普](http://www.movie.hkepx.cn/xiju/4196972.htm)
-- [深圳市民在街头偶遇多国政要](http://www.daogukj.com/8252530)
-- [普京乘电梯时主动礼让文莱苏丹](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
-- [陈晓楠回应喊停文吉儿王子璇谈话](http://www.movie.hkepx.cn/xiju/3203404.htm)
-- [特朗普：请中国继续保持强大](http://www.daogukj.com/cmilhphd/)
-- [中俄美三国元首会晤](http://www.daogukj.com/8929579)
-- [微博竞燃之夜](http://www.daogukj.com/xyvhazpu/)
-- [特朗普总统说请中国继续保持强大](http://www.movie.hkepx.cn/xiju/5070981.htm)
-- [粉丝超7000万的“潘姥姥”是谁](http://www.movie.hkepx.cn/xiju/1375597.htm)
+- [美国总统特朗普称美国不支持「台独」，这一发言释放了哪些信号？](http://www.daogukj.com/wqdjnvax/)
+- [拼多多涨近13%](http://www.movie.hkepx.cn/movie/3230647.htm)
+- [伊能静还是不负众望](http://www.daogukj.com/0955188)
+- [牛肉为什么突然贵了](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
+- [20多天婴儿被喂白开水中毒肾损伤](http://www.daogukj.com/8951042)
+- [如何评价一见 auto 的文章《理想宁德，后会友期》？宁德向理想一天发三封催款邮件，其中出了什么问题？](http://www.daogukj.com/6868668)
+- [特朗普登上空军一号挥手告别](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
+- [还有30个国家GDP比深圳高](http://www.daogukj.com/6244721)
+- [习主席主持 普京、特朗普先后发言](http://www.movie.hkepx.cn/xiju/4196972.htm)
+- [王毅到机场送别特朗普](http://www.daogukj.com/8252530)
+- [普京笑着透露三方会晤细节](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
+- [特朗普登机前又做标志性动作](http://www.movie.hkepx.cn/xiju/3203404.htm)
+- [普京：感谢中方](http://www.daogukj.com/cmilhphd/)
+- [中俄美元首和平宣言](http://www.daogukj.com/8929579)
+- [墨西哥总统弹奏中国名曲《茉莉花》](http://www.daogukj.com/xyvhazpu/)
+- [马斯克从深圳飞到了上海](http://www.movie.hkepx.cn/xiju/5070981.htm)
+- [CS2海克斯大乱go来了！肺泡都给我笑炸了](http://www.movie.hkepx.cn/xiju/1375597.htm)
 
 </details>
 
 ## 原始来源
 
-- [APEC专属围巾原来是这样的](https://www.baidu.com/s?wd=APEC%E4%B8%93%E5%B1%9E%E5%9B%B4%E5%B7%BE%E5%8E%9F%E6%9D%A5%E6%98%AF%E8%BF%99%E6%A0%B7%E7%9A%84&sa=fyb_news&rsv_dl=fyb_news)
+- [特朗普：我们创造了历史](https://www.baidu.com/s?wd=%E7%89%B9%E6%9C%97%E6%99%AE%EF%BC%9A%E6%88%91%E4%BB%AC%E5%88%9B%E9%80%A0%E4%BA%86%E5%8E%86%E5%8F%B2&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 957ac26fc5c3aaca948f -->
+<!-- content-fingerprint: efc28e1f1368e3239fb9 -->
