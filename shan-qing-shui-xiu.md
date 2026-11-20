@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 外国人在华强北买“疯”了
+# 【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】
 
-> 来源：百度热搜 · 排名：第 3 位 · 热度：7522346 · 更新：2026-11-20T15:17:33+08:00
+> 来源：哔哩哔哩热门 · 排名：第 3 位 · 热度：2711967 · 分类：国产动画 · 更新：2026-11-21T00:15:32+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“外国人在华强北买“疯”了”位列第 3 位，公开热度指标为 7522346。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】”位列第 3 位，公开热度指标为 2711967，榜单分类为“国产动画”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，APEC期间，外国游客扎堆深圳华强北，先买AI眼镜再戴着逛吃喝。商户马坤潮称，华强北上午设计、下午打样、次日量产、一周出海的速度，让外国游客直呼不可思议。
+来源公开摘要显示：每周五12:00，B站独播！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `国产动画`
 
 ## 相关热点
 
-- [文吉儿一靠近王子璇就转身](feng-he-ri-li.md)
-- [日方称中方接待高市早苗符合惯例](chun-nuan-hua-kai.md)
-- [如何看待张朝阳回应搜狐「躺平」：没资源做大模型，但每天凌晨4点起床，讲物理课也是工作？](qiu-gao-qi-shuang.md)
-- [⚡霸 爸 去 哪 儿⚡](bing-tian-xue-di.md)
+- [U17世界杯：国足0比5惨败西班牙](feng-he-ri-li.md)
+- [金价](chun-nuan-hua-kai.md)
+- [赖岳谦：汉奸走狗才盲目追捧日本人](qiu-gao-qi-shuang.md)
+- [中俄美和平宣言为何特别强调国际刑事法院不得滥用管辖权？具体针对的是什么？这一表述有何现实背景？](bing-tian-xue-di.md)
 
 ## 站内推荐
 
-- [尾随NPC的真实反应](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [厦门大学收到捐款1亿元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [为何会无意识长时间看手机](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [张萌和许飞吃了4个小时的饭](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [青稚为了白小纯梭哈总决赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [90分钟中俄美会晤，摆了哪些事上桌？王骁APEC观察](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [《绝区零》3.4 版本「长日终尽」前瞻特别节目](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [工商银行发布风险提示](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [李亚鹏想为李嫣窦靖童王菲和声被拒](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [Knight黄金左手是这样来的](http://www.movie.hkepx.cn/xiju/9107169.htm)
-- [⚡霸 爸 去 哪 儿⚡](http://www.daogukj.com/2118100)
-- [如何看待丰田员工餐疑似摆拍造假？](http://www.daogukj.com/4008344)
-- [金店老板说金价已经到底了](http://www.play.hengshemaoyi.cn/kongbu/7615028.htm)
-- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.play.hengshemaoyi.cn/xiju/6049463.htm)
-- [英伟达有没有可能以后再也不出游戏显卡了，A卡一家独大？](http://www.play.hengshemaoyi.cn/xiju/3011019.htm)
-- [前世界亚军中单 Corn 回忆 Uzi 卢锡安打野事件「韩国打野未沟通就秒选」，真相到底是怎样的？](http://www.daogukj.com/hszupmxe/)
-- [如何看待美国收紧特定国家地区企业交由三星/台积电代工22/16/14nm及以下高制程芯片许可要求？](http://www.daogukj.com/4064184)
-- [童家堡首发](http://www.movie.hkepx.cn/xiju/6900043.htm)
-- [这谁能播的过他？看大司马玩GTA6简直能笑死，弹幕：太有节目了](http://www.movie.hkepx.cn/movie/5643633.htm)
-- [非凡之恶：这两人玩GTA6认识的](http://www.daogukj.com/9009599)
-- [中俄美和平宣言为何特别强调国际刑事法院不得滥用管辖权？具体针对的是什么？这一表述有何现实背景？](http://www.daogukj.com/xuhetnch/)
-- [张萌和许飞吃了4个小时的饭](http://www.movie.hkepx.cn/movie/3450692.htm)
-- [上证50指数探底回升收红](http://www.play.hengshemaoyi.cn/xiju/7219122.htm)
-- [Anthropic上市的画面也太诡异了](http://www.play.hengshemaoyi.cn/xiju/0509769.htm)
-- [厉娜戴了情侣对戒](http://www.daogukj.com/5496477)
-- [腾讯姚顺雨主导AI架构精简，而全公司11万人面临大调整，这类扁平化变革落地难点在哪？](http://www.play.hengshemaoyi.cn/kongbu/6052650.htm)
-- [我国智能制造整体迈入世界前列](http://www.play.hengshemaoyi.cn/kongbu/3792780.htm)
-- [为啥中文的一二三笔画简单明了，零的笔画那么多啊?](http://www.play.hengshemaoyi.cn/kongbu/9692275.htm)
-- [一家人下楼散步误入剧组](http://www.play.hengshemaoyi.cn/kongbu/4655475.htm)
-- [【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】](http://www.daogukj.com/6439972)
-- [特朗普从中国返美途中发帖](http://www.movie.hkepx.cn/movie/8714906.htm)
-- [同居生子后男子索还38万称只是同事](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
-- [地暖是24小时开着省钱，还是分时段开更省钱？](http://www.movie.hkepx.cn/movie/8757141.htm)
-- [APEC合作如何惠及百姓生活](http://www.daogukj.com/eagjoiap/)
-- [李书福：筹办芯位大学](http://www.play.hengshemaoyi.cn/xiju/9146558.htm)
-- [厦门大学收到捐款1亿元](http://www.daogukj.com/kmomqrid/)
-- [汉东内部视频通话被曝光?](http://www.play.hengshemaoyi.cn/xiju/3904561.htm)
-- [Jennie现在走的路线有点太夸张](http://www.daogukj.com/mxxhzzoj/)
-- [《GTA6》一天营收超皇马一年](http://www.daogukj.com/3878784)
-- [00后女生表演非遗喷火](http://www.daogukj.com/zkpqzjjl/)
-- [亮相APEC晚宴的荔枝冰酒已全线售罄](http://www.movie.hkepx.cn/xiju/2484261.htm)
-- [驴友穿越秦岭遇难，家属起诉救援队，法院判定救援队、环保部门无过错，组织者赔偿18万余元，如何看待此事？](http://www.movie.hkepx.cn/xiju/8693395.htm)
-- [他狂任他狂](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
-- [现货黄金跌破 3600 美元关口，这意味着什么？这轮下跌会跌到什么位置才有实质性支撑？](http://www.play.hengshemaoyi.cn/kongbu/5541435.htm)
-- [高市早苗应该在深圳烈士陵园鞠躬谢罪](http://www.daogukj.com/6739669)
-- [11 月 19 日美股三大指数集体收跌超 2%，AMD 遭做空重挫 8%，英伟达跌超 3%，怎样解读？](http://www.movie.hkepx.cn/movie/9062101.htm)
-- [为何会无意识长时间看手机](http://www.play.hengshemaoyi.cn/kongbu/4956160.htm)
-- [普京：中俄美元首会晤前所未有](http://www.movie.hkepx.cn/movie/9855909.htm)
-- [儿子将满18岁消失17年的父亲来求赡养](http://www.play.hengshemaoyi.cn/xiju/2496022.htm)
-- [看50年的中国 为什么要来深圳](http://www.play.hengshemaoyi.cn/kongbu/7048086.htm)
-- [APEC峰会各国领导人场外花式打卡](http://www.daogukj.com/0803688)
-- [难怪马天宇选择和张萌断联](http://www.play.hengshemaoyi.cn/xiju/9996924.htm)
-- [以防你不知道GTA6的狗子会开游艇来救你！](http://www.daogukj.com/ebzzkofo/)
-- [“全球最大医院”原党委书记被双开](http://www.daogukj.com/1982276)
-- [如何评价《影之刃零》的武打与动作设计，放到游戏圈甚至影视圈来说这算一个什么水平？](http://www.daogukj.com/5145711)
-- [孙俪女儿拉丁舞比赛被人撞倒2次](http://www.daogukj.com/9197192)
-- [感觉身边只剩酒肉朋友，聊的不是孩子上学就是社会新闻，再往深就没话了，有时候不明白交情怎么就停在这儿了？](http://www.daogukj.com/ngmslwod/)
-- [鸿蒙智行 享界V8及星芒品牌发布会](http://www.daogukj.com/8361807)
-- [很多人说GTA6或者GTA系列玩法单调，无非就是射击+开车，是不是玩法创新在这种3A上遇到瓶颈了？](http://www.daogukj.com/vyqctkoa/)
+- [美团、京东、阿里集体盯上了厨房](http://www.movie.hkepx.cn/xiju/9107169.htm)
+- [中俄美和平宣言为何特别强调国际刑事法院不得滥用管辖权？具体针对的是什么？这一表述有何现实背景？](http://www.daogukj.com/2118100)
+- [墨西哥总统感谢中国女保镖](http://www.daogukj.com/4008344)
+- [10人国安无缘足协杯决赛](http://www.play.hengshemaoyi.cn/kongbu/7615028.htm)
+- [⚡霸 爸 去 哪 儿⚡](http://www.play.hengshemaoyi.cn/xiju/6049463.htm)
+- [日方称中方接待高市早苗符合惯例](http://www.play.hengshemaoyi.cn/xiju/3011019.htm)
+- [余承东纠正“开车可以睡觉”言论](http://www.daogukj.com/hszupmxe/)
+- [数学家称与 Claude 合作证明了黎曼猜想，证明稿超 25 万页，黎曼猜想真的被解决了吗？](http://www.daogukj.com/4064184)
+- [不要跟任何同事说你的事](http://www.movie.hkepx.cn/xiju/6900043.htm)
+- [DeepSeek 第二轮融资 1050 多亿元落地，31 家外部股东入局，怎样解读？](http://www.movie.hkepx.cn/movie/5643633.htm)
+- [中国政法、上大、上海交大等多所高校不向2027级研究生提供宿舍，为何各校宿舍紧张问题都迟迟没能解决？](http://www.daogukj.com/9009599)
+- [如何看待马斯克离开深圳，突访上海？](http://www.daogukj.com/xuhetnch/)
+- [工商银行发布风险提示](http://www.movie.hkepx.cn/movie/3450692.htm)
+- [特朗普：我完全可以理解普京的愤怒](http://www.play.hengshemaoyi.cn/xiju/7219122.htm)
+- [“26摄氏度穿衣法则”靠谱吗](http://www.play.hengshemaoyi.cn/xiju/0509769.htm)
+- [苗苗生病后郑恺在家做了8个人的饭](http://www.daogukj.com/5496477)
+- [“全球最大医院”原党委书记被双开](http://www.play.hengshemaoyi.cn/kongbu/6052650.htm)
+- [U17国足vs西班牙U17](http://www.play.hengshemaoyi.cn/kongbu/3792780.htm)
+- [特朗普刚返美就发重大预告](http://www.play.hengshemaoyi.cn/kongbu/9692275.htm)
+- [林更新你怎么什么都敢演](http://www.play.hengshemaoyi.cn/kongbu/4655475.htm)
+- [王毅介绍中俄美元首会晤情况，称这是一次「和平峰会」，是载入史册的标志性事件，传递出了哪些信号？](http://www.daogukj.com/6439972)
+- [胖东来搬离后原址所开新商场几乎倒闭](http://www.movie.hkepx.cn/movie/8714906.htm)
+- [A股有望迎估值修复窗口](http://www.play.hengshemaoyi.cn/xiju/8105797.htm)
+- [李子柒当选四川省文联副主席](http://www.movie.hkepx.cn/movie/8757141.htm)
+- [《绝区零》3.4版本PV | 长日终尽](http://www.daogukj.com/eagjoiap/)
+- [荔枝冰酒厂家承诺爆火后绝不涨价](http://www.play.hengshemaoyi.cn/xiju/9146558.htm)
+- [《绝区零》3.4 版本「长日终尽」前瞻特别节目](http://www.daogukj.com/kmomqrid/)
+- [【禅院直哉无伤宿傩】好过分啊，你这家伙没有人心吗？【B站AI公开创造赛】](http://www.play.hengshemaoyi.cn/xiju/3904561.htm)
+- [18岁女孩打减肥针暴瘦40斤被送急诊](http://www.daogukj.com/mxxhzzoj/)
+- [购车一年多次维修 车主成功退车](http://www.daogukj.com/3878784)
+- [MAMA获奖名单](http://www.daogukj.com/zkpqzjjl/)
+- [AI:我算出了最优解！和珅:谢邀，刚把桥贪到只剩一根绳！](http://www.movie.hkepx.cn/xiju/2484261.htm)
+- [特朗普从中国返美途中发帖](http://www.movie.hkepx.cn/xiju/8693395.htm)
+- [11 月 19 日美股三大指数集体收跌超 2%，AMD 遭做空重挫 8%，英伟达跌超 3%，怎样解读？](http://www.play.hengshemaoyi.cn/xiju/6071215.htm)
+- [黄金大跌，你们会去购买黄金吗？](http://www.play.hengshemaoyi.cn/kongbu/5541435.htm)
+- [媒体称中国 AI 人才不再迷恋美国成群回国，这一趋势背后的核心动因是什么？](http://www.daogukj.com/6739669)
+- [APEC国宴大厨分享蒸鱼秘诀](http://www.movie.hkepx.cn/movie/9062101.htm)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/4956160.htm)
+- [青稚MVP](http://www.movie.hkepx.cn/movie/9855909.htm)
+- [李亚鹏想帮王菲母女3人和声被拒绝](http://www.play.hengshemaoyi.cn/xiju/2496022.htm)
+- [长辈泡的“药酒”，里面到底有什么？](http://www.play.hengshemaoyi.cn/kongbu/7048086.htm)
+- [两京十五日收视率](http://www.daogukj.com/0803688)
+- [⚡中国车先飞⚡](http://www.play.hengshemaoyi.cn/xiju/9996924.htm)
+- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.daogukj.com/ebzzkofo/)
+- [特朗普称行程太满没顾上见金正恩](http://www.daogukj.com/1982276)
+- [深圳华丽转型生动诠释APEC理念](http://www.daogukj.com/5145711)
+- [7岁英歌舞女孩亮相APEC迎宾表演](http://www.daogukj.com/9197192)
+- [江南大学回应 「大学英语改为选修」，有通过四六级等免修条件，这一改革会成为趋势吗？](http://www.daogukj.com/ngmslwod/)
+- [如果睡觉也能赚钱...](http://www.daogukj.com/8361807)
+- [钧正平：日方应收回涉台错误言论](http://www.daogukj.com/vyqctkoa/)
 
 </details>
 
 ## 原始来源
 
-- [外国人在华强北买“疯”了](https://www.baidu.com/s?wd=%E5%A4%96%E5%9B%BD%E4%BA%BA%E5%9C%A8%E5%8D%8E%E5%BC%BA%E5%8C%97%E4%B9%B0%E2%80%9C%E7%96%AF%E2%80%9D%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】](https://b23.tv/BV16hsY6tExz)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f683ab3065600382fcfd -->
+<!-- content-fingerprint: c719df0aac7f8819e233 -->
