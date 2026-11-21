@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 世界首个、蝉联榜首！多领域捷报频传
+# 321场活动75项成果 回顾APEC成绩单
 
-> 来源：百度热搜 · 排名：第 2 位 · 热度：7617613 · 更新：2026-11-21T11:32:34+08:00
+> 来源：百度热搜 · 排名：第 2 位 · 热度：7617472 · 更新：2026-11-21T19:44:37+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“世界首个、蝉联榜首！多领域捷报频传”位列第 2 位，公开热度指标为 7617613。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“321场活动75项成果 回顾APEC成绩单”位列第 2 位，公开热度指标为 7617472。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：本周我国多领域创新成果密集涌现，捷报频传：11月17日“灵晟”超算蝉联全球榜首；11月16日世界首个“源储一号”在甘肃成功并网；近日“梦想”号大洋钻探船完成海试，刷新该类系统国际作业水深纪录。
+来源公开摘要显示：11月18日至19日，亚太经合组织第三十三次领导人非正式会议在广东深圳举行。321场活动、75项成果，一起回顾APEC的成绩单！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [五中全会决定这些话要牢记](qian-jun-wan-ma.md)
-- [APEC参会来宾眼中的“奇迹之城”](wan-zi-qian-hong.md)
-- [为什么欧美使用壁炉的普遍性这么高，而中国却没有？](niao-yu-hua-xiang.md)
-- [你的GTA我的GTA好像不一样！](shan-qing-shui-xiu.md)
+- [唱空中国经济者终会落空](qian-jun-wan-ma.md)
+- [APEC开启经贸合作新空间](wan-zi-qian-hong.md)
+- [胖东来生活广场闭店后周围商户陆续搬走，曝租金降至400万后仍无人接盘，现在来看房东涨租算不算决策失误？](niao-yu-hua-xiang.md)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](shan-qing-shui-xiu.md)
 
 ## 站内推荐
 
-- [特朗普：看看人家深圳再看看我们](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [AI短剧《丑狐》爆火](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [美股 AI泡沫](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [魏德尔：大国谈判桌上已没有欧洲](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [主人去世20天小猫每天守墓旁](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [多国领导人表态：恪守一个中国原则](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [墨西哥总统的中方女保镖在外网火了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [郎平谈执教美国女排](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [马斯克回应上海工厂跳舞片段：不是AI](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [工厂生产爆米花场面像放排炮](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么我感觉自己做饭并没有比点外卖省钱？](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
-- [天下无双！现版本马斑实战思路](http://www.daogukj.com/nksrlhgk/)
-- [美股 AI泡沫](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
-- [英伟达七周累计暴跌46%](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
-- [金价为何急跌](http://www.movie.hkepx.cn/movie/5605734.htm)
-- [丝芭下孩子了](http://www.movie.hkepx.cn/movie/4801109.htm)
-- [《蓝色星原：旅谣》公测前瞻节目回顾](http://www.movie.hkepx.cn/xiju/2747311.htm)
-- [BLG的AD有可能是Diable](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
-- [黎曼猜想真被AI证明了吗](http://www.daogukj.com/7870973)
-- [有哪些事情是去了澳门才知道的？](http://www.movie.hkepx.cn/movie/0510547.htm)
-- [长辈泡的“药酒”，里面到底有什么？](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
-- [上海人安慰人北京人瞎过吧](http://www.movie.hkepx.cn/xiju/2968189.htm)
-- [金价下跌 现在买金镯子还是再等等](http://www.movie.hkepx.cn/xiju/4295526.htm)
-- [英伟达市值掉了一个亚马逊](http://www.movie.hkepx.cn/movie/7065901.htm)
-- [韩国首次用「紧急灾难通知」让全国手机响铃 10.5 秒防高考作弊，此举合理吗？](http://www.daogukj.com/7724801)
-- [以前的朱瞻基现在的朱瞻基](http://www.daogukj.com/oxaknnjh/)
-- [BLG夺冠，能唤回多少国内玩家的热情重回《英雄联盟》？](http://www.daogukj.com/kxqitgac/)
-- [五中全会决定这些话要牢记](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
-- [《辟谣箴言》系列漫画](http://www.daogukj.com/eymoxoal/)
-- [胖东来搬离后原址所开新商场几乎倒闭](http://www.daogukj.com/sblnbief/)
-- [分不清哪个是倒放的](http://www.movie.hkepx.cn/xiju/6564425.htm)
-- [Claude声称证明黎曼猜想，我准备女装cos元辅了](http://www.movie.hkepx.cn/xiju/1342296.htm)
-- [孙芮自曝已结婚怀孕](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
-- [美股崩跌 纳指今年涨幅全部蒸发](http://www.daogukj.com/mqwqpttl/)
-- [在中世纪时代拒绝骑士决斗，或在美国西部时代拒绝牛仔决斗，直接认怂，能活命么？](http://www.movie.hkepx.cn/movie/1933025.htm)
-- [孙芮结婚怀孕](http://www.daogukj.com/dubydsdf/)
-- [一家人遛弯误入剧组还上了央视](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
-- [黄牛称炒茅台已「几乎无利可图」，酒厂逐步拿回定价权，这门「生意」为什么不赚钱了？近十年来发生什么变化？](http://www.movie.hkepx.cn/movie/9543340.htm)
-- [为什么欧美使用壁炉的普遍性这么高，而中国却没有？](http://www.movie.hkepx.cn/movie/1686485.htm)
-- [特朗普称赞深圳城市建设](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
-- [你的GTA我的GTA好像不一样！](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
-- [特朗普称不允许美企海外建数据中心](http://www.movie.hkepx.cn/movie/7336252.htm)
-- [湖南株洲一仓库突发大火？不实](http://www.movie.hkepx.cn/movie/3065395.htm)
-- [主人去世20天小猫每天守墓旁](http://www.daogukj.com/oioomhrz/)
-- [金价银价大跳水](http://www.movie.hkepx.cn/movie/7981100.htm)
-- [炎亚纶铁了心要上后会友期](http://www.daogukj.com/btwajvnj/)
-- [曝 Viper 可能离开 BLG，是真的吗？离队的原因是啥？若离队谁最有可能接替他？](http://www.daogukj.com/8398590)
-- [炎亚纶汪东城世纪大和解](http://www.movie.hkepx.cn/movie/6246578.htm)
-- [特朗普称不支持“台独”引岛内震动](http://www.daogukj.com/4390556)
-- [特朗普：中俄美元首会晤史无前例](http://www.daogukj.com/skeidyel/)
-- [信用卡近一年减少 3400 万张，信用卡为何逐渐失去吸引力？背后反映出消费者支付习惯发生了哪些变化？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
-- [孙芮属于军婚](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
-- [深圳华丽转型生动诠释APEC理念](http://www.daogukj.com/jdhlltmp/)
-- [这段爆破戏疑似AI做的](http://www.daogukj.com/inrtjmju/)
-- [张萌的大胆穿搭直接吓到孟子义](http://www.movie.hkepx.cn/movie/4017423.htm)
-- [高市搭讪特朗普被无视 日网民：丢人](http://www.daogukj.com/9107163)
-- [90分钟中俄美会晤，摆了哪些事上桌？王骁APEC观察](http://www.daogukj.com/ypwsrnna/)
-- [司老凤联盟第111集:老牧师演唱会5:20am（完整版）](http://www.daogukj.com/7314066)
-- [如果 GTA6明年上 PC，什么配置可以发挥最完全体的画面效果？](http://www.daogukj.com/3027269)
-- [男子收到自己“不雅照”并被威胁](http://www.daogukj.com/5993003)
+- [汽柴油预计下调0.35元/升-0.42元/升](http://www.play.hengshemaoyi.cn/xiju/5893121.htm)
+- [梅尔重做后的强度好吓人](http://www.daogukj.com/nksrlhgk/)
+- [郎平谈执教美国女排](http://www.play.hengshemaoyi.cn/xiju/7516408.htm)
+- [睡觉穿袜子有助入睡 但5类人不建议](http://www.play.hengshemaoyi.cn/kongbu/6193675.htm)
+- [05后小伙休学打游戏一年赚超200万](http://www.movie.hkepx.cn/movie/5605734.htm)
+- [以防你不知道GTA6路人是如何暴富的💰](http://www.movie.hkepx.cn/movie/4801109.htm)
+- [24小时尾行！跟踪GTA6里的NPC，她的一天有多真实？](http://www.movie.hkepx.cn/xiju/2747311.htm)
+- [《我救不死你》](http://www.play.hengshemaoyi.cn/kongbu/6556517.htm)
+- [老人学会网购后 下单3万斤薯条喂猪](http://www.daogukj.com/7870973)
+- [如何看待11月21日三维ns方程有限时间爆破的形式化证明疑似已经完成？](http://www.movie.hkepx.cn/movie/0510547.htm)
+- [戴玉强×龚琳娜 ｜殿堂级嗓音，荒野式放飞！魔性演绎《饥困荒野》1124上线主题曲](http://www.play.hengshemaoyi.cn/kongbu/0119967.htm)
+- [久坐一整天 你的腰椎经历了什么](http://www.movie.hkepx.cn/xiju/2968189.htm)
+- [村民性侵少女被判无罪最高检抗诉](http://www.movie.hkepx.cn/xiju/4295526.htm)
+- [多家品牌宣布下调金饰克价](http://www.movie.hkepx.cn/movie/7065901.htm)
+- [黎曼猜想数学证明长达 25 万页是什么概念？人类还有可能完整读懂吗？](http://www.daogukj.com/7724801)
+- [张凌赫听到田曦薇说我杀猪养你的反应](http://www.daogukj.com/oxaknnjh/)
+- [山东确定2026年度养老金计发基数](http://www.daogukj.com/kxqitgac/)
+- [唱空中国经济者终会落空](http://www.play.hengshemaoyi.cn/xiju/6118012.htm)
+- [【独家】《凡人修仙传之慕兰之战》第25集【总第201集】](http://www.daogukj.com/eymoxoal/)
+- [青海地震](http://www.daogukj.com/sblnbief/)
+- [村民装备演示](http://www.movie.hkepx.cn/xiju/6564425.htm)
+- [摩尔线程官宣消费级显卡「庐山」，宣称光追暴涨 50 倍且刷新显存上限，实际体验能达到预期吗？](http://www.movie.hkepx.cn/xiju/1342296.htm)
+- [脑瘫男孩靠打游戏成80万粉主播](http://www.play.hengshemaoyi.cn/kongbu/0832024.htm)
+- [刘嘉玲晒生日蛋糕舍不得吃](http://www.daogukj.com/mqwqpttl/)
+- [超强厄尔尼诺已经形成，已成为有记录以来最强，这意味着什么？产生的气候影响大吗？](http://www.movie.hkepx.cn/movie/1933025.htm)
+- [杨超越董思成喉结吻](http://www.daogukj.com/dubydsdf/)
+- [新生计划正式启动！这次特别出演的竟是……](http://www.play.hengshemaoyi.cn/kongbu/8219226.htm)
+- [建议大家不要一直穿同一双鞋](http://www.movie.hkepx.cn/movie/9543340.htm)
+- [胖东来生活广场闭店后周围商户陆续搬走，曝租金降至400万后仍无人接盘，现在来看房东涨租算不算决策失误？](http://www.movie.hkepx.cn/movie/1686485.htm)
+- [曝Tarzan离开AL加入JDG](http://www.play.hengshemaoyi.cn/xiju/4527723.htm)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/5804559.htm)
+- [AI剧打败真人剧的真正原因](http://www.movie.hkepx.cn/movie/7336252.htm)
+- [张凌赫说田曦薇更瘦更美了](http://www.movie.hkepx.cn/movie/3065395.htm)
+- [工厂生产爆米花场面像放排炮](http://www.daogukj.com/oioomhrz/)
+- [数学家宣称 Claude 证明黎曼猜想，为啥Anthropic股价仍在暴跌？市场不买账，核心原因是啥？](http://www.movie.hkepx.cn/movie/7981100.htm)
+- [安宥真张元英MAMA舞台开场](http://www.daogukj.com/btwajvnj/)
+- [邵佳一带队取得 10 战 4 胜 2 平 4 负战绩，亚洲杯延期，该优先补强哪块短板？](http://www.daogukj.com/8398590)
+- [“北京22名老师赴贵阳沉默”不实](http://www.movie.hkepx.cn/movie/6246578.htm)
+- [台学者：大陆根本不需要动武](http://www.daogukj.com/4390556)
+- [为何泽连斯基向欧洲要钱毫不客气](http://www.daogukj.com/skeidyel/)
+- [特朗普称不允许美企海外建数据中心，如果违反将面临「巨额税收」处罚，这会对美国科技公司发展带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/6005463.htm)
+- [彭昱畅被AI融脸](http://www.play.hengshemaoyi.cn/xiju/6126103.htm)
+- [金价跌至7开头金店经理直呼天塌了](http://www.daogukj.com/jdhlltmp/)
+- [沈腾在表演奖项上一夜翻红](http://www.daogukj.com/inrtjmju/)
+- [你的GTA我的GTA好像不一样！](http://www.movie.hkepx.cn/movie/4017423.htm)
+- [余承东纠正“开车可以睡觉”言论](http://www.daogukj.com/9107163)
+- [网友称零跑A10装啤酒致后备厢储物盒脱落，客服称未接到反馈，具体是怎么回事？储物盒能如何规避承重隐患？](http://www.daogukj.com/ypwsrnna/)
+- [韩国首次用「紧急灾难通知」让全国手机响铃 10.5 秒防高考作弊，此举合理吗？](http://www.daogukj.com/7314066)
+- [顺丰速运被暂停参加全军采购活动](http://www.daogukj.com/3027269)
+- [如何评价11月微软悄悄上架的全新中文输入法？](http://www.daogukj.com/5993003)
 
 </details>
 
 ## 原始来源
 
-- [世界首个、蝉联榜首！多领域捷报频传](https://www.baidu.com/s?wd=%E4%B8%96%E7%95%8C%E9%A6%96%E4%B8%AA%E3%80%81%E8%9D%89%E8%81%94%E6%A6%9C%E9%A6%96%EF%BC%81%E5%A4%9A%E9%A2%86%E5%9F%9F%E6%8D%B7%E6%8A%A5%E9%A2%91%E4%BC%A0&sa=fyb_news&rsv_dl=fyb_news)
+- [321场活动75项成果 回顾APEC成绩单](https://www.baidu.com/s?wd=321%E5%9C%BA%E6%B4%BB%E5%8A%A875%E9%A1%B9%E6%88%90%E6%9E%9C+%E5%9B%9E%E9%A1%BEAPEC%E6%88%90%E7%BB%A9%E5%8D%95&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 742e45de3eadd12ff476 -->
+<!-- content-fingerprint: 0c8d999325cff18fc4f6 -->

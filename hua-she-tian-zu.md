@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 特朗普：看看人家深圳再看看我们
+# 多国领导人表态：恪守一个中国原则
 
-> 来源：百度热搜 · 排名：第 1 位 · 热度：7809554 · 更新：2026-11-21T11:32:34+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7808964 · 更新：2026-11-21T19:44:37+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“特朗普：看看人家深圳再看看我们”位列第 1 位，公开热度指标为 7809554。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“多国领导人表态：恪守一个中国原则”位列第 1 位，公开热度指标为 7808964。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间11月20日，特朗普在白宫召开记者发布会，他在会上点赞深圳城市建设，称深圳仅用40年从小渔村建成，路面完美无瑕。他乘车观察后将其与美国对比，批评大多由民主党主政的美国城市脏乱不堪，路面坑洼且护栏锈迹斑斑。
+百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [特朗普说看看深圳再看看我们](yi-xin-yi-yi.md)
-- [美股为何暴跌](san-xin-er-yi.md)
-- [数学家称与 AI 合作证明了黎曼猜想，证明稿超 25 万页，黎曼猜想真的被解决了吗？](si-hai-wei-jia.md)
-- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](wu-gu-feng-deng.md)
+- [特朗普深圳不拉窗帘原因找到了](yi-xin-yi-yi.md)
+- [深圳全妆惊艳全网](san-xin-er-yi.md)
+- [特朗普返美后召开新闻发布会，称中俄美元首会晤「史无前例」「意义重大」，哪些信息值得关注？](si-hai-wei-jia.md)
+- [【IGN独家】《鸣潮：永明的烬焰》实机演示](wu-gu-feng-deng.md)
 
 ## 站内推荐
 
-- [世界首个、蝉联榜首！多领域捷报频传](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [这段爆破戏疑似AI做的](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [炎亚纶汪东城世纪大和解](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [高市早苗对台湾问题躲闪作答](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [特朗普：中俄美元首会晤史无前例](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [321场活动75项成果 回顾APEC成绩单](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [沈腾在表演奖项上一夜翻红](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [“北京22名老师赴贵阳沉默”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [曝孙芮已经结婚两年了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [为何泽连斯基向欧洲要钱毫不客气](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [美股为何暴跌](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
-- [男子收到自己“不雅照”并被威胁](http://www.movie.hkepx.cn/movie/1695277.htm)
-- [以前的朱瞻基现在的朱瞻基](http://www.movie.hkepx.cn/movie/3870988.htm)
-- [BLG夺冠，能唤回多少国内玩家的热情重回《英雄联盟》？](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
-- [炎亚纶铁了心要上后会友期](http://www.daogukj.com/ihcjjgzd/)
-- [明天订婚请188人喝奶茶？多人上当](http://www.movie.hkepx.cn/xiju/3534258.htm)
-- [饥饿控制大脑！你将吃掉眼前所见的一切！](http://www.daogukj.com/hytgpxub/)
-- [数学家宣称 Claude 证明黎曼猜想，为啥Anthropic股价仍在暴跌？市场不买账，核心原因是啥？](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
-- [邪修英语！](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
-- [Claude声称证明黎曼猜想，我准备女装cos元辅了](http://www.movie.hkepx.cn/xiju/6451502.htm)
-- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.movie.hkepx.cn/movie/5637757.htm)
-- [90分钟中俄美会晤，摆了哪些事上桌？王骁APEC观察](http://www.daogukj.com/8357764)
-- [五中全会决定这些话要牢记](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
-- [金价为何急跌](http://www.daogukj.com/rdfrumhx/)
-- [【抢先版】嫩韭菜，毒水仙！光鲜底下藏刀尖](http://www.movie.hkepx.cn/xiju/4910358.htm)
-- [曝 Viper 可能离开 BLG，是真的吗？离队的原因是啥？若离队谁最有可能接替他？](http://www.daogukj.com/lntrsvpz/)
-- [李嫣喝水都要用口罩遮着](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
-- [墨西哥总统感谢中国女保镖](http://www.movie.hkepx.cn/xiju/8200300.htm)
-- [如果 GTA6明年上 PC，什么配置可以发挥最完全体的画面效果？](http://www.daogukj.com/mofrooiq/)
-- [特朗普称不允许美企海外建数据中心](http://www.movie.hkepx.cn/movie/5701354.htm)
-- [孙芮属于军婚](http://www.movie.hkepx.cn/movie/7931130.htm)
-- [多地医院实现“一号管到底”](http://www.movie.hkepx.cn/xiju/7141632.htm)
-- [高市搭讪特朗普被无视 日网民：丢人](http://www.daogukj.com/8424365)
-- [数学家称与 AI 合作证明了黎曼猜想，证明稿超 25 万页，黎曼猜想真的被解决了吗？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
-- [自然界生物中有哪些奇特的繁殖方式？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
-- [孙芮自曝已结婚怀孕](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
-- [学了五分钟建模做出来的绯英技能动画](http://www.movie.hkepx.cn/movie/0202792.htm)
-- [韩国高考中国史题正确率不足一成](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
-- [分不清哪个是倒放的](http://www.daogukj.com/4727274)
-- [《蓝色星原：旅谣》公测前瞻节目回顾](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
-- [全球市场遭遇黑色星期五](http://www.daogukj.com/2266153)
-- [BLG的AD有可能是Diable](http://www.daogukj.com/3795795)
-- [深圳人又开始原装出街了](http://www.movie.hkepx.cn/movie/4791691.htm)
-- [英伟达市值掉了一个亚马逊](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
-- [如何评价成毅主演的电视剧《两京十五日》？](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
-- [24小时尾行！跟踪GTA6里的NPC，她的一天有多真实？](http://www.daogukj.com/uhjkuxrm/)
-- [《辟谣箴言》系列漫画](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
-- [金价下跌 现在买金镯子还是再等等](http://www.movie.hkepx.cn/movie/2161382.htm)
-- [特朗普：中俄美元首会晤史无前例](http://www.movie.hkepx.cn/movie/2010841.htm)
-- [特朗普称不支持“台独”引岛内震动](http://www.movie.hkepx.cn/movie/8064840.htm)
-- [你的GTA我的GTA好像不一样！](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
-- [AI对黎曼猜想的证明，正式通过形式化验证！](http://www.daogukj.com/5905118)
-- [暗粥突围](http://www.daogukj.com/gchjscql/)
-- [APEC参会来宾眼中的“奇迹之城”](http://www.movie.hkepx.cn/xiju/1255661.htm)
-- [美股 AI泡沫](http://www.daogukj.com/9269800)
-- [特朗普称赞深圳城市建设](http://www.daogukj.com/7091853)
-- [英伟达七周累计暴跌46%](http://www.movie.hkepx.cn/movie/4900444.htm)
-- [黄牛称炒茅台已「几乎无利可图」，酒厂逐步拿回定价权，这门「生意」为什么不赚钱了？近十年来发生什么变化？](http://www.daogukj.com/2402025)
-- [特朗普说深圳干净整洁一尘不染](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
-- [胖东来搬离后原址所开新商场几乎倒闭](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
+- [深圳全妆惊艳全网](http://www.play.hengshemaoyi.cn/xiju/1158662.htm)
+- [如何评价11月微软悄悄上架的全新中文输入法？](http://www.movie.hkepx.cn/movie/1695277.htm)
+- [张凌赫听到田曦薇说我杀猪养你的反应](http://www.movie.hkepx.cn/movie/3870988.htm)
+- [山东确定2026年度养老金计发基数](http://www.play.hengshemaoyi.cn/kongbu/0709303.htm)
+- [安宥真张元英MAMA舞台开场](http://www.daogukj.com/ihcjjgzd/)
+- [菲总统夸赞中方选曲温暖贴心](http://www.movie.hkepx.cn/xiju/3534258.htm)
+- [顺丰被暂停参加全军采购活动有何影响](http://www.daogukj.com/hytgpxub/)
+- [逐玉](http://www.play.hengshemaoyi.cn/kongbu/2933921.htm)
+- [为什么肠道会精准排出菌群异常的大便（腹泻）却又能把正常菌群的大便留在肠道内？](http://www.play.hengshemaoyi.cn/kongbu/9840857.htm)
+- [摩尔线程官宣消费级显卡「庐山」，宣称光追暴涨 50 倍且刷新显存上限，实际体验能达到预期吗？](http://www.movie.hkepx.cn/xiju/6451502.htm)
+- [【IGN独家】《鸣潮：永明的烬焰》实机演示](http://www.movie.hkepx.cn/movie/5637757.htm)
+- [网友称零跑A10装啤酒致后备厢储物盒脱落，客服称未接到反馈，具体是怎么回事？储物盒能如何规避承重隐患？](http://www.daogukj.com/8357764)
+- [唱空中国经济者终会落空](http://www.play.hengshemaoyi.cn/xiju/9833405.htm)
+- [05后小伙休学打游戏一年赚超200万](http://www.daogukj.com/rdfrumhx/)
+- [【禅院直哉无伤宿傩】好过分啊，你这家伙没有人心吗？【B站AI公开创造赛】](http://www.movie.hkepx.cn/xiju/4910358.htm)
+- [邵佳一带队取得 10 战 4 胜 2 平 4 负战绩，亚洲杯延期，该优先补强哪块短板？](http://www.daogukj.com/lntrsvpz/)
+- [APEC带火荔枝冰酒负责人哽咽落泪](http://www.play.hengshemaoyi.cn/kongbu/1227735.htm)
+- [普京喊话乌军人站到历史正确的一边](http://www.movie.hkepx.cn/xiju/8200300.htm)
+- [顺丰速运被暂停参加全军采购活动](http://www.daogukj.com/mofrooiq/)
+- [AI剧打败真人剧的真正原因](http://www.movie.hkepx.cn/movie/5701354.htm)
+- [彭昱畅被AI融脸](http://www.movie.hkepx.cn/movie/7931130.htm)
+- [特朗普：中国的活力令人惊叹](http://www.movie.hkepx.cn/xiju/7141632.htm)
+- [余承东纠正“开车可以睡觉”言论](http://www.daogukj.com/8424365)
+- [特朗普返美后召开新闻发布会，称中俄美元首会晤「史无前例」「意义重大」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1443369.htm)
+- [为什么早餐利润这么高大家都不去做呢？](http://www.play.hengshemaoyi.cn/xiju/1042613.htm)
+- [脑瘫男孩靠打游戏成80万粉主播](http://www.play.hengshemaoyi.cn/xiju/1130682.htm)
+- [20多天婴儿被喂白开水中毒肾损伤，新生儿为何不能像成年人一样正常喝白开水？该如何科学喂养？](http://www.movie.hkepx.cn/movie/0202792.htm)
+- [白小纯 青稚](http://www.play.hengshemaoyi.cn/kongbu/6040223.htm)
+- [村民装备演示](http://www.daogukj.com/4727274)
+- [24小时尾行！跟踪GTA6里的NPC，她的一天有多真实？](http://www.play.hengshemaoyi.cn/kongbu/2836929.htm)
+- [两京十五日真没把我们当外人](http://www.daogukj.com/2266153)
+- [《我救不死你》](http://www.daogukj.com/3795795)
+- [DNFU·2026年度CG](http://www.movie.hkepx.cn/movie/4791691.htm)
+- [多家品牌宣布下调金饰克价](http://www.play.hengshemaoyi.cn/xiju/6627175.htm)
+- [16岁女孩遭性侵后被迫改口称自愿](http://www.play.hengshemaoyi.cn/kongbu/0663725.htm)
+- [小时候眼中的罚抄神器be like:](http://www.daogukj.com/uhjkuxrm/)
+- [【独家】《凡人修仙传之慕兰之战》第25集【总第201集】](http://www.play.hengshemaoyi.cn/kongbu/1497130.htm)
+- [村民性侵少女被判无罪最高检抗诉](http://www.movie.hkepx.cn/movie/2161382.htm)
+- [为何泽连斯基向欧洲要钱毫不客气](http://www.movie.hkepx.cn/movie/2010841.htm)
+- [台学者：大陆根本不需要动武](http://www.movie.hkepx.cn/movie/8064840.htm)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1678968.htm)
+- [【纪录片】守护解放西·传承季 第1集 守护不止解放西](http://www.daogukj.com/5905118)
+- [黄景瑜腿绞泰国拳王](http://www.daogukj.com/gchjscql/)
+- [APEC开启经贸合作新空间](http://www.movie.hkepx.cn/xiju/1255661.htm)
+- [郎平谈执教美国女排](http://www.daogukj.com/9269800)
+- [曝Tarzan离开AL加入JDG](http://www.daogukj.com/7091853)
+- [睡觉穿袜子有助入睡 但5类人不建议](http://www.movie.hkepx.cn/movie/4900444.htm)
+- [建议大家不要一直穿同一双鞋](http://www.daogukj.com/2402025)
+- [武大靖执教短道队首金](http://www.play.hengshemaoyi.cn/xiju/7362408.htm)
+- [青海地震](http://www.play.hengshemaoyi.cn/kongbu/2978258.htm)
 
 </details>
 
 ## 原始来源
 
-- [特朗普：看看人家深圳再看看我们](https://www.baidu.com/s?wd=%E7%89%B9%E6%9C%97%E6%99%AE%EF%BC%9A%E7%9C%8B%E7%9C%8B%E4%BA%BA%E5%AE%B6%E6%B7%B1%E5%9C%B3%E5%86%8D%E7%9C%8B%E7%9C%8B%E6%88%91%E4%BB%AC&sa=fyb_news&rsv_dl=fyb_news)
+- [多国领导人表态：恪守一个中国原则](https://www.baidu.com/s?wd=%E5%A4%9A%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%A1%A8%E6%80%81%EF%BC%9A%E6%81%AA%E5%AE%88%E4%B8%80%E4%B8%AA%E4%B8%AD%E5%9B%BD%E5%8E%9F%E5%88%99&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: aebbcb59e1f8e3ca16d3 -->
+<!-- content-fingerprint: e5d49d917131c192032b -->

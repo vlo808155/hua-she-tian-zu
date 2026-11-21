@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 为什么欧美使用壁炉的普遍性这么高，而中国却没有？
+# 胖东来生活广场闭店后周围商户陆续搬走，曝租金降至400万后仍无人接盘，现在来看房东涨租算不算决策失误？
 
-> 来源：知乎热榜 · 排名：第 3 位 · 热度：322 万热度 · 分类：问答 · 更新：2026-11-21T11:32:34+08:00
+> 来源：知乎热榜 · 排名：第 3 位 · 热度：705 万热度 · 分类：问答 · 更新：2026-11-21T19:44:37+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么欧美使用壁炉的普遍性这么高，而中国却没有？”位列第 3 位，公开热度指标为 322 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“胖东来生活广场闭店后周围商户陆续搬走，曝租金降至400万后仍无人接盘，现在来看房东涨租算不算决策失误？”位列第 3 位，公开热度指标为 705 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：欧美剧里（包括时尚剧里）常见壁炉融融燃烧的场景，今天正好又看到挪威一家电视台拍了十二个小时的劈柴码柴烧柴的电视节目，很纳闷，为什么在欧美壁炉的使用率这么高，而且这么持续。像我国就没有“壁炉”的传统吧，南方中部地区有烤火的传统但是烧的是煤或木炭，而且也是地炉，且越见式微。渐被电烤炉，空调，暖气等取代，为什么欧美依然还大面积保留着这种烧壁炉的取暖方式？
+来源公开摘要显示：于东来： 于东来发文回应生活广场关店一事：不专业造成的失误是金钱无法衡量的！一五年左右、关于许昌生活广场、由于负责此项工作人员没有按照公司规定造成的工作失误、签约租约合同没有统一签订、最后造成个别租户租金涨到无法想象的地步、远远脱离了公平！导致公司退也退不成因为很多已经签了合同、继续干也不是、干也总影响情绪！其实这几户总体占比并不很大、但无论钱多钱少、失去公平正义的精神是底线、这么多始终是我的心结！所以到了到期的时候、虽然生活广场一年二十亿的销售、一年一个多亿的利润、但信仰和开心永远是第一位的！人生不要与不同路人打交道、否则会影响快乐！任何工作、专业是美
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [你的GTA我的GTA好像不一样！](shan-qing-shui-xiu.md)
-- [一款1979年的耳机为何被抢空](feng-he-ri-li.md)
-- [特朗普称不允许美企海外建数据中心](chun-nuan-hua-kai.md)
-- [特朗普：若当年我在任俄乌战争能避免](qiu-gao-qi-shuang.md)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](shan-qing-shui-xiu.md)
+- [青海德令哈地震](feng-he-ri-li.md)
+- [AI剧打败真人剧的真正原因](chun-nuan-hua-kai.md)
+- [青海德令哈5.6级地震](qiu-gao-qi-shuang.md)
 
 ## 站内推荐
 
-- [数学家称与 AI 合作证明了黎曼猜想，证明稿超 25 万页，黎曼猜想真的被解决了吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [自然界生物中有哪些奇特的繁殖方式？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [90分钟中俄美会晤，摆了哪些事上桌？王骁APEC观察](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [男子收到自己“不雅照”并被威胁](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [美股崩跌 纳指今年涨幅全部蒸发](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [特朗普返美后召开新闻发布会，称中俄美元首会晤「史无前例」「意义重大」，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [为什么早餐利润这么高大家都不去做呢？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [网友称零跑A10装啤酒致后备厢储物盒脱落，客服称未接到反馈，具体是怎么回事？储物盒能如何规避承重隐患？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [如何评价11月微软悄悄上架的全新中文输入法？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [刘嘉玲晒生日蛋糕舍不得吃](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [特朗普说深圳干净整洁一尘不染](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
-- [Claude声称证明黎曼猜想，我准备女装cos元辅了](http://www.movie.hkepx.cn/movie/8731945.htm)
-- [一款1979年的耳机为何被抢空](http://www.movie.hkepx.cn/movie/4764256.htm)
-- [BLG的AD有可能是Diable](http://www.daogukj.com/8743466)
-- [暗粥突围](http://www.daogukj.com/6087099)
-- [一家人遛弯误入剧组还上了央视](http://www.daogukj.com/8759192)
-- [五中全会决定这些话要牢记](http://www.daogukj.com/nzlnmzmb/)
-- [世界首个、蝉联榜首！多领域捷报频传](http://www.daogukj.com/6882941)
-- [明天订婚请188人喝奶茶？多人上当](http://www.movie.hkepx.cn/xiju/3979842.htm)
-- [司老凤联盟第111集:老牧师演唱会5:20am（完整版）](http://www.daogukj.com/9154473)
-- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.daogukj.com/4411404)
-- [以前的朱瞻基现在的朱瞻基](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
-- [黎曼猜想真被AI证明了吗](http://www.movie.hkepx.cn/xiju/1394476.htm)
-- [如果 GTA6明年上 PC，什么配置可以发挥最完全体的画面效果？](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
-- [特朗普称不支持“台独”引岛内震动](http://www.movie.hkepx.cn/xiju/5584435.htm)
-- [日网民吐槽高市早苗APEC之行吐舌头](http://www.daogukj.com/aztauuey/)
-- [数学家宣称 Claude 证明黎曼猜想，为啥Anthropic股价仍在暴跌？市场不买账，核心原因是啥？](http://www.daogukj.com/7343685)
-- [李嫣喝水都要用口罩遮着](http://www.daogukj.com/dhbposmt/)
-- [全球市场遭遇黑色星期五](http://www.daogukj.com/1538095)
-- [特朗普：看看人家深圳再看看我们](http://www.daogukj.com/uznikqxj/)
-- [长江里的罕见“吃播”被拍到](http://www.daogukj.com/5158126)
-- [美股崩跌 纳指今年涨幅全部蒸发](http://www.daogukj.com/3616935)
-- [魏德尔：大国谈判桌上已没有欧洲](http://www.daogukj.com/pfvjuanz/)
-- [炎亚纶汪东城世纪大和解](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
-- [孙芮自曝已结婚怀孕](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
-- [丝芭下孩子了](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
-- [张萌的大胆穿搭直接吓到孟子义](http://www.daogukj.com/asaygxgb/)
-- [高市搭讪特朗普被无视 日网民：丢人](http://www.daogukj.com/zxvfwrkb/)
-- [为什么肠道会精准排出菌群异常的大便（腹泻）却又能把正常菌群的大便留在肠道内？](http://www.movie.hkepx.cn/movie/3376392.htm)
-- [邪修英语！](http://www.daogukj.com/7717389)
-- [炎亚纶铁了心要上后会友期](http://www.daogukj.com/9746581)
-- [有哪些事情是去了澳门才知道的？](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
-- [男子收到自己“不雅照”并被威胁](http://www.movie.hkepx.cn/movie/2941603.htm)
-- [《蓝色星原：旅谣》公测前瞻节目回顾](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
-- [作为史上第一部惊悚悬疑类型的奥斯卡最佳影片，《沉默的羔羊》经典在哪里？](http://www.daogukj.com/7650204)
-- [高市早苗对台湾问题躲闪作答](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
-- [主人去世20天小猫每天守墓旁](http://www.movie.hkepx.cn/movie/6466714.htm)
-- [问界M9车主开辅助驾驶熟睡](http://www.daogukj.com/0995452)
-- [英伟达市值掉了一个亚马逊](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
-- [超强厄尔尼诺已经形成，已成为有记录以来最强，这意味着什么？产生的气候影响大吗？](http://www.movie.hkepx.cn/movie/6120330.htm)
-- [分不清哪个是倒放的](http://www.daogukj.com/fivnrrsp/)
-- [自然界生物中有哪些奇特的繁殖方式？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
-- [英伟达七周累计暴跌46%](http://www.daogukj.com/hldbetht/)
-- [特朗普：中俄美元首会晤史无前例](http://www.movie.hkepx.cn/xiju/7779879.htm)
-- [饥饿控制大脑！你将吃掉眼前所见的一切！](http://www.daogukj.com/phqakpps/)
-- [特朗普返美后召开新闻发布会，称中俄美元首会晤「史无前例」「意义重大」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
-- [黄牛称炒茅台已「几乎无利可图」，酒厂逐步拿回定价权，这门「生意」为什么不赚钱了？近十年来发生什么变化？](http://www.daogukj.com/adpyviat/)
-- [APEC参会来宾眼中的“奇迹之城”](http://www.movie.hkepx.cn/xiju/4573677.htm)
-- [美股 AI泡沫](http://www.daogukj.com/1571628)
-- [孙芮结婚怀孕](http://www.daogukj.com/9492876)
+- [武大靖执教短道队首金](http://www.play.hengshemaoyi.cn/xiju/7939856.htm)
+- [摩尔线程官宣消费级显卡「庐山」，宣称光追暴涨 50 倍且刷新显存上限，实际体验能达到预期吗？](http://www.movie.hkepx.cn/movie/8731945.htm)
+- [青海德令哈地震](http://www.movie.hkepx.cn/movie/4764256.htm)
+- [《我救不死你》](http://www.daogukj.com/8743466)
+- [黄景瑜腿绞泰国拳王](http://www.daogukj.com/6087099)
+- [新生计划正式启动！这次特别出演的竟是……](http://www.daogukj.com/8759192)
+- [唱空中国经济者终会落空](http://www.daogukj.com/nzlnmzmb/)
+- [321场活动75项成果 回顾APEC成绩单](http://www.daogukj.com/6882941)
+- [菲总统夸赞中方选曲温暖贴心](http://www.movie.hkepx.cn/xiju/3979842.htm)
+- [韩国首次用「紧急灾难通知」让全国手机响铃 10.5 秒防高考作弊，此举合理吗？](http://www.daogukj.com/9154473)
+- [“在众人的簇拥下死去吗，倒也不错”｜《虎杖の小曲》【老男孩DJ版/咒术回战】](http://www.daogukj.com/4411404)
+- [张凌赫听到田曦薇说我杀猪养你的反应](http://www.play.hengshemaoyi.cn/kongbu/9907575.htm)
+- [老人学会网购后 下单3万斤薯条喂猪](http://www.movie.hkepx.cn/xiju/1394476.htm)
+- [顺丰速运被暂停参加全军采购活动](http://www.play.hengshemaoyi.cn/xiju/6043549.htm)
+- [台学者：大陆根本不需要动武](http://www.movie.hkepx.cn/xiju/5584435.htm)
+- [中国短道女接3000米夺金](http://www.daogukj.com/aztauuey/)
+- [逐玉](http://www.daogukj.com/7343685)
+- [APEC带火荔枝冰酒负责人哽咽落泪](http://www.daogukj.com/dhbposmt/)
+- [两京十五日真没把我们当外人](http://www.daogukj.com/1538095)
+- [多国领导人表态：恪守一个中国原则](http://www.daogukj.com/uznikqxj/)
+- [张雪骑摩托车刚出门就摔倒](http://www.daogukj.com/5158126)
+- [刘嘉玲晒生日蛋糕舍不得吃](http://www.daogukj.com/3616935)
+- [马斯克回应上海工厂跳舞片段：不是AI](http://www.daogukj.com/pfvjuanz/)
+- [“北京22名老师赴贵阳沉默”不实](http://www.play.hengshemaoyi.cn/xiju/1765525.htm)
+- [脑瘫男孩靠打游戏成80万粉主播](http://www.play.hengshemaoyi.cn/xiju/1028913.htm)
+- [以防你不知道GTA6路人是如何暴富的💰](http://www.play.hengshemaoyi.cn/kongbu/9597897.htm)
+- [你的GTA我的GTA好像不一样！](http://www.daogukj.com/asaygxgb/)
+- [余承东纠正“开车可以睡觉”言论](http://www.daogukj.com/zxvfwrkb/)
+- [凡人修仙传动漫201集观众满意吗？](http://www.movie.hkepx.cn/movie/3376392.htm)
+- [为什么肠道会精准排出菌群异常的大便（腹泻）却又能把正常菌群的大便留在肠道内？](http://www.daogukj.com/7717389)
+- [安宥真张元英MAMA舞台开场](http://www.daogukj.com/9746581)
+- [如何看待11月21日三维ns方程有限时间爆破的形式化证明疑似已经完成？](http://www.play.hengshemaoyi.cn/kongbu/3805416.htm)
+- [如何评价11月微软悄悄上架的全新中文输入法？](http://www.movie.hkepx.cn/movie/2941603.htm)
+- [24小时尾行！跟踪GTA6里的NPC，她的一天有多真实？](http://www.play.hengshemaoyi.cn/kongbu/4456288.htm)
+- [叔本华为什么讨厌黑格尔？](http://www.daogukj.com/7650204)
+- [曝孙芮已经结婚两年了](http://www.play.hengshemaoyi.cn/kongbu/6291013.htm)
+- [工厂生产爆米花场面像放排炮](http://www.movie.hkepx.cn/movie/6466714.htm)
+- [C罗7米巨型雕像上海揭幕](http://www.daogukj.com/0995452)
+- [多家品牌宣布下调金饰克价](http://www.play.hengshemaoyi.cn/xiju/2763232.htm)
+- [信用卡近一年减少 3400 万张，信用卡为何逐渐失去吸引力？背后反映出消费者支付习惯发生了哪些变化？](http://www.movie.hkepx.cn/movie/6120330.htm)
+- [村民装备演示](http://www.daogukj.com/fivnrrsp/)
+- [为什么早餐利润这么高大家都不去做呢？](http://www.play.hengshemaoyi.cn/kongbu/2704703.htm)
+- [睡觉穿袜子有助入睡 但5类人不建议](http://www.daogukj.com/hldbetht/)
+- [为何泽连斯基向欧洲要钱毫不客气](http://www.movie.hkepx.cn/xiju/7779879.htm)
+- [顺丰被暂停参加全军采购活动有何影响](http://www.daogukj.com/phqakpps/)
+- [深圳华丽转型生动诠释APEC理念](http://www.play.hengshemaoyi.cn/kongbu/8729010.htm)
+- [建议大家不要一直穿同一双鞋](http://www.daogukj.com/adpyviat/)
+- [APEC开启经贸合作新空间](http://www.movie.hkepx.cn/xiju/4573677.htm)
+- [郎平谈执教美国女排](http://www.daogukj.com/1571628)
+- [杨超越董思成喉结吻](http://www.daogukj.com/9492876)
 
 </details>
 
 ## 原始来源
 
-- [为什么欧美使用壁炉的普遍性这么高，而中国却没有？](https://www.zhihu.com/question/20796435)
+- [胖东来生活广场闭店后周围商户陆续搬走，曝租金降至400万后仍无人接盘，现在来看房东涨租算不算决策失误？](https://www.zhihu.com/question/2106756998976857637)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c3490f20ba70a14f5731 -->
+<!-- content-fingerprint: 1592e0246baa8ebc035c -->
