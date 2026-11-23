@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 2026-2027国创动画作品发布会 全程回顾
+# 蔡磊发文悼念廖建文
 
-> 来源：哔哩哔哩热门 · 排名：第 4 位 · 热度：1056678 · 分类：国产动画 · 更新：2026-11-23T16:05:55+08:00
+> 来源：百度热搜 · 排名：第 4 位 · 热度：7428279 · 更新：2026-11-24T04:15:11+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“2026-2027国创动画作品发布会 全程回顾”位列第 4 位，公开热度指标为 1056678，榜单分类为“国产动画”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“蔡磊发文悼念廖建文”位列第 4 位，公开热度指标为 7428279。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：【MADE BY BILIBILI】因为热爱国创，让我们相聚于此。感谢关注2026-2027国创动画作品发布会，发布作品将陆续上线B站，敬请期待！
+来源公开摘要显示：11月23日，蔡磊发文沉痛悼念京东集团原首席战略官廖建文。蔡磊透露，2021年他公开渐冻症病情后，廖建文也因癌症赴美治疗，两人成病友常互相打气。去年廖建文仍帮蔡磊调研美国渐冻症医疗科研机构。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `国产动画`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [花100元参加旅游团却花34万买了套房](hua-she-tian-zu.md)
-- [韦东奕攻克百年难题获奖](yi-xin-yi-yi.md)
-- [县委书记走访红糖厂家说捡点渣渣吃](san-xin-er-yi.md)
-- [在黎曼猜想被声称证明后，如何理解袁新意所说的「或许我们高估了黎曼猜想的难度」？](si-hai-wei-jia.md)
+- [胖东来一店将关闭 羽绒服亮成本价](hua-she-tian-zu.md)
+- [黄仁勋复职原因](yi-xin-yi-yi.md)
+- [中方就以总理等被发逮捕令表态](san-xin-er-yi.md)
+- [怎么看 Nielsen 发布《黎曼猜想证明无效》的反驳论文？](si-hai-wei-jia.md)
 
 ## 站内推荐
 
-- [今天还是老样子吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [新娘婚礼从约4米高滑梯滑下出场](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [平谷网络辟谣宣传走进校园](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [网传多吃某药有愉悦感 高中生吃20片](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [歼-15“全家福”来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [“别人过得好 你就要扣自己的分吗”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [女子嫌对面楼老旧自费7.3万刷漆](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [网民发免费摘甘蔗谣言被拘](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [金店挤成年末顶流](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [你关注的博主可能被换头了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [51 岁网络主播性侵未成年获刑四年，其亲属曾付60万给被害人家属要求私了被追责，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
-- [蔡磊妻子透露一家三口分开住](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
-- [人民日报评1991年张大爷烂梗](http://www.daogukj.com/6635536)
-- [treetree炸鸡外卖小哥三天涨百万粉](http://www.daogukj.com/5112321)
-- [脆脆炸鸡老板强调八百遍是做披萨的](http://www.daogukj.com/ipwmcbrx/)
-- [羽绒服市场正在淘汰没理由的高价](http://www.daogukj.com/0838857)
-- [为什么控糖这件事35岁就要重视](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
-- [县委书记走访红糖厂家说捡点渣渣吃](http://www.movie.hkepx.cn/movie/2653607.htm)
-- [花100元参加旅游团却花34万买了套房](http://www.movie.hkepx.cn/movie/2345084.htm)
-- [《怪盗牢德2》：科比为偷雨姐袜子与豆包和大肥鱼战斗](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
-- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.movie.hkepx.cn/xiju/6793540.htm)
-- [刘德华罕谈51岁时老来得女](http://www.daogukj.com/2792130)
-- [墨西哥总统爱上中国气功](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
-- [行李箱突然变轻一看已裂成两半](http://www.movie.hkepx.cn/movie/1067049.htm)
-- [两套大连招 雷霆撸猫法 一镜到底](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
-- [烧烤店员工餐有鲍鱼生蚝清蒸大闸蟹](http://www.daogukj.com/1652635)
-- [马天宇说厉娜都饿到低血糖了](http://www.movie.hkepx.cn/xiju/9905863.htm)
-- [熟成14的三文鱼，厨师长上班验货，美食制作先替客人尝尝味道，把控品质，人人有责](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
-- [蔡琴首次澄清无性婚姻](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
-- [【LCK女团】《Whiplash》视觉盛宴](http://www.movie.hkepx.cn/xiju/4386657.htm)
-- [鲁比奥：很高兴中俄美元首能交流](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
-- [小学生试卷现1991年「张大爷」，经核实为虚构，为啥虚构烂梗能被包装成新闻收割流量？带给我们哪些反思？](http://www.movie.hkepx.cn/xiju/3638436.htm)
-- [71岁郑渊洁用AI独自“手搓”动画片](http://www.daogukj.com/7944277)
-- [蔡磊妻子透露：如今一家三口分开住](http://www.daogukj.com/8908969)
-- [你的家乡有哪些值得记录的人或故事？](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
+- [户均 2.52 人开发商却主推三居，为什么现在 89 平方米刚需户型重新走热？](http://www.play.hengshemaoyi.cn/xiju/8685336.htm)
+- [大学生失联2天后校内发现其遗体](http://www.play.hengshemaoyi.cn/kongbu/1533520.htm)
+- [金正恩：朝鲜不追求霸权也不寻求扩张](http://www.daogukj.com/6635536)
+- [刘恺威为小19岁女友黎纪君庆生](http://www.daogukj.com/5112321)
+- [青稚一直道歉的原因](http://www.daogukj.com/ipwmcbrx/)
+- [国乒男单世界排名前十仅王楚钦林诗栋](http://www.daogukj.com/0838857)
+- [刘德华罕谈51岁时老来得女](http://www.play.hengshemaoyi.cn/kongbu/9729360.htm)
+- [中方就以总理等被发逮捕令表态](http://www.movie.hkepx.cn/movie/2653607.htm)
+- [胖东来一店将关闭 羽绒服亮成本价](http://www.movie.hkepx.cn/movie/2345084.htm)
+- [扎堆产卵 同类相食！蝗虫诡异行为原理被中国科学家破解！【主播说三农】](http://www.play.hengshemaoyi.cn/kongbu/9015262.htm)
+- [如何评价马伯庸的小说《两京十五日》？](http://www.movie.hkepx.cn/xiju/6793540.htm)
+- [李雪琴减肥效果惊呆陶勇](http://www.daogukj.com/2792130)
+- [原来傩戏才是覆面系的正确打开方式](http://www.play.hengshemaoyi.cn/xiju/4276613.htm)
+- [想办4444车牌 被骗44444元](http://www.movie.hkepx.cn/movie/1067049.htm)
+- [大大合集](http://www.play.hengshemaoyi.cn/xiju/8988727.htm)
+- [A股这波行情能走多远](http://www.daogukj.com/1652635)
+- [蔡磊妻子透露一家三口分开住](http://www.movie.hkepx.cn/xiju/9905863.htm)
+- [终于把对面带着红蓝buff的牢玩家骗出来了](http://www.play.hengshemaoyi.cn/xiju/8532258.htm)
+- [野桃直播](http://www.play.hengshemaoyi.cn/xiju/0428506.htm)
+- [同样是牛奶，凭啥一个保15天，一个能放三个月？](http://www.movie.hkepx.cn/xiju/4386657.htm)
+- [尹烨：大道至简或是人类的自我安慰](http://www.play.hengshemaoyi.cn/kongbu/7660303.htm)
+- [为什么大学生上课越来越不喜欢课本？为什么大学生不喜欢买课本？](http://www.movie.hkepx.cn/xiju/3638436.htm)
+- [印尼女子发现丈夫出轨叫挖掘机拆房](http://www.daogukj.com/7944277)
+- [李嘉欣晒夫妻合照纪念结婚18周年](http://www.daogukj.com/8908969)
+- [Kimi 宣布发力 AI for Science 方向，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/3742807.htm)
 - [先导片强势来袭！12月5日19点《2026灵笼盛典》B站独家直播【2026 灵笼盛典】](http://www.play.hengshemaoyi.cn/xiju/9948582.htm)
-- [【合集】人类消失后，深度思考三百年的大肥鱼](http://www.movie.hkepx.cn/xiju/6922648.htm)
+- [🐧ai写 ai批 ai改🐧](http://www.movie.hkepx.cn/xiju/6922648.htm)
 - [考公务员很难，但是为人民服务却很容易！](http://www.play.hengshemaoyi.cn/kongbu/0311261.htm)
-- [运营十八年的游戏，搞线下活动，是什么效果？](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
-- [雷克萨斯 ES 纯电版正式上市起售价 33.99 万元，该定价在同级别车型里竞争力如何？](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
-- [同时狂炫「垃圾食品+保健品」，美国人的养生观逆天了](http://www.daogukj.com/samlsvei/)
-- [歼-15“全家福”来了](http://www.daogukj.com/upwbykhc/)
-- [怎么看 Nielsen 发布《黎曼猜想证明无效》的反驳论文？](http://www.daogukj.com/dqafhzpy/)
-- [李在明走访看到白菜煎饼摊走不动了](http://www.daogukj.com/wqdjnvax/)
-- [闲置银行卡千万别乱留](http://www.movie.hkepx.cn/movie/3230647.htm)
-- [南方豆腐掉地上能弹起来](http://www.daogukj.com/0955188)
-- [龙麻子说看张雪起步摔车笑得肚子疼](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
-- [369贴脸开大Bin](http://www.daogukj.com/8951042)
-- [如何看待母亲拒送8岁女儿上学遭起诉，自称替人类示范在家教育，结果女儿连自己名字都写错、语文仅考6分？](http://www.daogukj.com/6868668)
-- [蓬莱出现海滋现象：岛全浮在空中](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
-- [DeepSeek连续五周霸榜全球第一](http://www.daogukj.com/6244721)
-- [路边一块，用心雕刻，保你看了眼前一黑](http://www.movie.hkepx.cn/xiju/4196972.htm)
-- [血压130到139不再是正常血压](http://www.daogukj.com/8252530)
-- [日本东京上空现巨大“人脸”](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
-- [女子第一次坐飞机就在登机口扔硬币](http://www.movie.hkepx.cn/xiju/3203404.htm)
-- [非正常人物志——哥伦布](http://www.daogukj.com/cmilhphd/)
-- [韦东奕攻克百年难题获奖](http://www.daogukj.com/8929579)
-- [微信聊天记录截图当证据 法院认不认](http://www.daogukj.com/xyvhazpu/)
-- [年轻人为什么不接电话了](http://www.movie.hkepx.cn/xiju/5070981.htm)
-- [《520AM》司凤版⚡思罢吗乐队激情演奏！小时候这集听哭了😭【AI MV大赛】](http://www.movie.hkepx.cn/xiju/1375597.htm)
+- [近十年最好的推理系列剧集之一！神级转场，爆火开头，悬疑神剧高分回归系列最终章！《大理石厅谋杀案》上](http://www.play.hengshemaoyi.cn/kongbu/7046404.htm)
+- [如何评价佟丽娅、王皓主演的喜剧电影《我没错！》？](http://www.play.hengshemaoyi.cn/xiju/3535190.htm)
+- [我想回家吃饭（两小时大电影）](http://www.daogukj.com/samlsvei/)
+- [你关注的博主可能被换头了](http://www.daogukj.com/upwbykhc/)
+- [2026-2027国创动画作品发布会 全程回顾](http://www.daogukj.com/dqafhzpy/)
+- [黄仁勋：很荣幸回到英伟达](http://www.daogukj.com/wqdjnvax/)
+- [男子冲向行驶高铁被女列车长拦下](http://www.movie.hkepx.cn/movie/3230647.htm)
+- [龙丹妮一个人可以录一季](http://www.daogukj.com/0955188)
+- [歼-16飞行员放干扰弹驱离外机](http://www.play.hengshemaoyi.cn/kongbu/1738943.htm)
+- [詹俊评U17国足被绝平](http://www.daogukj.com/8951042)
+- [为什么一到香港就能强烈地感受到那种都市感呢？](http://www.daogukj.com/6868668)
+- [英伟达董事会恢复黄仁勋CEO职务](http://www.play.hengshemaoyi.cn/xiju/7750718.htm)
+- [大风大雨暴雪 局地降温超10℃](http://www.daogukj.com/6244721)
+- [【小跳蛙】|“【跳蛙の小曲】”](http://www.movie.hkepx.cn/xiju/4196972.htm)
+- [特朗普把抵达深圳照片打印出来了](http://www.daogukj.com/8252530)
+- [谢军被查 中国石油表态](http://www.play.hengshemaoyi.cn/xiju/8215827.htm)
+- [李雪琴居然这么瘦了](http://www.movie.hkepx.cn/xiju/3203404.htm)
+- [对质](http://www.daogukj.com/cmilhphd/)
+- [黄仁勋复职原因](http://www.daogukj.com/8929579)
+- [97岁老人寿宴结束 五代同堂喊妈妈](http://www.daogukj.com/xyvhazpu/)
+- [特朗普手持在深圳照片向众人展示](http://www.movie.hkepx.cn/xiju/5070981.htm)
+- [今天还是老样子吗？](http://www.movie.hkepx.cn/xiju/1375597.htm)
 
 </details>
 
 ## 原始来源
 
-- [2026-2027国创动画作品发布会 全程回顾](https://b23.tv/BV17pWu6QEkp)
+- [蔡磊发文悼念廖建文](https://www.baidu.com/s?wd=%E8%94%A1%E7%A3%8A%E5%8F%91%E6%96%87%E6%82%BC%E5%BF%B5%E5%BB%96%E5%BB%BA%E6%96%87&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cb4fc42dc121a2ded53f -->
+<!-- content-fingerprint: 9ec5d0970086f9a44f4a -->
