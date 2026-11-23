@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 交易所打出稳市「组合拳」，沪深北交易所降低融资保证金比例下限至 80%，意味着什么？释放了哪些信号？
+# 怎么看 Nielsen 发布《黎曼猜想证明无效》的反驳论文？
 
-> 来源：知乎热榜 · 排名：第 4 位 · 热度：344 万热度 · 分类：问答 · 更新：2026-11-23T08:26:21+08:00
+> 来源：知乎热榜 · 排名：第 4 位 · 热度：553 万热度 · 分类：问答 · 更新：2026-11-23T16:05:55+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“交易所打出稳市「组合拳」，沪深北交易所降低融资保证金比例下限至 80%，意味着什么？释放了哪些信号？”位列第 4 位，公开热度指标为 344 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“怎么看 Nielsen 发布《黎曼猜想证明无效》的反驳论文？”位列第 4 位，公开热度指标为 553 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：新京报贝壳财经讯（记者胡萌）11月22日，交易所推出稳市“组合拳”，一是沪深北三大交易所发布《关于调整融资保证金比例等相关安排的通知》，将融资保证金比例下限从100%降低至80%。 二是深交所就《创业板股票做市交易业务细则》公开征求意见，创业板做市商制度如箭在弦。 三是沪深交易所和中国结算集体官宣拟进一步降费。其中，上交所和深交所发布《关于进一步减免相关费用的通知》，本次新增降费措施预计向市场分别让利13.68亿元、13.9亿元；预计2026年度整体降费金额超过24亿元、22亿元。中国结算则自2027年1月1日起至2028年12月31日，继续暂免收取绿色
+来源公开摘要显示：Jenny Lorraine Nielsen 在 PhilArchive(哲学领域的开放论文预印本平台) 发布了一片 《Invalidity of the Alpoge Proposed Proof of the Riemann Hypothesis》论文，核心是质疑 Alpöge 的黎曼猜想证明作弊，她抓住的是 Lean 代码里一个很有意思的地方：def anyGeometry : GeoP := fun _ _ _ =&gt; True 所以他怀疑代码里存在作弊的问题。 https://philpapers.org/archive/NIEIOT-2.pdf
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [【独家】牧神记 第110集 诡异冥谷](ri-xin-yue-yi.md)
-- [主播糟蹋千斤苹果仅赔6000元](hua-she-tian-zu.md)
-- [私闯果园糟蹋水果主播下架所有视频](yi-xin-yi-yi.md)
-- [A股迎稳市组合拳](san-xin-er-yi.md)
+- [2026-2027国创动画作品发布会 全程回顾](ri-xin-yue-yi.md)
+- [花100元参加旅游团却花34万买了套房](hua-she-tian-zu.md)
+- [韦东奕攻克百年难题获奖](yi-xin-yi-yi.md)
+- [县委书记走访红糖厂家说捡点渣渣吃](san-xin-er-yi.md)
 
 ## 站内推荐
 
-- [在黎曼猜想被声称证明后，如何理解袁新意所说的「或许我们高估了黎曼猜想的难度」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [非正常人物志——哥伦布](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [【凡人修仙传】边界之战即将开启！【PV】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [路边捡到的小狗千万不要扔，小伙教你做美味营养的小狗泡饭](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [【STN快报第8.5季28】不要小看一个老实本分的家政精英，他可能是GTA的超级大盗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [27岁庞众望完成博士论文答辩，即将从清华毕业，未来有望朝什么方向发展？他的求学之路给我们什么启示？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [《怪盗牢德2》：科比为偷雨姐袜子与豆包和大肥鱼战斗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [【灵笼:落子无悔】纵入存亡之局，亦落无悔之子【PV】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [【BLG夺冠VLOG】这是属于我们的冠军记忆](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [【合集】人类消失后，深度思考三百年的大肥鱼](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [真相，假是假了点，但看了不烧心。](http://www.movie.hkepx.cn/movie/4471620.htm)
-- [A股迎稳市组合拳](http://www.daogukj.com/xebdfgux/)
-- [亚洲市场集体打响保卫战](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
-- [同时狂炫「垃圾食品+保健品」，美国人的养生观逆天了](http://www.movie.hkepx.cn/xiju/5621807.htm)
-- [如何看待2026年考CPA人数大幅下降这事？](http://www.daogukj.com/dzktieeu/)
-- [长征九号为什么放弃了大推力发动机转而用一堆小推力发动机组合？](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
-- [主播私闯果园直播带货糟蹋千斤苹果，起初仅愿赔偿6000元，官方通报其系误入，相关损失应如何认定和赔偿？](http://www.movie.hkepx.cn/movie/4977487.htm)
-- [七兄弟给姐姐送嫁排面拉满](http://www.movie.hkepx.cn/xiju/7776753.htm)
-- [男子提供上门服务教自行车被判定涉黄](http://www.daogukj.com/0771353)
-- [成毅白龙挂镜头太震撼了](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
-- [做饭前一个改变 血压炎症指标降了](http://www.movie.hkepx.cn/xiju/1266622.htm)
-- [【独家】牧神记 第110集 诡异冥谷](http://www.daogukj.com/bnubczgn/)
-- [2026年乒乓球德甲联赛第九轮，樊振东1：3负于约内斯库，怎么评价樊振东代表杜塞尔多夫的这一场失利？](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
-- [AI短剧、AI漫剧现在这么火爆，为什么我感觉大多数角色的脸都一样？大家不会视觉疲劳吗？](http://www.movie.hkepx.cn/xiju/3833912.htm)
-- [央视主持人录节目假牙丢了](http://www.daogukj.com/qygzdgwj/)
-- [权威数读观中国](http://www.movie.hkepx.cn/movie/3609280.htm)
-- [石破茂就中日关系再批高市早苗](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
-- [上交所、深交所、北交所打出重磅组合拳](http://www.daogukj.com/dxagawao/)
-- [甩头哥回应张雪将麻阳红糖印上赛车](http://www.daogukj.com/qdpevqqj/)
-- [华鼎奖](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
-- [户均 2.52 人开发商却主推三居，为什么现在 89 平方米刚需户型重新走热？](http://www.daogukj.com/tpbetyah/)
-- [在黎曼猜想被声称证明后，如何理解袁新意所说的「或许我们高估了黎曼猜想的难度」？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
-- [玛雅消失案：谁杀死了一个失落的文明？](http://www.movie.hkepx.cn/xiju/3442051.htm)
-- [七个葫芦娃姐姐出嫁七兄弟送嫁](http://www.movie.hkepx.cn/xiju/4635137.htm)
-- [同学红成顶流自己当NPC 男演员回应](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
-- [非正常人物志——哥伦布](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
-- [为啥北方人没有吐槽供暖费很贵的？](http://www.daogukj.com/eqtbqajy/)
-- [为什么现在90后，00后年轻人不再给领导提供情绪价值了？](http://www.movie.hkepx.cn/movie/5314158.htm)
-- [长安大学回应「14日面试13日出结果」，公告误带后台草稿的创建日期，三名人事干部被处分，如何看待此事？](http://www.movie.hkepx.cn/movie/1796986.htm)
-- [主播私闯果园带货系找错地点](http://www.daogukj.com/yldwicuv/)
-- [特朗普发APEC合照配文GOAT](http://www.movie.hkepx.cn/xiju/1923731.htm)
-- [赖清德沈伯洋穿日本祭祀服造势引公愤](http://www.movie.hkepx.cn/xiju/5823393.htm)
-- [主播糟蹋千斤苹果仅赔6000元](http://www.daogukj.com/2626307)
-- [血压这个区间不再视作接近正常](http://www.movie.hkepx.cn/xiju/9508117.htm)
-- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](http://www.movie.hkepx.cn/xiju/9262898.htm)
-- [网友称在父母面前切换成「无性别低智儿童」，被问到工作、婚恋话题都说「不知道」，为啥要这样？这招管用吗？](http://www.daogukj.com/tqdltahc/)
-- [【大虾沉浸式试车】首次量产折叠方向盘？！方程豹钛9 折叠智舱版👉快来快来～带你沉浸式体验！](http://www.movie.hkepx.cn/xiju/9646924.htm)
-- [《芯片战争》作者警告美国](http://www.daogukj.com/1624901)
-- [甩头哥回应被张雪邀约吃饭](http://www.movie.hkepx.cn/movie/6632805.htm)
-- [俄乌两军在多线激烈交战](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
-- [日媒逐帧解析特朗普无视高市](http://www.daogukj.com/5122805)
-- [派出所副所长借钱8万仅还5万被约谈](http://www.movie.hkepx.cn/movie/7942093.htm)
-- [方力申耗时 8 小时 37 分 24 秒从香港游到澳门破吉尼斯纪录，完成这样的挑战难度有多大？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
-- [【合集】人类消失后，深度思考三百年的大肥鱼](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
-- [男子剪发后气质变化有多大](http://www.daogukj.com/hdlfcclx/)
-- [“兄台”的“台”到底是什么台](http://www.daogukj.com/1703206)
-- [“防非反诈”系列条漫](http://www.daogukj.com/1803044)
-- [熟成14的三文鱼，厨师长上班验货，美食制作先替客人尝尝味道，把控品质，人人有责](http://www.daogukj.com/3520679)
-- [【凡人修仙传】边界之战即将开启！【PV】](http://www.movie.hkepx.cn/xiju/3318389.htm)
-- [2026亚太最具影响力青年男性TOP100](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
+- [熟成14的三文鱼，厨师长上班验货，美食制作先替客人尝尝味道，把控品质，人人有责](http://www.movie.hkepx.cn/movie/4471620.htm)
+- [县委书记走访红糖厂家说捡点渣渣吃](http://www.daogukj.com/xebdfgux/)
+- [年轻人为什么不接电话了](http://www.play.hengshemaoyi.cn/xiju/1911676.htm)
+- [大牙|| 肖8选择题精讲带背（第四套卷），全网讲解最清晰，专治零基础！](http://www.movie.hkepx.cn/xiju/5621807.htm)
+- [51 岁网络主播性侵未成年获刑四年，其亲属曾付60万给被害人家属要求私了被追责，如何从法律角度解读？](http://www.daogukj.com/dzktieeu/)
+- [雷克萨斯 ES 纯电版正式上市起售价 33.99 万元，该定价在同级别车型里竞争力如何？](http://www.play.hengshemaoyi.cn/xiju/3469045.htm)
+- [为什么一到香港就能强烈地感受到那种都市感呢？](http://www.movie.hkepx.cn/movie/4977487.htm)
+- [人民日报评1991年张大爷烂梗](http://www.movie.hkepx.cn/xiju/7776753.htm)
+- [日本东京上空现巨大“人脸”](http://www.daogukj.com/0771353)
+- [女教师公园拉二胡被质疑有失身份](http://www.play.hengshemaoyi.cn/xiju/4433068.htm)
+- [羽绒服市场正在淘汰没理由的高价](http://www.movie.hkepx.cn/xiju/1266622.htm)
+- [2026-2027国创动画作品发布会 全程回顾](http://www.daogukj.com/bnubczgn/)
+- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.play.hengshemaoyi.cn/kongbu/5539982.htm)
+- [樊振东 3: 0 零封弗朗西斯卡，率队豪取德甲九连胜，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/3833912.htm)
+- [墨西哥总统爱上中国气功](http://www.daogukj.com/qygzdgwj/)
+- [透过数据看消费之变](http://www.movie.hkepx.cn/movie/3609280.htm)
+- [蔡磊妻子透露一家三口分开住](http://www.play.hengshemaoyi.cn/kongbu/8118375.htm)
+- [新娘婚礼从约4米高滑梯滑下出场](http://www.daogukj.com/dxagawao/)
+- [055大驱首次向公众开放](http://www.daogukj.com/qdpevqqj/)
+- [treetree的炸鸡外卖火到被迫成为门店](http://www.play.hengshemaoyi.cn/kongbu/6108459.htm)
+- [你的家乡有哪些值得记录的人或故事？](http://www.daogukj.com/tpbetyah/)
+- [27岁庞众望完成博士论文答辩，即将从清华毕业，未来有望朝什么方向发展？他的求学之路给我们什么启示？](http://www.play.hengshemaoyi.cn/xiju/1842892.htm)
+- [考公务员很难，但是为人民服务却很容易！](http://www.movie.hkepx.cn/xiju/3442051.htm)
+- [微信聊天记录截图当证据 法院认不认](http://www.movie.hkepx.cn/xiju/4635137.htm)
+- [网传多吃某药有愉悦感 高中生吃20片](http://www.play.hengshemaoyi.cn/xiju/1792014.htm)
+- [《怪盗牢德2》：科比为偷雨姐袜子与豆包和大肥鱼战斗](http://www.play.hengshemaoyi.cn/kongbu/3833044.htm)
+- [张水华黄石马拉松破个人纪录夺冠，6周连跑6场获5冠1亚，如何评价她的表现？](http://www.daogukj.com/eqtbqajy/)
+- [DeepSeek 推出限额规则，不少重度免费用户主动求付费保留长对话，这暴露出哪些行业现实问题？](http://www.movie.hkepx.cn/movie/5314158.htm)
+- [费迪南德批评拜仁公开质疑穆西亚拉高薪不符合豪门格调，这种处理方式有哪些不妥？](http://www.movie.hkepx.cn/movie/1796986.htm)
+- [女子第一次坐飞机就在登机口扔硬币](http://www.daogukj.com/yldwicuv/)
+- [脆脆炸鸡老板强调八百遍是做披萨的](http://www.movie.hkepx.cn/xiju/1923731.htm)
+- [蓬莱出现海滋现象：岛全浮在空中](http://www.movie.hkepx.cn/xiju/5823393.htm)
+- [花100元参加旅游团却花34万买了套房](http://www.daogukj.com/2626307)
+- [马天宇说你让我们给好脸](http://www.movie.hkepx.cn/xiju/9508117.htm)
+- [余文乐自曝因长期高压患上恐慌症，严重到不能开车，心理压力为何会引发躯体化症状？这种情况还能治愈吗？](http://www.movie.hkepx.cn/xiju/9262898.htm)
+- [S16总决赛官方把FMVP给到Knight，除了他之外，这场BO5里还有谁有资格拿到这个荣誉？](http://www.daogukj.com/tqdltahc/)
+- [扎堆产卵 同类相食！蝗虫诡异行为原理被中国科学家破解！【主播说三农】](http://www.movie.hkepx.cn/xiju/9646924.htm)
+- [中方回应特朗普称只想对华卖落后芯片](http://www.daogukj.com/1624901)
+- [刘德华罕谈51岁时老来得女](http://www.movie.hkepx.cn/movie/6632805.htm)
+- [龙麻子说看张雪起步摔车笑得肚子疼](http://www.play.hengshemaoyi.cn/kongbu/9880708.htm)
+- [为什么控糖这件事35岁就要重视](http://www.daogukj.com/5122805)
+- [烧烤店员工餐有鲍鱼生蚝清蒸大闸蟹](http://www.movie.hkepx.cn/movie/7942093.htm)
+- [在黎曼猜想被声称证明后，如何理解袁新意所说的「或许我们高估了黎曼猜想的难度」？](http://www.play.hengshemaoyi.cn/kongbu/5815633.htm)
+- [异人之下游戏｜正式定档｜关于“纯”，他有发言权！](http://www.play.hengshemaoyi.cn/xiju/3202624.htm)
+- [鲁比奥：很高兴中俄美元首能交流](http://www.daogukj.com/hdlfcclx/)
+- [71岁郑渊洁用AI独自“手搓”动画片](http://www.daogukj.com/1703206)
+- [清谣护苗・护航成长](http://www.daogukj.com/1803044)
+- [【LCK女团】《Whiplash》视觉盛宴](http://www.daogukj.com/3520679)
+- [【灵笼:落子无悔】纵入存亡之局，亦落无悔之子【PV】](http://www.movie.hkepx.cn/xiju/3318389.htm)
+- [男子得蛇缠腰不去治病竟找人画符](http://www.play.hengshemaoyi.cn/xiju/7849025.htm)
 
 </details>
 
 ## 原始来源
 
-- [交易所打出稳市「组合拳」，沪深北交易所降低融资保证金比例下限至 80%，意味着什么？释放了哪些信号？](https://www.zhihu.com/question/2107908002430677964)
+- [怎么看 Nielsen 发布《黎曼猜想证明无效》的反驳论文？](https://www.zhihu.com/question/2108116147598054620)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bdb064ebaa373ade8389 -->
+<!-- content-fingerprint: d513ac6997c19f97f472 -->
