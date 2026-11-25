@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【火影十一年 神临时刻】漩涡鸣人[阳之力]即将登场！
+# 中方回应“美将对中国等国加征关税”
 
-> 来源：哔哩哔哩热门 · 排名：第 1 位 · 热度：3195317 · 分类：手机游戏 · 更新：2026-11-25T08:07:49+08:00
+> 来源：百度热搜 · 排名：第 1 位 · 热度：7713125 · 更新：2026-11-25T16:36:23+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【火影十一年 神临时刻】漩涡鸣人[阳之力]即将登场！”位列第 1 位，公开热度指标为 3195317，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中方回应“美将对中国等国加征关税””位列第 1 位，公开热度指标为 7713125。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：明星玩家尹正在漫长的旅途中，逐渐揭开了答案——“神”，近在眼前！神临时刻，是有你，就能点燃每一刻！ 火影忍者手游11周年庆来袭，2027年1月高招S忍漩涡鸣人「阳之力」参上！他已凭借「阳之力」达到神通境界，触碰万物真理！ 感谢学员漂泊小南的盾构、余温、格露、阿杰-对视频的精心打磨制作，花雨、灯芯对视频音频的提供和处理；以及各位点亮了十一年每一刻的学员们参演！ 12月4日，11周年福利活动开启！敬请期待～
+来源公开摘要显示：11月25日，外交部记者会上，记者问及美国拟对中国等国商品加征关税一事。发言人郭嘉昆表示，贸易战损人害己，中方反对借“产能过剩”进行政治操弄，呼吁双方基于平等互惠协商，落实元首共识，稳定经贸关系。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [神舟二十四号载人飞船今日发射](liu-shen-wu-zhu.md)
+- [可口可乐不再标生产日期](liu-shen-wu-zhu.md)
 - [特朗普对一道中国菜念念不忘](qi-shang-ba-xia.md)
-- [超级厄尔尼诺发威 暴雪袭击日本](ba-mian-ling-long.md)
-- [AI 短剧《丑狐》爆火后引发大量讨论，它能戳中观众的核心原因是什么？](jiu-niu-yi-mao.md)
+- [年轻人开始劝父母卖县城空房，换成现金收利息，空置多年的房子有必要留吗？](ba-mian-ling-long.md)
+- [《绝区零》挽昼角色展示 | 日陨之前](jiu-niu-yi-mao.md)
 
 ## 站内推荐
 
-- [当你一直带着新手村的NPC](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [国产可口可乐不再标生产日期](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [黄奕女儿说你都能当艺人为啥我不行](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [特朗普称亲自说服英伟达董事会推动黄仁勋复职，副总统万斯出面沟通，白宫为何这么拼？这波介入起了多大作用？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [游戏自由度太高也不是什么好事](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [地级市市长转任县委书记](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [迪丽热巴“最佳红毯着装”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [女研究生一行3人青海自驾游失联](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [巴基斯坦航天员说中国空间站我来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [美国FBI局长证实摧毁诈骗园区](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？](http://www.movie.hkepx.cn/xiju/9473962.htm)
-- [车企老板娘女装卖了30亿](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
-- [大众拟裁员10万人 工会威胁罢工](http://www.daogukj.com/9950285)
-- [演员好像忘记自己中箭了](http://www.daogukj.com/hdjwtczf/)
-- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.movie.hkepx.cn/xiju/3930873.htm)
-- [为什么老板多数是销售出身，而不是市场出身？](http://www.daogukj.com/lahsyiok/)
-- [张雪机车引燃摩托热](http://www.movie.hkepx.cn/movie/2808271.htm)
-- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.daogukj.com/pdxtjjps/)
-- [王牌对王牌第十季阵容](http://www.movie.hkepx.cn/movie/8646334.htm)
-- [美AI科技股集体暴跌](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
-- [人类统一不爽行为](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
-- [黄仁勋复职风波留下的考题](http://www.daogukj.com/0662108)
-- [DeepSeek 因算力不足对免费用户实施使用限额，后续是否会推出 C 端付费模式？](http://www.daogukj.com/ytojyrlp/)
-- [东北的洗浴已经这么卷了吗](http://www.movie.hkepx.cn/xiju/5031303.htm)
-- [详解【来自深渊】的全部七层！动漫界独一份的超神设定](http://www.movie.hkepx.cn/movie/6436180.htm)
-- [你从未见过的硬核开箱视频！](http://www.daogukj.com/3990167)
-- [如何评价徐克的电影《青蛇》？](http://www.movie.hkepx.cn/xiju/2312432.htm)
-- [特朗普称亲自说服英伟达董事会推动黄仁勋复职，副总统万斯出面沟通，白宫为何这么拼？这波介入起了多大作用？](http://www.movie.hkepx.cn/xiju/8661033.htm)
-- [陈吉宁被查 上海表态](http://www.daogukj.com/0078862)
-- [曝王牌对王牌10新增常驻王一博](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
-- [如何评价《黑神话：悟空》主美杨奇评价GTA6是昂贵且低效的艺术品，「工业化」一词是对它的贬损?](http://www.daogukj.com/4309889)
-- [智谱为何持续震荡](http://www.daogukj.com/nprhrdaf/)
-- [地级市市长转任县委书记](http://www.movie.hkepx.cn/movie/1442506.htm)
-- [AI换脸还没完AI融脸又来了](http://www.daogukj.com/4057647)
-- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
-- [鸿蒙积分兑换断货](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
-- [天还没亮 学生就集体站在操场晨读](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
-- [超级厄尔尼诺发威 暴雪袭击日本](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
-- [吴昕被6岁小师傅叫奶奶当场愣住](http://www.movie.hkepx.cn/xiju/7985479.htm)
-- [黄奕女儿说你都能当艺人为啥我不行](http://www.movie.hkepx.cn/movie/2019373.htm)
-- [国产可口可乐不再标生产日期](http://www.daogukj.com/4851140)
-- [【世界无用技能】据说这是德国最烧脑的综艺游戏😅~太抽象了🦆选鸭子选小球比谁滑远~超级策略游戏！](http://www.daogukj.com/ssypiueg/)
+- [黄奕助理说黄奕以前也犯过错想离婚](http://www.movie.hkepx.cn/xiju/9473962.htm)
+- [🚢"泰坦鲁克号"🛳️](http://www.play.hengshemaoyi.cn/xiju/6014604.htm)
+- [大宅门里的杨九红为什么不敢欺负黄春？](http://www.daogukj.com/9950285)
+- [巴基斯坦航天员在天宫中文唠嗑](http://www.daogukj.com/hdjwtczf/)
+- [A股接下来的见底究竟看什么](http://www.movie.hkepx.cn/xiju/3930873.htm)
+- [美国10岁男孩为救亲妈，开枪爆头16岁少女邻居](http://www.daogukj.com/lahsyiok/)
+- [青春有你3](http://www.movie.hkepx.cn/movie/2808271.htm)
+- [神舟二十四号发射成功](http://www.daogukj.com/pdxtjjps/)
+- [巴航天员接过太空小蛋糕深深闻了闻](http://www.movie.hkepx.cn/movie/8646334.htm)
+- [你从未见过的硬核开箱视频！](http://www.play.hengshemaoyi.cn/kongbu/9976982.htm)
+- [泽连斯基：卢卡申科可带普京来基辅](http://www.play.hengshemaoyi.cn/xiju/9707056.htm)
+- [赵松源学习笔记 登上FIFA官网](http://www.daogukj.com/0662108)
+- [山寨“塔斯汀”开出1300家门店](http://www.daogukj.com/ytojyrlp/)
+- [大三男生做保姆 入职俩月胖了近30斤](http://www.movie.hkepx.cn/xiju/5031303.htm)
+- [央视揭秘走私孕妇血样大案](http://www.movie.hkepx.cn/movie/6436180.htm)
+- [荔枝的遭遇](http://www.daogukj.com/3990167)
+- [石川佳纯宣布结婚](http://www.movie.hkepx.cn/xiju/2312432.htm)
+- [巴基斯坦航天员说中国空间站我来了](http://www.movie.hkepx.cn/xiju/8661033.htm)
+- [中外航天员实现首次“太空握手”](http://www.daogukj.com/0078862)
+- [胡锡进说我们都亏得很痛](http://www.play.hengshemaoyi.cn/xiju/2664715.htm)
+- [肖战参加小城良方研讨会路透](http://www.daogukj.com/4309889)
+- [巴基斯坦各界围观神24发射](http://www.daogukj.com/nprhrdaf/)
+- [疑遭丑狐盗脸女子称维权困难](http://www.movie.hkepx.cn/movie/1442506.htm)
+- [神23神24太空会师](http://www.daogukj.com/4057647)
+- [亲戚要借车到北京玩，我想拒绝，因为对方几乎没开过高速，但是不知道怎么说才不得罪人？](http://www.play.hengshemaoyi.cn/xiju/2072610.htm)
+- [刘晓艳：“你能考过就是「烂奇迹」”](http://www.play.hengshemaoyi.cn/xiju/3398470.htm)
+- [大家都用 Deepseek Harness 了嘛，感受如何？](http://www.play.hengshemaoyi.cn/kongbu/3186995.htm)
+- [年轻人开始劝父母卖县城空房，换成现金收利息，空置多年的房子有必要留吗？](http://www.play.hengshemaoyi.cn/kongbu/5007418.htm)
+- [巴驻华大使：好好学中文 万一上太空了](http://www.movie.hkepx.cn/xiju/7985479.htm)
+- [女研究生一行3人青海自驾游失联](http://www.movie.hkepx.cn/movie/2019373.htm)
+- [迪丽热巴“最佳红毯着装”](http://www.daogukj.com/4851140)
+- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.daogukj.com/ssypiueg/)
 - [特朗普对一道中国菜念念不忘](http://www.play.hengshemaoyi.cn/xiju/4814913.htm)
-- [为什么吕子乔不撩诺澜？](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
-- [这个草台班子的世界，比你想象的还要荒唐！](http://www.daogukj.com/lzxgwnjt/)
-- [年轻人劝父母卖空房收息](http://www.movie.hkepx.cn/xiju/4607012.htm)
-- [⚡【神金斗罗】史上最神人斗罗同人1-10集大合集⚡](http://www.movie.hkepx.cn/movie/8010450.htm)
-- [上海就陈吉宁被查表态](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
-- [高志凯称欧洲在人工智能发展中的作用几乎是零，这一观点是否站得住脚？](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
-- [《蓝色星原：旅谣》涂山小玉PV | 一笺桃花](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
-- [一校一主题 消谣育青年](http://www.movie.hkepx.cn/xiju/4057893.htm)
-- [全国前10黄金矿工都匹配在一起了！](http://www.daogukj.com/mgibxpfj/)
-- [英伟达凭什么绑住整个硅谷](http://www.movie.hkepx.cn/movie/3059200.htm)
-- [小米集团 2026 Q3 财报发布，经调整净利润 48.84 亿元，同比下降56.8%，怎样解读？](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
-- [英伟达跌近6% Anthropic跌破发行价](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
-- [《西游记》中，真的是大海里是水，但龙宫内是干的吗？如果是的话，各个人物进龙宫时怎么晾干衣服？](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
-- [黄磊真空围裙](http://www.movie.hkepx.cn/xiju/2631994.htm)
-- [孩子用AI写小说遭父亲质疑非原创与之起争执，你认为用AI辅助写作算原创吗？若是你会怎样解答孩子的困惑？](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
-- [因开塞露含甘油，自媒体宣传其可保湿淡纹、功效逼近大牌面霜，真这么管用吗？有其他体面一点的护肤办法吗？](http://www.daogukj.com/qfedcfsy/)
-- [华强等了宋老虎30年](http://www.daogukj.com/djjsqhar/)
+- [2026年环球小姐冠军诞生](http://www.play.hengshemaoyi.cn/kongbu/2834782.htm)
+- [“数学回不到从前了”](http://www.daogukj.com/lzxgwnjt/)
+- [胡海泉“悟道”被网友质疑炒股亏了](http://www.movie.hkepx.cn/xiju/4607012.htm)
+- [黄仁勋复职曾带动英伟达股价单日大涨，但随后股价回吐部分涨幅，为啥黄仁勋回归没能持续提振 AI 概念股？](http://www.movie.hkepx.cn/movie/8010450.htm)
+- [特朗普公开提及一道配了漂亮「帽子」的中国菜，直呼好吃却叫不出名字，可能是哪一道菜？](http://www.play.hengshemaoyi.cn/xiju/4177688.htm)
+- [决赛练英雄？选皮肤原则大公开！BLG冠军中野亲自讲述夺冠故事【视频播客 | 元来如此 EP.10】](http://www.play.hengshemaoyi.cn/xiju/4962736.htm)
+- [《明日方舟：终末地》小刻EP - JUST THE START](http://www.play.hengshemaoyi.cn/kongbu/4306423.htm)
+- [极客湾手机影像大横评：哪家手机拍照强？](http://www.movie.hkepx.cn/xiju/4057893.htm)
+- [火箭发射与朝霞同框浪漫壮美](http://www.daogukj.com/mgibxpfj/)
+- [《异环》Exe角色PV丨追杀计数](http://www.movie.hkepx.cn/movie/3059200.htm)
+- [【李诗雅】属于李诗雅的故事，即将展开【PV】](http://www.play.hengshemaoyi.cn/xiju/0234754.htm)
+- [胡锡进说今天亏得很痛](http://www.play.hengshemaoyi.cn/kongbu/6547374.htm)
+- [超级厄尔尼诺发威 暴雪袭击日本](http://www.play.hengshemaoyi.cn/kongbu/7393546.htm)
+- [南方人快看 大风吹雪拉出“长毛”](http://www.movie.hkepx.cn/xiju/2631994.htm)
+- [神舟二十四号载人飞船发射取得圆满成功，中国空间站迎来首位外籍航天员，此次发射任务还有哪些看点？](http://www.play.hengshemaoyi.cn/xiju/8280824.htm)
+- [募款超过嫣然天使基金救助承载能力，李亚鹏建议月捐 1 元支持嫣然基金，如何看待这种小额长期公益思路？](http://www.daogukj.com/qfedcfsy/)
+- [如何看待 Anthropic 价格跌破发行价？](http://www.daogukj.com/djjsqhar/)
 
 </details>
 
 ## 原始来源
 
-- [【火影十一年 神临时刻】漩涡鸣人[阳之力]即将登场！](https://b23.tv/BV1qYyRz5EdM)
+- [中方回应“美将对中国等国加征关税”](https://www.baidu.com/s?wd=%E4%B8%AD%E6%96%B9%E5%9B%9E%E5%BA%94%E2%80%9C%E7%BE%8E%E5%B0%86%E5%AF%B9%E4%B8%AD%E5%9B%BD%E7%AD%89%E5%9B%BD%E5%8A%A0%E5%BE%81%E5%85%B3%E7%A8%8E%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1446bf78d52fd2261e33 -->
+<!-- content-fingerprint: 857b9e40dc162b26bc16 -->
