@@ -2,11 +2,11 @@
 
 # 刷新新地点~再三声明！选择中文和日文，无任何不良引导！！
 
-> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：791151 · 分类：日常 · 更新：2026-11-28T10:49:55+08:00
+> 来源：哔哩哔哩热门 · 排名：第 2 位 · 热度：2448071 · 分类：日常 · 更新：2026-11-28T19:14:24+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“刷新新地点~再三声明！选择中文和日文，无任何不良引导！！”位列第 2 位，公开热度指标为 791151，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“刷新新地点~再三声明！选择中文和日文，无任何不良引导！！”位列第 2 位，公开热度指标为 2448071，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：-
 
@@ -18,74 +18,74 @@
 
 ## 相关热点
 
-- [本周中国多领域捷报频传](bai-fa-bai-zhong.md)
-- [工业经济新动能澎湃](qian-jun-wan-ma.md)
-- [“数”读前10月规上工业企业利润](wan-zi-qian-hong.md)
-- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](niao-yu-hua-xiang.md)
+- [今年前10个月物流业总收入12.3万亿元](bai-fa-bai-zhong.md)
+- [物流网络持续织密夯实高质量发展根基](qian-jun-wan-ma.md)
+- [我国河湖面貌发生历史性改善](wan-zi-qian-hong.md)
+- [雅迪、爱玛、九号等15家电动自行车企业被点名，部分企业涉违法出售不合格产品情况，哪些信息值得关注？](niao-yu-hua-xiang.md)
 
 ## 站内推荐
 
-- [【独家】《罗小黑战记》第45话 美好的暑假如此短暂【10月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [U17国足历史首次对阵塞尔维亚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [曝汪顺结婚了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [厉娜前经纪人张阿瞳发文](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [69岁葛优带儿子逛商场](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [【独家】《凡人修仙传之慕兰之战》第26集【总第202集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [一块很宽很宽很宽很宽的人......](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [东北话魔仙](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [马天宇对张萌表白了三次](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [成毅内场落座](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [国产显卡过几年是不是也要起来了？](http://www.daogukj.com/8025131)
-- [东北话魔仙](http://www.daogukj.com/1259810)
-- [如何评价冯骥在《后 AI 时代最重要的问题》一文中的思考和想法？](http://www.daogukj.com/3123281)
-- [初中读一年 立刻开始高中课程](http://www.movie.hkepx.cn/movie/0347416.htm)
-- [U17国足历史首次对阵塞尔维亚](http://www.daogukj.com/mojqmowq/)
-- [人类数学家把黎曼猜想的证明压缩到了117页](http://www.movie.hkepx.cn/movie/8583613.htm)
-- [李香凝将用AIGC复活李小龙](http://www.movie.hkepx.cn/movie/7389207.htm)
-- [【三角洲全角色/与天齐】⚡我本是天才少年😭👊🏻⚡](http://www.movie.hkepx.cn/movie/7310795.htm)
-- [曝76人有意交易得到杰伦·史密斯](http://www.daogukj.com/7749326)
-- [69岁葛优带儿子逛商场](http://www.daogukj.com/4323075)
-- [薛之谦上上谦火锅全部门店关停](http://www.movie.hkepx.cn/movie/9488458.htm)
-- [国常会的通稿首次使用了「国家队」、类「平准基金」这些提法，释放了哪些信号？](http://www.movie.hkepx.cn/movie/2374212.htm)
-- [男子与婚外情对象外出跳湖 妻子索赔](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
-- [【欢迎来龙餐馆】起锅开灶，好好吃饭](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
-- [金价](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
-- [许飞 天娱前员工](http://www.movie.hkepx.cn/movie/6531033.htm)
-- [超40岁被拒入住酒店 一刀切合法吗](http://www.daogukj.com/spbreewj/)
-- [回家晚了一点，把小睦和大肥鱼饿坏了](http://www.daogukj.com/gopjchhj/)
-- [外网评价肖战研讨会背头造型](http://www.movie.hkepx.cn/xiju/5337621.htm)
-- [胡兵做了单眼皮后睡觉眼睛闭不上](http://www.daogukj.com/niwgdgqs/)
-- [一块很宽很宽很宽很宽的人......](http://www.daogukj.com/nhoydtix/)
-- [陈数回应和成毅是天选母子](http://www.movie.hkepx.cn/xiju/9013758.htm)
-- [如何看待白俄罗斯总统卢卡申科在接受采访时表示「如果追溯历史，整个俄罗斯都应该归蒙古所有」？](http://www.daogukj.com/8222516)
-- [王菲22年前专访](http://www.daogukj.com/2198681)
-- [海康威视辟谣网传工作新规，称反对以在岗时间替代价值贡献的无效「内卷」，对此你怎么看？](http://www.daogukj.com/qjzpvrwa/)
-- [孔子其实根本不姓孔](http://www.movie.hkepx.cn/xiju/3667958.htm)
-- [张颂文称不当演员了可以去干导游](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
-- [陈吉宁等被查 中纪委发声](http://www.movie.hkepx.cn/xiju/0423343.htm)
-- [女子入住上海四千一晚酒店，孩子不慎碰坏一摆件被索赔三千元，远高于采购价，这一索赔标准合理吗？](http://www.movie.hkepx.cn/xiju/6831166.htm)
-- [陈奕迅找梁咏琪要签名](http://www.movie.hkepx.cn/xiju/7701717.htm)
-- [广电新规首日部分电视仍有开机广告](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
-- [能拍出《大明王朝 1566》的导演为什么会在《两京十五日》翻车了？](http://www.movie.hkepx.cn/xiju/8472152.htm)
-- [DECO*27 - Gesture feat. 初音未来](http://www.daogukj.com/5336794)
-- [假如篮球博主来宿舍打球](http://www.daogukj.com/6170092)
-- [启用新车标能帮启境拉动多少销量](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
-- [《后会友期》「告密门」播出后，厉娜风评光速下滑，网友要求她向许飞道歉，她们的矛盾真的只是友情问题吗？](http://www.daogukj.com/3387155)
-- [女子身高153难买衣服怒而自己做](http://www.movie.hkepx.cn/xiju/5963440.htm)
-- [金价真的大涨了](http://www.daogukj.com/9693904)
-- [我把「每跑几秒，速度翻倍」做成了游戏【B站AI创造公开赛】](http://www.movie.hkepx.cn/movie/9348798.htm)
-- [科创板一天收复全年跌幅](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
-- [雅迪、爱玛、九号等15家电动自行车企业被点名，部分企业涉违法出售不合格产品情况，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
-- [乌布雷大帽恩比德](http://www.movie.hkepx.cn/movie/1705456.htm)
-- [日本可能发生大规模地震 中使馆提醒](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
-- [宋慧乔和孔刘的新剧来了](http://www.movie.hkepx.cn/xiju/4301515.htm)
-- [厉娜前经纪人张阿瞳发文](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
-- [梁咏琪红馆演唱会母女同台](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
-- [《下一个是谁》第七季（6）](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
-- [千万不要用纸巾包贵重物品](http://www.movie.hkepx.cn/xiju/7431738.htm)
-- [本周中国多领域捷报频传](http://www.daogukj.com/pmdpqyts/)
-- [专家：这轮底部大概率稳了](http://www.movie.hkepx.cn/movie/5542629.htm)
+- [网传徐嘉余王冰冰登记结婚](http://www.daogukj.com/8025131)
+- [如果把天山凿一个洞，让大西洋水汽进来，能否让新疆变成塞上江南？](http://www.daogukj.com/1259810)
+- [中国内地高校为什么不搞一年制的授课型硕士？](http://www.daogukj.com/3123281)
+- [12岁小孩姐跳敦煌舞火出圈](http://www.movie.hkepx.cn/movie/0347416.htm)
+- [一块很宽很宽很宽很宽的人......](http://www.daogukj.com/mojqmowq/)
+- [极客湾预估 PC 版《GTA6》2K60 帧整机预算约 1.4 万元，你会为玩这款游戏升级整机吗？](http://www.movie.hkepx.cn/movie/8583613.htm)
+- [【海洋奇缘：启航】不谈恋爱只谈冒险！](http://www.movie.hkepx.cn/movie/7389207.htm)
+- [50余人摘走数百斤橘子，只留下一张10元纸币。警方称“没有违法事实”，果园主人一纸诉状把公安局告了。（编辑：1M）](http://www.movie.hkepx.cn/movie/7310795.htm)
+- [“最佳睡眠时长”找到了](http://www.daogukj.com/7749326)
+- [成毅内场落座](http://www.daogukj.com/4323075)
+- [50万亿元存款集中到期没“搬家”](http://www.movie.hkepx.cn/movie/9488458.htm)
+- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](http://www.movie.hkepx.cn/movie/2374212.htm)
+- [梁靖崑将赴俄超打球，怎样看待他的选择？对他职业生涯发展有哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/6947357.htm)
+- [司机捡手机要100元辛苦费 乘客报警](http://www.play.hengshemaoyi.cn/kongbu/2337845.htm)
+- [杨幂又捡猫了](http://www.play.hengshemaoyi.cn/kongbu/1751815.htm)
+- [杨紫红毯找镜头](http://www.movie.hkepx.cn/movie/6531033.htm)
+- [人民日报评论：英语科目何去何从](http://www.daogukj.com/spbreewj/)
+- [在B站就能玩到的搜打撤游戏，点击即玩！【B站AI创造公开赛】](http://www.daogukj.com/gopjchhj/)
+- [史诗级农村大片！好莱坞看了都落泪了！](http://www.movie.hkepx.cn/xiju/5337621.htm)
+- [网传人工智能倒查贪腐](http://www.daogukj.com/niwgdgqs/)
+- [《爱的缄默法则》首曝PV丨归来](http://www.daogukj.com/nhoydtix/)
+- [戚薇林子君 短剧](http://www.movie.hkepx.cn/xiju/9013758.htm)
+- [U17 世界杯 32 强对阵出炉，中国 U17 vs 塞尔维亚，晋级可能性有多大？](http://www.daogukj.com/8222516)
+- [国乒混团世界杯抽到上上签](http://www.daogukj.com/2198681)
+- [易烊千玺回复了王俊凯王源](http://www.daogukj.com/qjzpvrwa/)
+- [丁肇中第九次回乡日照](http://www.movie.hkepx.cn/xiju/3667958.htm)
+- [董明珠直播中数次训斥员工，魏建军帮忙解围，怎样看待魏建军的处理和董明珠对员工的管理方式？](http://www.play.hengshemaoyi.cn/kongbu/4406276.htm)
+- [3名回地球航天员收到天宫神秘礼物](http://www.movie.hkepx.cn/xiju/0423343.htm)
+- [许飞朋友和厉娜朋友发言对比](http://www.movie.hkepx.cn/xiju/6831166.htm)
+- [中国癌谱从感染型向生活型转变](http://www.movie.hkepx.cn/xiju/7701717.htm)
+- [教中国造车的德国师傅利润只剩零头](http://www.play.hengshemaoyi.cn/kongbu/6449928.htm)
+- [央媒评梁靖崑加盟俄超方博去德甲](http://www.movie.hkepx.cn/xiju/8472152.htm)
+- [武汉一烧烤店员工餐有鲍鱼生蚝，大闸蟹基围虾随便吃，老板称「吃饱才有力气干活」，这个福利怎么样？](http://www.daogukj.com/5336794)
+- [一口气看完虫石世界](http://www.daogukj.com/6170092)
+- [澳门居民珠海养老每月补5000元](http://www.play.hengshemaoyi.cn/kongbu/3423964.htm)
+- [如何看待济南医保官方视频号工作人员误以为直播结束，骂咨询者脑子有病，医保局回应称已批评教育并要求道歉？](http://www.daogukj.com/3387155)
+- [大额存单10万元就能买了](http://www.movie.hkepx.cn/xiju/5963440.htm)
+- [可乐为啥不印生产日期了](http://www.daogukj.com/9693904)
+- [满级大佬屠杀新手村](http://www.movie.hkepx.cn/movie/9348798.htm)
+- [《请不走的门神》有爆款潜质吗](http://www.play.hengshemaoyi.cn/kongbu/4289735.htm)
+- [格力为何要推出奢侈品家电](http://www.play.hengshemaoyi.cn/xiju/8095324.htm)
+- [乌克兰男性为躲征召和岳母结婚](http://www.movie.hkepx.cn/movie/1705456.htm)
+- [董明珠直播训员工引争议](http://www.play.hengshemaoyi.cn/xiju/6591875.htm)
+- [校服袖子一长一短教育局已介入](http://www.movie.hkepx.cn/xiju/4301515.htm)
+- [马天宇对张萌表白了三次](http://www.play.hengshemaoyi.cn/xiju/0425611.htm)
+- [曝徐嘉余王冰冰结婚](http://www.play.hengshemaoyi.cn/kongbu/4452423.htm)
+- [大小姐驾到《千问GO》！](http://www.play.hengshemaoyi.cn/xiju/1495833.htm)
+- [178万买房次日得知拆迁买方发声](http://www.movie.hkepx.cn/xiju/7431738.htm)
+- [今年前10个月物流业总收入12.3万亿元](http://www.daogukj.com/pmdpqyts/)
+- [iPhone Duo开合超63万次无法闭合](http://www.movie.hkepx.cn/movie/5542629.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 64ffe50fa63b79c89e9f -->
+<!-- content-fingerprint: 7f830f33dac6155c13f4 -->
